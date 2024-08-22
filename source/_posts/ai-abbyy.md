@@ -1,7 +1,7 @@
 ---
 title: AI搭載領収書自動処理技術 ABBYYで体験
-date: 2024-08-21 22:23:34
-updated: 2024-08-22 11:12:32
+date: 2024-08-21T15:09:38.170Z
+updated: 2024-08-22T15:09:38.170Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/290af97afad1802ce323c8e9ce6f1c1f031089327fdc749a381a84624fdbd2f2.jpg
@@ -19,6 +19,9 @@ thumbnail: https://thmb.techidaily.com/290af97afad1802ce323c8e9ce6f1c1f031089327
 
 買掛金管理における領収書の処理で、貴重な時間とリソースを無駄にすべきではありません。社員の経費領収書を手作業で処理していると、二重払いなどのエラーが発生したり、監査が遅くなったりするだけでなく、不正のリスクにもさらされてしまいます。ABBYYの経費管理 AI OCRソリューションがあれば、経費精算のプロセスを改善・合理化できます。このソリューションは、すぐに使えて、領収書の処理をすぐに自動化し、正確な経費管理に欠かせない重要データを抽出することができます。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ### 今すぐダウンロード！
 
 ABBYYの経費管理AI OCRソリューションがあれば、経費の記録・追跡・管理が驚くほど容易になります。このパンフレットをダウンロードして、その手法をぜひご確認ください。
@@ -29,12 +32,18 @@ ABBYYの経費管理AI OCRソリューションがあれば、経費の記録・
 * シームレスな会計処理とERPとの連携
 * 予算支出の統括的な管理
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。
 
 [パンフレットを読む](https://digital.abbyy.com/hubfs/documents/content/brochure-ap-expense-management-ja.pdf "パンフレットを読む") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 #### ご質問がおありですか？ [お気軽にABBYYにお問い合わせください。](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

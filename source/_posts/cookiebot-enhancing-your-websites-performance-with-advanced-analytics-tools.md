@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: Enhancing Your Website's Performance with Advanced Analytics Tools"
-date: 2024-08-19 16:48:11
-updated: 2024-08-22 12:16:43
+date: 2024-08-21T15:09:36.507Z
+updated: 2024-08-22T15:09:36.507Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aefba9f0ac6f593076f657b0dfeebc66593ffd1b9ade996e1956601a5424d0a8.jpg
@@ -29,10 +29,16 @@ In this blog post, we want to provide insight into a few of the technology integ
 
 One of the first connector integrations we love is incorporating the ABBYY Vantage experience with a virtual assistant to take the customer journey to the next level. By combining voice, conversational AI, and document intelligence by way of Vantage Document Skills into a unified mobile experience, virtual assistants are able to deliver great service to a customer without needing an agent. Take a look at the [Cognigy](https://www.cognigy.com/) video explaining it below!
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ### Automation of screens and IT operations
 
 [Micro Focus](https://www.microfocus.com/en-us/products/robotic-process-automation/overview) RPA is a powerful automation and orchestration platform that combines screen automation and IT operation steps to automate entire enterprise processes. Orchestrating different IT systems, APIs, and desktop applications is exactly what Micro Focus excels in. With their low-code/no-code design studio, you can create bots to automate tasks with ease. And now, with the additional asset of Vantage Skills, available from within the ABBYY Marketplace, they have just reached a new level of cognitive awareness. Take a look at the video below to see the powerful combination in action!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Smart robots
 
 RPA bots are great for automating simple, repetitive tasks, but imagine if robots could recognize, read, and understand any type of document? [Kryon Systems](https://www.kryonsystems.com/), recognized as “Leader and High Achiever” in the RPA space by NelsonHall, is one of the first ABBYY partners to fully integrate ABBYY Vantage into the Kryon platform. The combined no-code/low-code products enable RPA users to quickly develop robot workflows with the ability to understand and work with documents and images.
@@ -53,6 +59,9 @@ The [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/) offers an 
 
 ![preview ABBYY Marketplace](https://static1.abbyy.com/abbyycommedia/32870/marketplace.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 Do you have a great idea for a new Cognitive skill? Want to build a connector for your platform? Reach out to us and we’ll gladly help you get started!
 
 [Contact us](https://tools.techidaily.com/abbyy/products/)
@@ -65,6 +74,10 @@ Bill Galusha
 
 ![](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 Maxime Vermeir
 
 Senior Director of AI Strategy
@@ -75,8 +88,15 @@ Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 
 ![](https://static4.abbyy.com/abbyycommedia/32000/stefanschmainta-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 Stefan Schmainta
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

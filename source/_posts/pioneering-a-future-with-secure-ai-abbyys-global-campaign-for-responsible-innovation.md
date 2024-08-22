@@ -1,7 +1,7 @@
 ---
 title: "Pioneering a Future with Secure AI: ABBYY's Global Campaign for Responsible Innovation"
-date: 2024-08-19 13:38:20
-updated: 2024-08-22 12:45:42
+date: 2024-08-21T15:09:37.530Z
+updated: 2024-08-22T15:09:37.530Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a24327de3f954b0afa1a21a400dc142c840e7eb4a1e199fa6e8f6bfec8524954.jpg
@@ -81,3 +81,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->

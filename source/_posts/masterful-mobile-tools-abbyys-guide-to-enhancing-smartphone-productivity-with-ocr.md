@@ -1,7 +1,7 @@
 ---
 title: "Masterful Mobile Tools: ABBYY's Guide to Enhancing Smartphone Productivity with OCR"
-date: 2024-08-19 16:33:54
-updated: 2024-08-22 12:51:16
+date: 2024-08-21T15:09:37.505Z
+updated: 2024-08-22T15:09:37.505Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0138e2483878b61786c62e2e9ead335ddaa2649c1800ba21659cf76cde33dc5d.jpg
@@ -51,6 +51,9 @@ And a couple of more perks:
 
 Summing up: [VoiceOver](https://www.apple.com/accessibility/iphone/vision/) helps you to fully control your device without even seeing the screen. The smartphone will tell you what is happening. By the way, all ABBYY-developed apps also support [VoiceOver](https://www.apple.com/accessibility/iphone/vision/), and [TextGrabber](https://textgrabber.app.link/mobilemonday), a must-have for vision-impaired users, is no exception.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ## **Android Tip: Teaching Your Android Phone to Speak**
 
 Smartphones powered by Android are also capable of speaking to their users and guiding them while they navigate the screen.[TalkBack](https://play.google.com/store/apps/details?id=com.google.android.marvin.talkback&hl=en)is specifically designed as a screen reader that provides spoken feedback and announces notifications and other events.
@@ -81,8 +84,14 @@ After activating [TalkBack](https://play.google.com/store/apps/details?id=com.go
 
 ![TalkBack app Android settings](https://static1.abbyy.com/abbyycommedia/26064/android_7_nougat_talkback_fig_10-e1509384740886.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 For more details on [TalkBack](https://play.google.com/store/apps/details?id=com.google.android.marvin.talkback&hl=en) and its capabilities, please visit [this help page](https://support.google.com/accessibility/android/answer/6283677?hl=en). ABBYY TextGrabber for both Android and iOS uses screen reading features to help vision-impaired users. You can also automatically copy the recognized text to the clipboard and listen to it in your headphones or via third-party apps.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **ABBYY Tip: Exporting Business Cards From Business Card Reader**
 
 There are two ways to export business cards from [Business Card Reader](https://bcrfree.app.link/mobilemonday) — as a \*.csv file or through Salesforce (currently works only on iOS). Here’s instructions for iPhone users. The most hassle-free way to do this is as follows:
@@ -92,6 +101,14 @@ There are two ways to export business cards from [Business Card Reader](https://
 
 ![Abbyy Export Business Cards from BCR iOS](https://static1.abbyy.com/abbyycommedia/26065/img_0009-1-e1509384903646.png)
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Busines Card Reader (Scanner) Abbyy](https://static1.abbyy.com/abbyycommedia/26066/image-1-e1509384965944.jpg)
 
 On an Android device:
@@ -103,6 +120,9 @@ On an Android device:
 2. Tap the Share button > select Export to CSV > MS Outlook or Google Contacts.  
 ![](https://static1.abbyy.com/abbyycommedia/37170/mceclip2.png)
 3. The file will be created automatically. Now you can share it with anyone right away!
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
 To open a CSV file with the business cards in MS Excel, choose the file in **File Explorer**. If your system settings prevent the contents of the file from being displayed correctly, do the following:
 
@@ -125,6 +145,9 @@ You can use the list of your results to create reports for employers if you work
 
 But that's not all![Hourly](https://apps.apple.com/us/app/hourly-time-and-task-manager/id1308461936) can also send reminders to take breaks, which is also essential. .
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 And finally, why Hourly?
 
 1. Create an unlimited number of tracking tasks.
@@ -133,6 +156,10 @@ And finally, why Hourly?
 4. User-friendly interface.
 5. Voiceover accessible.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ## **First-Hand Experience:** Advice From a Colleague
 
 _Shared by Anton Zakharenkov, designer_

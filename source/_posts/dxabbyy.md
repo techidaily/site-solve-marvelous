@@ -1,7 +1,7 @@
 ---
 title: 企業に最適なDX加速ツール：ABBYYで導くデジタルインテリジェンス力向上法
-date: 2024-08-21 14:52:30
-updated: 2024-08-22 11:49:40
+date: 2024-08-21T15:09:36.512Z
+updated: 2024-08-22T15:09:36.512Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fc6a682db0e3d4f0e7a82dcc086d1d5b243871658075302bd97663f943820452.jpg
@@ -91,3 +91,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->

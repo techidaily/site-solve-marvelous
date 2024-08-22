@@ -1,7 +1,7 @@
 ---
 title: Adapting Business Operations During COVID-19 Crisis - Key Perspectives From ABBYY
-date: 2024-08-19 12:39:30
-updated: 2024-08-22 12:16:10
+date: 2024-08-21T15:09:38.164Z
+updated: 2024-08-22T15:09:38.164Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b47fd0e753c3df7e85d7c99e9dd6f25592469353c9ed51bdab027cc3c0e36d8f.jpg
@@ -69,6 +69,9 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

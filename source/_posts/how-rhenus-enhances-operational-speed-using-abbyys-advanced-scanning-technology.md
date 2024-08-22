@@ -1,7 +1,7 @@
 ---
 title: How Rhenus Enhances Operational Speed Using ABBYY's Advanced Scanning Technology
-date: 2024-08-21 22:35:42
-updated: 2024-08-22 12:52:21
+date: 2024-08-21T15:09:36.578Z
+updated: 2024-08-22T15:09:36.578Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f26a59464f8e574e044648e6cdc81caf2b237e34a022cd9f7fc07fa743d91c68.jpg
@@ -95,6 +95,11 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

@@ -1,7 +1,7 @@
 ---
 title: Unlocking Features of FineScanner in iOS 12 - Expert Insights From the ABBYY Community
-date: 2024-08-20 15:28:43
-updated: 2024-08-22 11:51:55
+date: 2024-08-21T15:09:38.474Z
+updated: 2024-08-22T15:09:38.474Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/995d8276c073ea6830ba619ba4614fd047fc0375a4d1ae8bef82547a42248f63.jpg
@@ -103,3 +103,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: Empowering User Confidentiality Through PETs | Insights From the ABBYY Perspective
-date: 2024-08-20 13:45:52
-updated: 2024-08-22 11:48:12
+date: 2024-08-21T15:09:38.783Z
+updated: 2024-08-22T15:09:38.783Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a42282b650e186f3549f7d2aa960eb18debb612fb2fb6b24d9d6255bb836b3c7.JPG
@@ -134,3 +134,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->

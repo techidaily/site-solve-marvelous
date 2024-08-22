@@ -1,7 +1,7 @@
 ---
 title: AI Investments Reaching £3M by UK Firms Amidst Strategic Planning Hurdles
-date: 2024-08-21 18:57:43
-updated: 2024-08-22 10:23:26
+date: 2024-08-21T15:09:36.418Z
+updated: 2024-08-22T15:09:36.418Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a413f5ab643b8cf8455ddf8b717ffddc460e77cb815227b37c65333c5c3e3180.jpg
@@ -80,3 +80,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->

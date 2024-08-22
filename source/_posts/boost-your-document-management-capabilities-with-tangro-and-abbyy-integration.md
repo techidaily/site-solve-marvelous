@@ -1,7 +1,7 @@
 ---
 title: Boost Your Document Management Capabilities with Tangro and ABBYY Integration
-date: 2024-08-21 22:45:47
-updated: 2024-08-22 10:11:25
+date: 2024-08-21T15:09:37.661Z
+updated: 2024-08-22T15:09:37.661Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/99216a5fd24020f4e914206166919d3aff0939ed370c089abccf39caae51dc78.jpg
@@ -68,3 +68,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

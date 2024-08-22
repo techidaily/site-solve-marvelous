@@ -1,7 +1,7 @@
 ---
 title: "DataNet Solutions & ABBYY: Accelerate Hospital Accounting with Latest Innovations"
-date: 2024-08-21 13:17:51
-updated: 2024-08-22 11:42:44
+date: 2024-08-21T15:09:36.980Z
+updated: 2024-08-22T15:09:36.980Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8f746ea5ff5f235bd9550c0631527dab7bc233469cd27f4e2765e160c088926b.jpg
@@ -86,3 +86,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->

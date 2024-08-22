@@ -1,7 +1,7 @@
 ---
 title: Cookiebot-Enabled Personalization for Enhanced User Experience
-date: 2024-08-19 13:22:26
-updated: 2024-08-22 10:54:47
+date: 2024-08-21T15:09:36.951Z
+updated: 2024-08-22T15:09:36.951Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a5249e9b13fd437412102feed5c7841b8ccf98fdf0188fbbf3a215fd35680a08.JPG
@@ -38,12 +38,18 @@ The combination of these different technologies is what delivers the results tha
 
 Finally, using intelligent technologies to automate repetitive tasks impacts both employee and customer experience. When staff are empowered to contribute to higher value tasks, their satisfaction grows, contributing to a more positive workplace culture. There is typically less staff turnover, productivity increases, customer service improves, and the entire brand reputation is positively impacted as a result.
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
 ### ABBYY Reaffirms Its Position as An Intelligent Automation Leader
 
 Article
 
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Pinpointing which instrument is out of tune
 
 Just like musicians have sheets of music telling them which notes to play, how fast or slow to play them, and how loud or soft to play them, there are prescribed steps in a business process that must be followed to get the best business outcome. But just as there can be one member of the orchestra that is playing out of tune, there can also be one step in a process that is not following the music, either because of a human mistake, technical difficulties, or other unexpected events.
@@ -54,6 +60,9 @@ Another important benefit of process mining technology is its ability to identif
 
 Process mining can also help organizations to better understand their audience’s or their customers' needs and preferences. By analyzing customer interactions and feedback (Are you getting applause or not?), process mining can reveal areas where the customer audience is not satisfied, providing organizations with the information they need to make improvements and provide a better customer experience in the future–after all, any orchestra is happy if the audience wants an encore.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### The role of the conductor in intelligent automation
 
 The conductor is the strategic decision-maker of the orchestra. The leader stands in front of the teams and signals them when to start and stop playing; he indicates changes in tempo, dynamics, and expression. An excellent intelligent automation conductor needs to be someone who excels with technical and artistic skills, as well as strong leadership qualities, and has the right strategy in place.
@@ -68,6 +77,9 @@ An automation leader in a company knows which instruments from the orchestra are
 
 ![Gabrielle Lukianchuk 110X110 (1)](https://static1.abbyy.com/abbyycommedia/37002/gabrielle-lukianchuk_110x110-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Gabrielle Lukianchuk
 
 Chief Marketing Officer at ABBYY
@@ -76,12 +88,18 @@ Gabrielle Lukianchuk is the Chief Marketing Officer at ABBYY where she oversees 
 
 Connect with Gabrielle on [LinkedIn](https://www.linkedin.com/in/gabriellelukianchuk/).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### Additional Insights:
 
 1 / 3 
 
 [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![The Changing Role of the Finance Leader](https://static5.abbyy.com/abbyycommedia/37012/finance_1134322021_848x444.jpg) **The Changing Role of the Finance Leader** Read more](https://tools.techidaily.com/abbyy/products/) [![Three Ways AI Is Making Employees Happier](https://static2.abbyy.com/abbyycommedia/36944/ai_happier_employees_1160730188_848x444.jpg) **Three Ways AI Is Making Employees Happier** Read more](https://tools.techidaily.com/abbyy/products/) [![Welcome to The Intelligent Enterprise](https://static5.abbyy.com/abbyycommedia/37545/ulf-848x444-slate.png) **Welcome to The Intelligent Enterprise** Read more](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 #### Subscribe for updates
 
 Get updated on the latest insights and perspectives for business & technology leaders

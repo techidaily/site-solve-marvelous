@@ -1,7 +1,7 @@
 ---
 title: Neuer Methodik Von ABBYY Für Die Präzise Einordnung Von Schriftstücken
-date: 2024-08-20 18:35:52
-updated: 2024-08-22 12:32:46
+date: 2024-08-21T15:09:37.117Z
+updated: 2024-08-22T15:09:37.117Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7b81e5a1677e5963f8851410568bf197590afb5724fdd9ea66669ac914b2f944.jpg
@@ -92,3 +92,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

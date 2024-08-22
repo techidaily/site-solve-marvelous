@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Cloud Services Agreement: Comprehensive Terms & Conditions Including EU Data Protection Regulation Compliance"
-date: 2024-08-20 20:12:33
-updated: 2024-08-22 10:25:54
+date: 2024-08-21T15:09:36.385Z
+updated: 2024-08-22T15:09:36.385Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0313aeb6801c4ad054aee4b20ba488ff337dac52c595922f616f6d67ab2cd3c7.jpg
@@ -1120,6 +1120,9 @@ c. A data subject may also bring legal proceedings against the data exporter and
 
 d. The Parties agree to submit themselves to the jurisdiction of such courts. 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ### APPENDIX
 
 **EXHIBIT I.A - LIST OF PARTIES**

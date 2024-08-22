@@ -1,7 +1,7 @@
 ---
 title: "Driven with Advanced Data Protection: The Power of Cookiebot Technology"
-date: 2024-08-20 19:29:38
-updated: 2024-08-22 12:41:37
+date: 2024-08-21T15:09:36.996Z
+updated: 2024-08-22T15:09:36.996Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/346f1b42c3595ddf32b42f331ce9c1b3e2f2115976dbfc26ef5bc200fbe009cd.jpg
@@ -23,6 +23,9 @@ Finance/Banking | Mobile Capture
 
 Banques et Finance | Capture mobile 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

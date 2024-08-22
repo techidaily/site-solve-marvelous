@@ -1,7 +1,7 @@
 ---
 title: "AI-Powered ABBYY OCR: Cutting Invoice Handling Time Down by Up to 90%%"
-date: 2024-08-19 15:14:55
-updated: 2024-08-22 12:47:54
+date: 2024-08-21T15:09:36.881Z
+updated: 2024-08-22T15:09:36.881Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/23a59a3978673a4d0acc00d7490f94438fabe3807b22b448117c81f2ee19fda7.jpg
@@ -41,3 +41,7 @@ CASE STUDY | TRANSPORTATION & LOGISTICS Challenge • Streamlining customs clear
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->

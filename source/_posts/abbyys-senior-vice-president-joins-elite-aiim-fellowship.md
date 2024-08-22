@@ -1,7 +1,7 @@
 ---
 title: ABBYY's Senior Vice President Joins Elite AIIM Fellowship
-date: 2024-08-19 23:45:47
-updated: 2024-08-22 12:32:55
+date: 2024-08-21T15:09:37.625Z
+updated: 2024-08-22T15:09:37.625Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f75585e4daf78953dd0ce1cfd0b26209fab1e9c588003fe7de564148a8e3e23c.jpg
@@ -61,3 +61,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: ABBYYとFRONTEO、法律知識の深化を目指して手を取り合う
-date: 2024-08-20 13:18:36
-updated: 2024-08-22 11:45:24
+date: 2024-08-21T15:09:36.861Z
+updated: 2024-08-22T15:09:36.861Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f86f99b6d8051e2301c0b59b59f0f49d547931786fc3f8df51522ef8e8e5d47b.jpg
@@ -51,3 +51,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->

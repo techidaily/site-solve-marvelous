@@ -1,7 +1,7 @@
 ---
 title: "Experience Customized Content Delivery: The Power of the Latest Cookiebot Solutions"
-date: 2024-08-19 20:29:52
-updated: 2024-08-22 10:50:25
+date: 2024-08-21T15:09:38.831Z
+updated: 2024-08-22T15:09:38.831Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/be8ed6a4e78ad75b0aa927e5deab19fb5e1ff02b9f258c0a63e3b6ef48739db7.jpg
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/be8ed6a4e78ad75b0aa927e5deab19fb5e1ff02b9
 
 Transform documents and unstructured content automatically into actionable data to improve customer experience and operations.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Integrate ABBYY FlexiCapture and FlexiCapture for Invoices to Bizagi
 
 The ABBYY FlexiCapture Connector for Bizagi provides the integration between FlexiCapture and FlexiCapture for Invoices and the Bizagi platform, enabling users to transform documents and unstructured content automatically into actionable data to make Bizagi processes smarter.

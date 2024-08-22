@@ -1,7 +1,7 @@
 ---
 title: "Official Statement by Ulf Persson on COVID-19 as CEO of ABBYY Group: Insights and Updates"
-date: 2024-08-19 23:53:35
-updated: 2024-08-22 12:58:59
+date: 2024-08-21T15:09:37.509Z
+updated: 2024-08-22T15:09:37.509Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8defa02626cc56415dc50f7d54a716fd558d3dd721a0ce14cdc43e33e2f2d6de.jpg
@@ -46,3 +46,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

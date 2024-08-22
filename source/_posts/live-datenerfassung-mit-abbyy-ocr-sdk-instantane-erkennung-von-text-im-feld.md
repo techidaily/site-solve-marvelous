@@ -1,7 +1,7 @@
 ---
 title: Live-Datenerfassung Mit ABBYY OCR SDK - Instantane Erkennung Von Text Im Feld
-date: 2024-08-21 17:51:13
-updated: 2024-08-22 10:44:19
+date: 2024-08-21T15:09:38.336Z
+updated: 2024-08-22T15:09:38.336Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/428d79f8e22b19bf05f42dd0977639aed1e84dacf346522fdfb1811e179afc16.jpg
@@ -85,3 +85,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

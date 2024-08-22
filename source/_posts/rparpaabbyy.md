@@ -1,7 +1,7 @@
 ---
 title: RPA技術の先駆者：日商エレ、RPAテクノロジーズ、ABBYYジャパンの新たな提携
-date: 2024-08-19 15:13:53
-updated: 2024-08-22 11:15:15
+date: 2024-08-21T15:09:37.141Z
+updated: 2024-08-22T15:09:37.141Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/42a3217d9873863c48091846f5f8a9e9b9b6456440b499628df593e7d229a025.jpg
@@ -95,3 +95,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

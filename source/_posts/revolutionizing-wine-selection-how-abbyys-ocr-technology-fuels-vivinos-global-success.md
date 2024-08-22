@@ -1,7 +1,7 @@
 ---
 title: "Revolutionizing Wine Selection: How ABBYY's OCR Technology Fuels Vivino's Global Success"
-date: 2024-08-20 10:13:57
-updated: 2024-08-22 10:21:42
+date: 2024-08-21T15:09:38.395Z
+updated: 2024-08-22T15:09:38.395Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/29d02750ad0cb057d82cf1dca19da27d5429074e0ee73dae3abc4f97673bc3bc.jpg
@@ -35,6 +35,9 @@ ABBYY UK is a member of the ABBYY Group and supports sales and marketing activit
 
 _ABBYY, the ABBYY Logo, FineReader, ADRT, FlexiCapture, and FlexiLayout are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognised._
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### For more information, please contact:
 
 ABBYY Europe GmbH
@@ -49,6 +52,9 @@ E-Mail: press\_eu@abbyy.com
 
 Web: [www.ABBYY.com](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### About Vivino
 
 Founded in Copenhagen in 2010, Vivino offers everyday wine consumers a way to track, discover and share their wine experiences via the Vivino App. But Vivino is not just another wine app. It is the fastest and easiest way for consumers to access the wines of the world by connecting consumers and wineries globally. 11.5 million people are already Vivino'ing it - changing the way we wine.

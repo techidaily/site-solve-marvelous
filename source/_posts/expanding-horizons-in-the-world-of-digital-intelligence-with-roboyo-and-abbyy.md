@@ -1,7 +1,7 @@
 ---
 title: Expanding Horizons in the World of Digital Intelligence with Roboyo and ABBYY
-date: 2024-08-21 10:27:26
-updated: 2024-08-22 12:17:59
+date: 2024-08-21T15:09:37.815Z
+updated: 2024-08-22T15:09:37.815Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e1a2efe9bf1f732226416442fb362e8363cdb8595c634b883b7def7759d3266e.jpg
@@ -70,3 +70,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

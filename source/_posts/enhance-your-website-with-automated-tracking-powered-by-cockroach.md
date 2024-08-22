@@ -1,7 +1,7 @@
 ---
 title: "Enhance Your Website with Automated Tracking: Powered by Cockroach"
-date: 2024-08-21 21:59:50
-updated: 2024-08-22 12:51:57
+date: 2024-08-21T15:09:38.806Z
+updated: 2024-08-22T15:09:38.806Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8e48b2813408b75482794fbb8e9c7fd16cd8c115a0a176db85647e2b441ce187.jpg
@@ -53,3 +53,7 @@ The URLs of the FlexiCapture SaaS and REST API servers used for the API calls va
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->

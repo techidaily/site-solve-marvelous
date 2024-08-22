@@ -1,7 +1,7 @@
 ---
 title: ABBYY Réalise Sustains Double-Digit Growth Streak for Third Consecutive Year
-date: 2024-08-20 23:27:50
-updated: 2024-08-22 11:37:17
+date: 2024-08-21T15:09:37.614Z
+updated: 2024-08-22T15:09:37.614Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ab68550bed8939ff878aaece9b28e90d8b0465006aaa80a48dab2ef20ecc47cd.jpg
@@ -75,3 +75,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: Linda Ameur Ascend as New Director-General of Commerce at ABBYY France – Latest News
-date: 2024-08-19 14:35:16
-updated: 2024-08-22 11:59:54
+date: 2024-08-21T15:09:37.491Z
+updated: 2024-08-22T15:09:37.491Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0e8b59a0a7e5a9b9173ae5feaad5ddb56b135eee3ed22a8b3f83cf8fa8dfaeb8.jpg
@@ -62,3 +62,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->

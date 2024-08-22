@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Innovates: Unveils State-of-the-Art Indian R&D Hub"
-date: 2024-08-20 18:24:19
-updated: 2024-08-22 11:14:17
+date: 2024-08-21T15:09:37.609Z
+updated: 2024-08-22T15:09:37.609Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/91715213b833560df5357cf6515828851bc7618f2025585b01b64f73f1ad8f14.jpg
@@ -61,3 +61,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

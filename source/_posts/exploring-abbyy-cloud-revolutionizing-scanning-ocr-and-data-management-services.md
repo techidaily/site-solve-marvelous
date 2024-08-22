@@ -1,7 +1,7 @@
 ---
 title: "Exploring Abbyy Cloud: Revolutionizing Scanning, OCR & Data Management Services"
-date: 2024-08-19 22:46:58
-updated: 2024-08-22 11:40:31
+date: 2024-08-21T15:09:37.878Z
+updated: 2024-08-22T15:09:37.878Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d072f3ff8286e2183bcf11f3041ab0808200f5d6d9c5020bae5284cc57e5741b.jpg
@@ -810,3 +810,7 @@ e) If You disclose modifications made to Code Samples by sending them to ABBYY t
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->

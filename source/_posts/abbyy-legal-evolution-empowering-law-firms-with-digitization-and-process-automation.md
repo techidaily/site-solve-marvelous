@@ -1,7 +1,7 @@
 ---
 title: ABBYY Legal Evolution - Empowering Law Firms with Digitization & Process Automation
-date: 2024-08-19 21:37:39
-updated: 2024-08-22 12:57:38
+date: 2024-08-21T15:09:38.505Z
+updated: 2024-08-22T15:09:38.505Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/12bebdcee4292f456ae693e07b507d42d27bcfe897e62f47668299d0542c70dd.jpg
@@ -77,3 +77,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->

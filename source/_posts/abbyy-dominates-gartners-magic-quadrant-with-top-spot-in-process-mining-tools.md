@@ -1,7 +1,7 @@
 ---
 title: ABBYY Dominates Gartner's Magic Quadrant with Top Spot in Process Mining Tools
-date: 2024-08-20 19:45:12
-updated: 2024-08-22 11:29:33
+date: 2024-08-21T15:09:38.500Z
+updated: 2024-08-22T15:09:38.500Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f4ca93c2e74735632031e3a4405d77d7b0983d4143ac728b22e36df439e2bb35.jpg
@@ -69,3 +69,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->

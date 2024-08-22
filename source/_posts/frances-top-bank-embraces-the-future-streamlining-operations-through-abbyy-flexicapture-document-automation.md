@@ -1,7 +1,7 @@
 ---
 title: "France's Top Bank Embraces the Future: Streamlining Operations Through ABBYY FlexiCapture Document Automation"
-date: 2024-08-21 11:13:38
-updated: 2024-08-22 12:28:10
+date: 2024-08-21T15:09:37.446Z
+updated: 2024-08-22T15:09:37.446Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/029ba41f4072a625a12663e242fe0241f864e3cc7e4fb5de060add9d7faf8df5.jpg
@@ -99,6 +99,9 @@ The introduction of this integrated solution enables the credit department at Ca
 
 Share  True ?  : "" 
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

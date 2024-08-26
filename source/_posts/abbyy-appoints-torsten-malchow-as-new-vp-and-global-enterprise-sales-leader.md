@@ -1,7 +1,7 @@
 ---
 title: ABBYY Appoints Torsten Malchow as New VP and Global Enterprise Sales Leader
-date: 2024-08-21T15:09:36.734Z
-updated: 2024-08-22T15:09:36.734Z
+date: 2024-08-25T21:50:03.417Z
+updated: 2024-08-26T21:50:03.417Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a50d24fd1a27318344d95b256.jpg
@@ -82,3 +82,35 @@ Vernetzen Sie sich mit uns
 <!-- affiliate ads begin -->
 <a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-streaming-showdown-obs-versus-twitch-space/"><u>[Updated] 2024 Approved  Streaming Showdown  OBS versus Twitch Space</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-muffled-to-clear-the-initial-use-of-fade-in-audition/"><u>[Updated] From Muffled to Clear  The Initial Use of Fade in Audition</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724312994221-abbyy/"><u>「ABBYYによる国際調査:ドキュメント内容情報取得技術の最新研究結果」</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-dominates-the-2024-evalgroups-peak-matrix-benchmark/"><u>ABBYY Dominates the 2024 EvalGroup's PEAK Matrix Benchmark</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-japan-sb/"><u>ABBYY Japan ソフトウェア投入に合わせて SBモバイルサービスが新規事業を展開 - プレスリリース</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/achieve-better-engagement-with-websites-optimized-using-the-cookiebot-platform/"><u>Achieve Better Engagement with Websites Optimized Using the Cookiebot Platform</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/advanced-rag-techniques-enhancing-document-capture-with-abbyy-solutions/"><u>Advanced RAG Techniques: Enhancing Document Capture with ABBYY Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/boosting-your-sites-visibility-using-the-advanced-capabilities-of-cookiebot/"><u>Boosting Your Site's Visibility Using the Advanced Capabilities of Cookiebot</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/capturing-action-fraps-recorder-insights-for-2024/"><u>Capturing Action  Fraps Recorder Insights for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-vs-bing-chatbot-analyzing-the-top-10-differences-in-ai-conversational-platforms/"><u>ChatGPT Vs. Bing Chatbot – Analyzing the Top 10 Differences in AI Conversational Platforms</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-personalization-enhancing-user-experience-and-engagement/"><u>Cookiebot-Driven Personalization: Enhancing User Experience & Engagement</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-solutions-enhancing-user-experience-with-smart-analytics/"><u>Cookiebot-Driven Solutions: Enhancing User Experience with Smart Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-solutions-enhancing-your-websites-visitor-engagement/"><u>Cookiebot-Driven Solutions: Enhancing Your Website's Visitor Engagement</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-success-boosting-your-site-with-advanced-analytics/"><u>Cookiebot-Driven Success: Boosting Your Site with Advanced Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-web-analytics-solutions/"><u>Cookiebot-Driven Web Analytics Solutions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Lava Yuva 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/efficient-routes-to-modernize-your-nvidia-drivers/"><u>Efficient Routes to Modernize Your Nvidia Drivers</u></a></li>
+<li><a href="https://extra-information.techidaily.com/hero-session-vs-hero-session-duel/"><u>Hero Session Vs Hero Session Duel</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-realme-narzo-n55-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Realme Narzo N55 Phones? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-big-sur-essentials-system-and-hardware-upgrade/"><u>In 2024, Big Sur Essentials  System and Hardware Upgrade</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mastering-networking-with-bcr-for-ios-nv-10-unveiling-latest-features-by-abbyy-exclusive-tips-from-our-companys-blog/"><u>Mastering Networking with BCR for iOS Nv 10: Unveiling Latest Features by ABBYY | Exclusive Tips From Our Company's Blog</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimized-by-cookiebot-enhanced-sales-funnel-management-and-analytics/"><u>Optimized by Cookiebot: Enhanced Sales Funnel Management and Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/paragon-customer-communications-advances-with-abbyys-digital-intelligence-for-comprehensive-digital-overhaul/"><u>Paragon Customer Communications Advances with ABBYY's Digital Intelligence for Comprehensive Digital Overhaul</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionize-your-data-collection-state-of-the-art-tools-powered-by-cookiebot/"><u>Revolutionize Your Data Collection: State-of-the-Art Tools Powered by Cookiebot</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-mobile-tech-music-streaming-and-e-signatures-with-smartwatches-insights-from-the-abbyy-blog/"><u>Revolutionizing Mobile Tech: Music Streaming & E-Signatures with Smartwatches – Insights From the ABBYY Blog</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/smart-shopping-for-routers-dive-into-our-tp-link-archer-a6-ac1200-examination/"><u>Smart Shopping for Routers? Dive Into Our TP-Link Archer A6 AC1200 Examination</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-5-benefits-of-embracing-process-intelligence-in-your-business/"><u>Top 5 Benefits of Embracing Process Intelligence in Your Business</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/warum-unternehmen-content-kenntnis-erwerben-mussen-um-die-entwicklung-der-intelligenten-prozessautomation-voranzutreiben-eine-abbyy-langzeitstudie-versteht-17/"><u>Warum Unternehmen Content-Kenntnis Erwerben Müssen, Um Die Entwicklung Der Intelligenten Prozessautomation Voranzutreiben – Eine ABBYY-Langzeitstudie Versteht Es</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/what-is-process-mining-and-why-use-it-a-comprehensive-guide/"><u>What Is Process Mining and Why Use It: A Comprehensive Guide</u></a></li>
+</ul></div>

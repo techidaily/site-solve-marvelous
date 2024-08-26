@@ -1,7 +1,7 @@
 ---
 title: Global Sales Surge by 15%% in ABBYY's 2018 Annual Performance - Official Statement
-date: 2024-08-21T15:09:36.558Z
-updated: 2024-08-22T15:09:36.558Z
+date: 2024-08-25T21:49:44.477Z
+updated: 2024-08-26T21:49:44.477Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/33904527a6e1718a50027f53fe767c2c1eedacdbdef4cb5558c43f077a848c48.jpg
@@ -67,3 +67,43 @@ Connect with us
 <!-- affiliate ads begin -->
 <a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
 <!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-maximizing-channel-visibility-banner-size-and-art-dimensions-explained/"><u>[New] In 2024, Maximizing Channel Visibility  Banner Size and Art Dimensions Explained</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-from-streamers-to-millionaires-the-monetization-blueprint/"><u>2024 Approved  From Streamers to Millionaires  The Monetization Blueprint</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-paving-the-way-for-profitable-sponsorships-with-online-influencers/"><u>2024 Approved  Paving the Way for Profitable Sponsorships with Online Influencers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-snap-with-precision-essential-camera-angles-for-images/"><u>2024 Approved  Snap with Precision  Essential Camera Angles for Images</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/dxabbyy/"><u>企業に最適なDX加速ツール：ABBYYで導くデジタルインテリジェンス力向上法</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-at-the-joint-conference-on-shared-services-and-outsourcing/"><u>ABBYY at the Joint Conference on Shared Services & Outsourcing</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-clinches-top-position-in-gartners-2023-magic-quadrant-for-advanced-process-mining-solutions/"><u>ABBYY Clinches Top Position in Gartner's 2023 Magic Quadrant for Advanced Process Mining Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-cloud-services-agreement-comprehensive-terms-and-conditions-including-eu-data-protection-regulation-compliance/"><u>ABBYY Cloud Services Agreement: Comprehensive Terms & Conditions Including EU Data Protection Regulation Compliance</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-flexicapture-ai/"><u>ABBYY FlexiCapture - AI駆使した最先端の帳票自動認識プラットフォームについて学ぶ</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-sdk-solutions-for-revolutionizing-package-processing-in-the-transport-industry-insights-from-the-abbyy-blog/"><u>ABBYY SDK Solutions for Revolutionizing Package Processing in the Transport Industry: Insights From the ABBYY Blog</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyypwcaiocr/"><u>ABBYYとPwCコンサルティングがAI・OCR技術による新しいパートナーシップを結ぶ</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ace-the-sky-best-drones-and-their-precision-editing-companions/"><u>Ace the Sky  Best Drones & Their Precision Editing Companions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/ai-investments-reaching-3m-by-uk-firms-amidst-strategic-planning-hurdles/"><u>AI Investments Reaching £3M by UK Firms Amidst Strategic Planning Hurdles</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/boost-web-analytics-with-cookiebot-integration-optimize-user-experience-effectively/"><u>Boost Web Analytics with Cookiebot Integration – Optimize User Experience Effectively</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/boosting-online-engagement-with-advanced-cookiebot-technology/"><u>Boosting Online Engagement with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-your-iphone-13-pro-max-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From your iPhone 13 Pro Max</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cliche-de-la-reussite-decouvrez-les-cinq-moments-cles-vers-le-numerisme-chez-abbyy/"><u>Cliché De La Réussite: Découvrez Les Cinq Moments Clés Vers Le Numérisme Chez ABBYY!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/comparaison-du-serieux-des-differents-domaines-selon-abbyy-quel-domaine-est-le-plus-rigoureux/"><u>Comparaison Du Sérieux Des Différents Domaines Selon ABBYY : Quel Domaine Est Le Plus Rigoureux ?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-automation-streamline-your-marketing-campaigns/"><u>Cookiebot-Driven Automation: Streamline Your Marketing Campaigns</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-customization-enhance-your-websites-personalization/"><u>Cookiebot-Driven Customization: Enhance Your Website's Personalization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-solutions-optimize-your-websites-performance/"><u>Cookiebot-Driven Solutions: Optimize Your Website's Performance</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-success-enhance-your-site-with-smart-tracking/"><u>Cookiebot-Driven Success: Enhance Your Site with Smart Tracking</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-website-personalization-enhance-user-engagement/"><u>Cookiebot-Driven Website Personalization: Enhance User Engagement</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhance-your-sites-user-engagement-with-smart-analytics/"><u>Cookiebot-Enabled: Enhance Your Site's User Engagement with Smart Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724312954176-cookiebot-enabled-enhance-your-websites-user-experience-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's User Experience & Tracking</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724313307643-cookiebot-enabled-optimized-data-collection-and-consent-management/"><u>Cookiebot-Enabled: Optimized Data Collection & Consent Management</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhancing-your-websites-performance-with-advanced-analytics-tools/"><u>Cookiebot: Enhancing Your Website's Performance with Advanced Analytics Tools</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/data-redemption-demystified-insights-from-a-leading-expert-singh/"><u>Data Redemption Demystified: Insights From a Leading Expert, Singh</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-conversion-rates-discover-the-power-of-cookiebot-analytics/"><u>Enhance Conversion Rates: Discover the Power of Cookiebot Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-web-traffic-insights-with-advanced-cookiebot-solutions/"><u>Enhance Web Traffic Insights with Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-enable-windows-hello-authentication-on-incompatible-windows-10-systems/"><u>How To Enable Windows Hello Authentication on Incompatible Windows 10 Systems</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Oppo K11x? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/next-level-immersion-top-10-innovative-pc-vr-headsets-for-360-views-for-2024/"><u>Next-Level Immersion  Top 10 Innovative PC VR Headsets for 360 Views for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-vivo-y36i-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Vivo Y36i Phone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlocking-website-potential-with-cookiebot-technology/"><u>Unlocking Website Potential with Cookiebot Technology</u></a></li>
+</ul></div>

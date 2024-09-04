@@ -1,7 +1,7 @@
 ---
 title: "Efficient Data Capture with ABBYY: Integrating FlexiCapture and Laserfiche Technologies"
-date: 2024-08-25T21:52:50.383Z
-updated: 2024-08-26T21:52:50.383Z
+date: 2024-09-03T22:44:23.596Z
+updated: 2024-09-04T22:44:23.596Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fe155e10fd0f0b362a89d3816e5304905834b00a072a292f551331a265718bf7.jpg
@@ -24,7 +24,10 @@ Laserfiche Enterprise Content Management（ECM）システムは、企業のデ�
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-onboarding/overview-image.jpg?h=716&iar=0&w=1272)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## ABBYYとLaserficheがどう連携するか 
 
@@ -33,7 +36,10 @@ FlexiCapture for Laserficheは、文書やメールに含まれる貴重なデ�
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/timeline/timeline_overview_2.jpg?h=716&iar=0&w=1272)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 * さまざまな種類、構造、内容の文書を自動的に取り込みます。取り込みは、文書が複合機、メール、社内データベース、クラウドアプリケーションなどで受信した時点で行われます。
 * FlexiCaptureは、タイプやタグでこれらの文書をインデックス化し、必要なデータ抽出を行い、ビジネスにとって重要なデータをLaserficheのリポジトリやワークフローにエクスポートします。
@@ -41,7 +47,10 @@ FlexiCapture for Laserficheは、文書やメールに含まれる貴重なデ�
 * Laserfiche Enterprise Content Management（ECM）システムには、すぐに検索・使用可能な文書が保存されるので、簡単に文書にアクセス、活用可能です。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 連携するメリット 
 
@@ -58,7 +67,16 @@ FlexiCapture for Laserficheは、文書やメールに含まれる貴重なデ�
 フレキシブルでカスタマイズ可能なFlexiCaptureは、すべての文書処理シナリオに対応しており、あらゆる企業のワークフローや規制に合わせて調整することができます。 1日に10万ページの処理から100万ページ以上の処理へのスケールアップも容易です。
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<span id="1983549">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 専門家に相談してみませんか？
 

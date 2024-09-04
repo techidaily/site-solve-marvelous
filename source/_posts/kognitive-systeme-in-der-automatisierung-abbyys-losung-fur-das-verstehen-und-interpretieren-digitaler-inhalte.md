@@ -1,7 +1,7 @@
 ---
 title: "Kognitive Systeme in Der Automatisierung: ABBYYS Lösung Für Das Verstehen Und Interpretieren Digitaler Inhalte"
-date: 2024-08-25T21:51:27.229Z
-updated: 2024-08-26T21:51:27.229Z
+date: 2024-09-03T22:44:22.076Z
+updated: 2024-09-04T22:44:22.076Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/41b7aeaec3f38e6779f59edeed637c2eed317552b4a02a1bbb1edeefc3cb4d99.jpg
@@ -20,7 +20,10 @@ Whitepaper
 Durch die aktuellen Ereignisse ist der Druck auf Unternehmen, die digitale Transformation in ihre strategischen Pläne aufzunehmen, gestiegen. Mit dem Aufkommen von Low-Code- und No-Code-Entwicklungsplattformen entstand die neue Tätigkeit des Laienentwicklers. Technologien wie RPA waren für die ersten Phasen der digitalen Transformation vieler Unternehmen maßgeblich. Unternehmen entwickeln sich jetzt schnell und mit neuer Dringlichkeit weiter, um komplexere, hochwertigere Prozesse zu analysieren und zu automatisieren. Diese wichtigen Prozesse betreffen häufig auch Kunden und beinhalten unweigerlich unstrukturierte Inhalte, die intelligent verarbeitet werden müssen.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Jetzt herunterladen!
 
@@ -34,7 +37,10 @@ Laden Sie dieses Whitepaper herunter und erfahren Sie mehr über:
 Lesen Sie dieses Whitepaper, um zu erfahren, wie ABBYY Vantage als intelligente Plattform für die intelligente Dokumentenverarbeitung diesen Bedarf lösen kann. Die Plattform fügt sich in das neue Paradigma der benutzerfreundlichen No-Code- / Low-Code-Implementierung ein, ist auf Laienentwickler abgestimmt und ermöglicht die Integration in RPA- und BPM-Plattformen. Sie erfahren auch, wie Sie wiederverwendbare Komponenten aus dem ABBYY Marketplace schnell in neuen Automatisierungsinitiativen einsetzen können, um innerhalb kurzer Zeit sichtbare Geschäftsergebnisse zu erzielen.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Danke für Ihr Interesse an ABBYY.
 
@@ -43,7 +49,10 @@ Lesen Sie dieses Whitepaper, um zu erfahren, wie ABBYY Vantage als intelligente 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 

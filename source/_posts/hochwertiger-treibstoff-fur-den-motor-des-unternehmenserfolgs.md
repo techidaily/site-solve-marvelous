@@ -1,7 +1,7 @@
 ---
 title: Hochwertiger Treibstoff Für Den Motor Des Unternehmenserfolgs
-date: 2024-08-25T21:53:02.669Z
-updated: 2024-08-26T21:53:02.669Z
+date: 2024-09-03T22:44:23.799Z
+updated: 2024-09-04T22:44:23.799Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f080364c9fd10c7a5fc9c9d8f37fc816490a2b5446a3998c55dc9f0ed4866d4c.jpg
@@ -26,7 +26,10 @@ Engineering & Manufacturing | Document Management
 Zweiradspezialist Prophete hat sich seit seiner Gründung 1908 von einer kleinen Fahrradwerkstatt zu einem der führenden Hersteller und Großhandelsunternehmer entwickelt. Diesen Erfolg verdankt der Mittelständler nicht zuletzt seiner exzellenten Servicequalität und vorbildlichen Logistik. Ein elektronisches Unternehmensarchiv spielt dabei eine Schlüsselrolle, da die Bearbeitung der eingehenden Dokumentenströme von den zahlreichen Verwaltungen automatisiert wird. Um dies zu erreichen wandte sich Prophete an zwei Anbieter - an DocuWare wegen ihres Dokumenten Management Systems und an ABBYY wegen ihrer Data Capture Technologie.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Der Hintergrund
 
@@ -35,7 +38,10 @@ Um sich langfristig erfolgreich am Markt zu behaupten, müssen Firmen ihren Foku
 Um in mehreren Prophete Standorten auf dieselben Dokumente zugreifen zu können, mussten pro Tag mehrere Faxe mit allen Arten von Daten – von Kundengutachten bis hin zu Rechnungen – ausgetauscht werden. Was mit ein paar Faxen begann, wurde schnell zu einer regelrechten Sturmflut an Dokumenten, wodurch pro Tag bis zu 4.000 Dokumente verschiedenster Art bearbeitet werden mussten. Mit der Zeit entwickelte sich dies zu einem schnell wachsenden und undurchschaubaren Berg an Papier, welcher die Effizienz und Geschwindigkeit, mit der die Angestellten ihre Arbeit ausführen konnten, enorm beeinträchtigte. „Die kontinuierliche Vergrößerung unseres Unternehmens, nicht zuletzt durch Firmenübernahmen an unterschiedlichen Standorten in ganz Deutschland, machte ein zentrales Controlling zunehmend schwieriger“, erläutert Christian Grochtmann, Leiter Controlling und verantwortlicher DMS-Projektleiter. „Ausschlaggebend für die Implementierung eines elektronischen Archivs war jedoch der Wunsch, zentrale Geschäftsprozesse kontinuierlich zu verbessern.“ 
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Die Lösung
 
@@ -49,7 +55,16 @@ Ausschlaggebend für den Einsatz der ABBYY-Lösung waren die hohen Erkennungsrat
 „Es geht darum, bei den täglich etwa 100 eintreffenden Belastungsanzeigen eine automatische Kopfdatenerfassung durchzuführen, das heißt, innerhalb des Dokuments nach Kundennummer, Rechnungsnummer, Betrag usw. zu suchen. Nach erfolgreicher Analyse werden die digitalisierten Dokumente dann kategorisiert und archiviert. Durch die Archivierung wird automatisch ein Workflow gestartet, der die weitere Bearbeitung dieser Belastungsanzeige bis hin zu der Verbuchung der Zahlung ermöglicht“, erläutert Grochtmann. Der Arbeitsaufwand ist deutlich geringer geworden. Für die Erfassung der 100 Belastungsanzeigen – im Schnitt werden bei einer Anzeige acht Felder ausgelesen – würde ein Mitarbeiter rund 1,5 Stunden benötigen. Durch den Einsatz von ABBYY FlexiCapture wird allein hier circa eine Mannstunde pro Arbeitstag eingespart. Für Prophete bedeutet das nicht nur eine zeitliche Ersparnis, sondern auch, dass Prophete seinen Kunden einen exzellenten Service bieten kann!
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<span id="1424531">
+					<video width="540" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Fazit
 
@@ -58,7 +73,10 @@ Ausschlaggebend für den Einsatz der ABBYY-Lösung waren die hohen Erkennungsrat
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Über ABBYY und Kontaktmöglichkeiten
 
@@ -69,7 +87,10 @@ Ausschlaggebend für den Einsatz der ABBYY-Lösung waren die hohen Erkennungsrat
 Teilen 
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 

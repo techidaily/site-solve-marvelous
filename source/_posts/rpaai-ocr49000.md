@@ -1,7 +1,7 @@
 ---
 title: RPAと融合したAI OCRテクノロジーで、年間約4万9000時間を省き業務効率革新
-date: 2024-08-25T21:51:38.717Z
-updated: 2024-08-26T21:51:38.717Z
+date: 2024-09-03T22:44:22.276Z
+updated: 2024-09-04T22:44:22.276Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/255abe49d787e06c0ed6c6f504e1d68fdfd70d2804f8cd2447f9f7cced35cd22.jpg
@@ -128,7 +128,10 @@ DXの必要性が謳われ、多くの企業がDXに取り組んでいるが、�
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 専門家に相談する準備はできていますか?
 

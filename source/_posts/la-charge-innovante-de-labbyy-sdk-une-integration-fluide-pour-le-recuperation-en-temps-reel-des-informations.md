@@ -1,7 +1,7 @@
 ---
 title: "La Charge Innovante De L'ABBYY SDK: Une Intégration Fluide Pour Le Récupération en Temps Réel Des Informations"
-date: 2024-08-25T21:50:35.336Z
-updated: 2024-08-26T21:50:35.336Z
+date: 2024-09-03T22:44:21.257Z
+updated: 2024-09-04T22:44:21.257Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2e81f992123e17db59f89c6842ca48bb426d509215d95604071818ec4e7dc281.jpg
@@ -95,9 +95,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://screen-capture.techidaily.com/new-effortless-techniques-for-lenovo-capture-tasks-for-2024/"><u>[New] Effortless Techniques for Lenovo Capture Tasks for 2024</u></a></li>
@@ -151,3 +148,16 @@ Connect with us
 <li><a href="https://remote-screen-capture.techidaily.com/ultimate-software-showdown-winning-windows-10-video-grabbers/"><u>Ultimate Software Showdown  Winning Windows 10 Video Grabbers</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/unleashing-growth-potential-with-the-power-of-cookiebot-technology-for-sites/"><u>Unleashing Growth Potential with the Power of Cookiebot Technology for Sites</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="150" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

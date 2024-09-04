@@ -1,7 +1,7 @@
 ---
 title: "Pioneering a Future with Secure AI: ABBYY's Global Campaign for Responsible Innovation"
-date: 2024-08-25T21:51:36.811Z
-updated: 2024-08-26T21:51:36.811Z
+date: 2024-09-03T22:44:22.239Z
+updated: 2024-09-04T22:44:22.239Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a24327de3f954b0afa1a21a400dc142c840e7eb4a1e199fa6e8f6bfec8524954.jpg
@@ -82,9 +82,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://extra-support.techidaily.com/new-overcoming-the-windows-11-photo-app-hurdles/"><u>[New] Overcoming the Windows 11 Photo App Hurdles</u></a></li>
@@ -123,3 +120,10 @@ Connect with us
 <li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-nokia-g310-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Nokia G310 | Dr.fone</u></a></li>
 <li><a href="https://facebook.techidaily.com/what-lies-behind-a-fake-fb-presence/"><u>What Lies Behind a Fake FB Presence?</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

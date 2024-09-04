@@ -1,7 +1,7 @@
 ---
 title: "Advanced RAG Techniques: Enhancing Document Capture with ABBYY Solutions"
-date: 2024-08-25T21:50:58.340Z
-updated: 2024-08-26T21:50:58.340Z
+date: 2024-09-03T22:44:21.616Z
+updated: 2024-09-04T22:44:21.616Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/43dc38eef47f27063f0ee863ee1d82afec185562726cc3d8ded22c5ffb968132.jpg
@@ -162,7 +162,10 @@ Quality data gives language models a deeper, nuanced knowledge base, which is vi
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_microscopic_web_photos_2_1486--836.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### The perfect blend of Al 
 
@@ -171,6 +174,12 @@ The effectiveness of RAG and similar generative Al initiatives rely on the under
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/rag/diagram-2_4.png) ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/rag/diagram-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 [Request demo](https://tools.techidaily.com/abbyy/products/)
 
@@ -190,25 +199,46 @@ We’ve developed state-of-the-art AI techniques to understand your documents, i
 
 ![ds-598_red_shutterstock_1443633284](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/rag/overview_1.jpg?h=675&iar=0&w=1200)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Why ABBYY?
 
 ![ChatHeart](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_chatheart-128.svg?h=128&iar=0&w=128)
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Streamlined integration
 
 Get impeccably structured JSON files, arranged for easy integration with RAG and LLM systems, like LangChain. Our goal is to facilitate your seamless transition to Al-driven technologies.
 
 ![Digital_Connections](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_digital_connections-3-128.svg?h=128&iar=0&w=128)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Bespoke data solutions
 
 We’re skilled in augmenting customer experiences, optimizing processes, and unearthing new insights from historical data. Our bespoke solutions ensure your data is not only prepared, but proficient in the languages of tomorrow.
 
 ![Rocket](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_rocket-128.svg?h=128&iar=0&w=128)
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Innovation partner
 
 Join us on a journey to a more intelligent, interconnected future. We work with you to make the most of your data, from comprehension to delivery. The outcome is optimized data that delivers tangible value for your business.
@@ -224,7 +254,10 @@ Purpose-built AI processes current, real-time market data. Improving the accessi
 ![overview image 1-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/financial-services/overview-image-1-1.jpg?h=716&iar=0&w=1272)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##### Healthcare
 
@@ -243,7 +276,16 @@ Drawing from global teaching material can help education professionals create ta
 ![Overview image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/education/overview-image.jpg?h=716&iar=0&w=1272)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<span id="1977020">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##### Financial services
 
@@ -254,7 +296,16 @@ Purpose-built AI processes current, real-time market data. Improving the accessi
 ![overview image 1-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/financial-services/overview-image-1-1.jpg?h=716&iar=0&w=1272)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<span id="1983582">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##### Healthcare
 
@@ -281,7 +332,10 @@ Purpose-built AI processes current, real-time market data. Improving the accessi
 ![overview image 1-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/financial-services/overview-image-1-1.jpg?h=716&iar=0&w=1272)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##### Healthcare
 
@@ -291,9 +345,6 @@ Purpose-built AI puts a vast bank of healthcare information at medical professio
 
 ![overview image 1-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/healthcare/overview-image-1-1.jpg?h=716&iar=0&w=1272)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ##### Education
 
 Drawing from global teaching material can help education professionals create tailored content for their students. A personalized, student-centered approach can significantly enhance learning experiences and results. 
@@ -302,9 +353,6 @@ Drawing from global teaching material can help education professionals create ta
 
 ![Overview image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/education/overview-image.jpg?h=716&iar=0&w=1272)
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How does retrieval-augmented generation work?
 
 Users typically give a large language model (LLM) a prompt or input, and receive a response based on its training data. RAG utilizes the user input to pull information from relevant external data sources. The user input and new information are then fed into an LLM to improve response quality. This process takes place in four steps:
@@ -319,18 +367,12 @@ The RAG model gathers data from various external sources, such as APIs, database
 
 ![RAG-step01-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/rag/steps/rag-step01-1.png?h=442&iar=0&w=1200)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 #### Retrieve relevant information
 
 The user's query is converted into a vector and compared with the vector databases to find the most relevant information. It uses mathematical vector calculations to assess the relevance of information.
 
 ![RAG_diagram-step02](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/rag/steps/rag_diagram-step02.svg?iar=0)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 #### Improve the LLM input
 
 The system integrates relevant retrieved data into the user’s input to enhance LLM understanding. It uses prompt engineering techniques to ensure the generated response is clear and communicated effectively.
@@ -338,7 +380,16 @@ The system integrates relevant retrieved data into the user’s input to enhance
 ![RAG_diagram-step03](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/rag/steps/rag_diagram-step03.svg?iar=0)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<span id="1304647">
+					<video width="150" height="125" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### We secure your business everywhere, so it can thrive anywhere
 
@@ -349,7 +400,10 @@ We've developed an integrated portfolio of purpose-built AI solutions to protect
 ![soc-logo-service-organization-154](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/trust/soc-logo-service-organization-154.png?h=120&iar=0&w=120)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### 
 
@@ -370,7 +424,10 @@ We've developed an integrated portfolio of purpose-built AI solutions to protect
 ![fsqs-logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/trust/fsqs-logo.png?h=120&iar=0&w=98)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### 
 
@@ -387,63 +444,10 @@ Learn new skills and earn certifications to boost your career with our catalog o
 ![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_placeholder_thumbnails_743x418-1.jpg?h=418&iar=0&w=743)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
-[](https://www.youtube.com/watch?v=c4K-DRuANPg)
-
-[Vantage tutorial](https://www.youtube.com/watch?v=c4K-DRuANPg)
-
-[](https://www.youtube.com/watch?v=c4K-DRuANPg)
-
-[](https://www.youtube.com/watch?v=c4K-DRuANPg)
-
-[](https://www.youtube.com/watch?v=c4K-DRuANPg)
-
-[](https://www.youtube.com/watch?v=c4K-DRuANPg)
-
-[The latest release of ABBYY’s](https://www.youtube.com/watch?v=c4K-DRuANPg)[intelligent document processing platform](https://tools.techidaily.com/abbyy/products/), Vantage, introduces a new ID reading skill. It supports classification and extraction of data from over 10,000 different document types in more than 190 countries.
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/timeline/video-module/video-image-tab-1-2.jpeg?h=418&iar=0&w=743)
-
-[AI-Pulse Podcast Tune in for episodes about AI, intelligent automation, and business.![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/timeline/video-module/video-image-tab-1-3.jpeg?h=418&iar=0&w=743)](https://www.youtube.com/watch?v=xpxn7NJ%5FeF8&list=PLcawcg-HXtXeE7L%5FeP5yIE8vg64jhaUXj)
-
-##### ABBYY University 
-
-Learn new skills and earn certifications to boost your career with our catalog of courses. Choose from on-demand or instructor-led courses to upskill on your own schedule.  
-
-[Visit the ABBYY University](https://tools.techidaily.com/abbyy/products/)
-
-![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_placeholder_thumbnails_743x418-1.jpg?h=418&iar=0&w=743)
-
-[](https://www.youtube.com/watch?v=c4K-DRuANPg)
-
-[Vantage tutorial](https://www.youtube.com/watch?v=c4K-DRuANPg)
-
-[](https://www.youtube.com/watch?v=c4K-DRuANPg)
-
-[](https://www.youtube.com/watch?v=c4K-DRuANPg)
-
-[](https://www.youtube.com/watch?v=c4K-DRuANPg)
-
-[](https://www.youtube.com/watch?v=c4K-DRuANPg)
-
-[The latest release of ABBYY’s](https://www.youtube.com/watch?v=c4K-DRuANPg)[intelligent document processing platform](https://tools.techidaily.com/abbyy/products/), Vantage, introduces a new ID reading skill. It supports classification and extraction of data from over 10,000 different document types in more than 190 countries.
-
-![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/timeline/video-module/video-image-tab-1-2.jpeg?h=418&iar=0&w=743)
-
-[AI-Pulse Podcast Tune in for episodes about AI, intelligent automation, and business.![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/timeline/video-module/video-image-tab-1-3.jpeg?h=418&iar=0&w=743)](https://www.youtube.com/watch?v=xpxn7NJ%5FeF8&list=PLcawcg-HXtXeE7L%5FeP5yIE8vg64jhaUXj)
-
-##### ABBYY University 
-
-Learn new skills and earn certifications to boost your career with our catalog of courses. Choose from on-demand or instructor-led courses to upskill on your own schedule.  
-
-[Visit the ABBYY University](https://tools.techidaily.com/abbyy/products/)
-
-![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_placeholder_thumbnails_743x418-1.jpg?h=418&iar=0&w=743)
-
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [](https://www.youtube.com/watch?v=c4K-DRuANPg)
 
@@ -462,8 +466,93 @@ Learn new skills and earn certifications to boost your career with our catalog o
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/timeline/video-module/video-image-tab-1-2.jpeg?h=418&iar=0&w=743)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<span id="2135471">
+					<video width="540" height="960" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+[AI-Pulse Podcast Tune in for episodes about AI, intelligent automation, and business.![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/timeline/video-module/video-image-tab-1-3.jpeg?h=418&iar=0&w=743)](https://www.youtube.com/watch?v=xpxn7NJ%5FeF8&list=PLcawcg-HXtXeE7L%5FeP5yIE8vg64jhaUXj)
+
+##### ABBYY University 
+
+Learn new skills and earn certifications to boost your career with our catalog of courses. Choose from on-demand or instructor-led courses to upskill on your own schedule.  
+
+[Visit the ABBYY University](https://tools.techidaily.com/abbyy/products/)
+
+![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_placeholder_thumbnails_743x418-1.jpg?h=418&iar=0&w=743)
+
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="540" height="540" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[](https://www.youtube.com/watch?v=c4K-DRuANPg)
+
+[Vantage tutorial](https://www.youtube.com/watch?v=c4K-DRuANPg)
+
+[](https://www.youtube.com/watch?v=c4K-DRuANPg)
+
+[](https://www.youtube.com/watch?v=c4K-DRuANPg)
+
+[](https://www.youtube.com/watch?v=c4K-DRuANPg)
+
+[](https://www.youtube.com/watch?v=c4K-DRuANPg)
+
+[The latest release of ABBYY’s](https://www.youtube.com/watch?v=c4K-DRuANPg)[intelligent document processing platform](https://tools.techidaily.com/abbyy/products/), Vantage, introduces a new ID reading skill. It supports classification and extraction of data from over 10,000 different document types in more than 190 countries.
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/timeline/video-module/video-image-tab-1-2.jpeg?h=418&iar=0&w=743)
+
+[AI-Pulse Podcast Tune in for episodes about AI, intelligent automation, and business.![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/timeline/video-module/video-image-tab-1-3.jpeg?h=418&iar=0&w=743)](https://www.youtube.com/watch?v=xpxn7NJ%5FeF8&list=PLcawcg-HXtXeE7L%5FeP5yIE8vg64jhaUXj)
+
+##### ABBYY University 
+
+Learn new skills and earn certifications to boost your career with our catalog of courses. Choose from on-demand or instructor-led courses to upskill on your own schedule.  
+
+[Visit the ABBYY University](https://tools.techidaily.com/abbyy/products/)
+
+![](https://content.abbyy.com/-/media/feature/basecomponents/assets-thumbnails/abbyy_placeholder_thumbnails_743x418-1.jpg?h=418&iar=0&w=743)
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[](https://www.youtube.com/watch?v=c4K-DRuANPg)
+
+[Vantage tutorial](https://www.youtube.com/watch?v=c4K-DRuANPg)
+
+[](https://www.youtube.com/watch?v=c4K-DRuANPg)
+
+[](https://www.youtube.com/watch?v=c4K-DRuANPg)
+
+[](https://www.youtube.com/watch?v=c4K-DRuANPg)
+
+[](https://www.youtube.com/watch?v=c4K-DRuANPg)
+
+[The latest release of ABBYY’s](https://www.youtube.com/watch?v=c4K-DRuANPg)[intelligent document processing platform](https://tools.techidaily.com/abbyy/products/), Vantage, introduces a new ID reading skill. It supports classification and extraction of data from over 10,000 different document types in more than 190 countries.
+
+![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/timeline/video-module/video-image-tab-1-2.jpeg?h=418&iar=0&w=743)
+
 [AI-Pulse Podcast Tune in for episodes about AI, intelligent automation, and business.![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/timeline/video-module/video-image-tab-1-3.jpeg?h=418&iar=0&w=743)](https://www.youtube.com/watch?v=xpxn7NJ%5FeF8&list=PLcawcg-HXtXeE7L%5FeP5yIE8vg64jhaUXj)
 
 ### Unlock your AI potential with ABBYY

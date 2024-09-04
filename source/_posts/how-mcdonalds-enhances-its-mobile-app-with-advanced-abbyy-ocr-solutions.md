@@ -1,7 +1,7 @@
 ---
 title: How McDonald's Enhances Its Mobile App with Advanced ABBYY OCR Solutions
-date: 2024-08-25T21:51:26.076Z
-updated: 2024-08-26T21:51:26.076Z
+date: 2024-09-03T22:44:22.060Z
+updated: 2024-09-04T22:44:22.060Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/551b9b29030807808fecbd021cc6b8c9595b15c77a4f336ad0c59913e2c5001a.jpg
@@ -56,7 +56,10 @@ Au cours de la Coupe du monde de la FIFA, McDonald's Allemagne a lancé une prom
 Partager  True ?  : "" 
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Ready to talk to an expert?
 

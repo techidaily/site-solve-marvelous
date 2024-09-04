@@ -1,7 +1,7 @@
 ---
 title: Global Sales Surge by 15%% in ABBYY's 2018 Annual Performance - Official Statement
-date: 2024-08-25T21:49:44.477Z
-updated: 2024-08-26T21:49:44.477Z
+date: 2024-09-03T22:44:20.352Z
+updated: 2024-09-04T22:44:20.352Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/33904527a6e1718a50027f53fe767c2c1eedacdbdef4cb5558c43f077a848c48.jpg
@@ -64,9 +64,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://youtube-lab.techidaily.com/n-2024-maximizing-channel-visibility-banner-size-and-art-dimensions-explained/"><u>[New] In 2024, Maximizing Channel Visibility  Banner Size and Art Dimensions Explained</u></a></li>
@@ -107,3 +104,10 @@ Connect with us
 <li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-vivo-y36i-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Vivo Y36i Phone</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/unlocking-website-potential-with-cookiebot-technology/"><u>Unlocking Website Potential with Cookiebot Technology</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

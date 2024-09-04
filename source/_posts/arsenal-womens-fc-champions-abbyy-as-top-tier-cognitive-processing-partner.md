@@ -1,7 +1,7 @@
 ---
 title: Arsenal Womens FC Champions ABBYY as Top-Tier Cognitive Processing Partner
-date: 2024-08-25T21:53:31.982Z
-updated: 2024-08-26T21:53:31.982Z
+date: 2024-09-03T22:44:24.299Z
+updated: 2024-09-04T22:44:24.299Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0b17306a3ff43a3354c035a000988ea5867c75fb650ef14b9ada7d7d6b9ca442.jpg
@@ -48,14 +48,26 @@ Investment in women’s sports leagues, teams, and athletes — from organizatio
 [_TechCrunch, 2023 "Women’s sports investment deserves the same consideration tech receives"_](https://techcrunch.com/2023/08/16/womens-sports-investment-deserves-the-same-consideration-tech-receives/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<span id="1702748">
+					<video width="120" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Happy, but not satisfied: celebrating wins while looking ahead
 
 The partnership with ABBYY and Arsenal Women highlights our commitment to supporting gender equity and equality, diversity, and inclusion – a powerful mission rooted in ABBYY’s history. ABBYY has been supporting female athletes for years through our sponsorship of PFU BlueCats volleyball team in Japan. Challenging the gender gap in the tech industry, we are proud of our above-industry-average representation of women in the workplace. Women at ABBYY represent over 35 percent of our workforce (compared to the tech industry average of 28 percent), and more than a third of our team leaders.![Arsenal Womens](https://www.abbyy.com/-/jssmedia/project/Abbyy/Abbyy/Insights/Blog/let-get-real-abbyy-x-arsenal-women/Arsenal-Women-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **From the solutions we provide to how we lead our organization, ABBYY believes that everything we do should reflect positively on the world; now we are partnering with Arsenal Women to bring positive change both in the local communities and on a global level.** Not only do companies leading in diversity and inclusion initiatives see higher employee retention, productivity, and profitability, but diversity also fosters better ideas and increased innovation. As ABBYY and Arsenal Women join forces, the stage is set for an exciting journey that will undoubtedly leave a mark on both industries, inspiring individual, and organizations alike to aim higher and achieve more.
 
@@ -64,7 +76,10 @@ Be a game changer with [ABBYY and Arsenal Women](https://tools.techidaily.com/ab
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Be a Game Changer with ABBYY
 
@@ -77,7 +92,10 @@ To get guidance on intelligent automation and learn more about how ABBYY can hel
 ![Catherine Johnson](https://www.abbyy.com/-/jssmedia/project/Abbyy/Abbyy/Insights/Blog/Autors-Headshots/catherinejohnson-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Catherine Johnson
 
@@ -86,7 +104,10 @@ Senior Director of Brand and Industry Relations at ABBYY
 Catherine Johnson is the Senior Director of Brand and Industry Relations at ABBYY leading brand and analyst relations strategy to maximize ABBYY’s visibility in key markets and industries. Catherine has more than 10 years of experience in managing and executing media and analyst relations, brand positioning, and thought leadership programs for ABBYY, as well as overseeing the product PR team and managing brand partnerships, such as ABBYY’s partnership with Arsenal Women Football Club. She is passionate about leveraging innovative technology to change people’s lives for the better. Catherine is based in Chicago, Illinois.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

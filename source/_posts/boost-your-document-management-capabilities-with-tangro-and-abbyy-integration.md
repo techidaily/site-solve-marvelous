@@ -1,7 +1,7 @@
 ---
 title: Boost Your Document Management Capabilities with Tangro and ABBYY Integration
-date: 2024-08-25T21:51:55.755Z
-updated: 2024-08-26T21:51:55.755Z
+date: 2024-09-03T22:44:22.553Z
+updated: 2024-09-04T22:44:22.553Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/99216a5fd24020f4e914206166919d3aff0939ed370c089abccf39caae51dc78.jpg
@@ -69,9 +69,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dissecting-tseries-profit-generation-through-youtube-videos/"><u>[New] 2024 Approved  Dissecting TSeries' Profit Generation Through YouTube Videos</u></a></li>
@@ -119,3 +116,10 @@ Connect with us
 <li><a href="https://program-issues.techidaily.com/solving-the-dilemma-of-undetected-gpus-by-msi-afterburner-in-windows-10-and-windows-11-environments/"><u>Solving the Dilemma of Undetected GPUs by MSI Afterburner in Windows 10 and Windows 11 Environments</u></a></li>
 <li><a href="https://ai-video-translation.techidaily.com/updated-2024-approved-best-9-french-video-translators-online-and-download-options/"><u>Updated 2024 Approved Best 9 French Video Translators Online and Download Options</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

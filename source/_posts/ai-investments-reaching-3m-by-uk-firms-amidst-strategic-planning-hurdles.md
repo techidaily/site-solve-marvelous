@@ -1,7 +1,7 @@
 ---
 title: AI Investments Reaching £3M by UK Firms Amidst Strategic Planning Hurdles
-date: 2024-08-25T21:49:26.248Z
-updated: 2024-08-26T21:49:26.248Z
+date: 2024-09-03T22:44:20.022Z
+updated: 2024-09-04T22:44:20.022Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a413f5ab643b8cf8455ddf8b717ffddc460e77cb815227b37c65333c5c3e3180.jpg
@@ -81,9 +81,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://vp-tips.techidaily.com/new-2024-approved-what-phone-is-compatible-with-gear-vr/"><u>[New] 2024 Approved  What Phone Is Compatible With Gear VR?</u></a></li>
@@ -140,3 +137,10 @@ Connect with us
 <li><a href="https://buynow-help.techidaily.com/stay-in-shape-and-stay-tuned-with-the-ultimate-garmin-vivoactive-3-music-enabled-tracker/"><u>Stay in Shape & Stay Tuned with the Ultimate Garmin Vivoactive 3 Music-Enabled Tracker</u></a></li>
 <li><a href="https://win11.techidaily.com/unleash-eternal-delete-with-a-customized-windows-trash-bin-setup-11/"><u>Unleash Eternal Delete with a Customized Windows Trash Bin Setup (11)</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

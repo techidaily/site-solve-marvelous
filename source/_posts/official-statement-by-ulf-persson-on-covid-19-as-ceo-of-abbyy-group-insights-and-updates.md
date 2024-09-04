@@ -1,7 +1,7 @@
 ---
 title: "Official Statement by Ulf Persson on COVID-19 as CEO of ABBYY Group: Insights and Updates"
-date: 2024-08-25T21:51:34.928Z
-updated: 2024-08-26T21:51:34.928Z
+date: 2024-09-03T22:44:22.202Z
+updated: 2024-09-04T22:44:22.202Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8defa02626cc56415dc50f7d54a716fd558d3dd721a0ce14cdc43e33e2f2d6de.jpg
@@ -47,9 +47,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-video-stock-investment-guides/"><u>[New] 2024 Approved  Essential Video Stock Investment Guides</u></a></li>
@@ -124,3 +121,10 @@ Connect with us
 <li><a href="https://solve-marvelous.techidaily.com/utilizing-cookiebot-technology-for-improved-online-engagement-analysis/"><u>Utilizing Cookiebot Technology for Improved Online Engagement Analysis</u></a></li>
 <li><a href="https://win-blog.techidaily.com/utorrent-freezing-issues-discover-7-reliable-solutions/"><u>Utorrent Freezing Issues: Discover 7 Reliable Solutions</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

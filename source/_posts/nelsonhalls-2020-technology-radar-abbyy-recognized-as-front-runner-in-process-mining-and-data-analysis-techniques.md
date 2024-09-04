@@ -1,7 +1,7 @@
 ---
 title: "NelsonHall's 2020 Technology Radar: ABBYY Recognized as Front-Runner in Process Mining & Data Analysis Techniques"
-date: 2024-08-25T21:53:09.036Z
-updated: 2024-08-26T21:53:09.036Z
+date: 2024-09-03T22:44:23.894Z
+updated: 2024-09-04T22:44:23.894Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332e933017960911271c0d2245.jpg
@@ -70,9 +70,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://solve-marvelous.techidaily.com/boost-your-sites-insight-capabilities-leveraging-cutting-edge-cookie-based-tools/"><u>[Boost Your Site's Insight Capabilities]: Leveraging Cutting-Edge Cookie-Based Tools</u></a></li>
@@ -128,3 +125,16 @@ Connect with us
 <li><a href="https://solve-marvelous.techidaily.com/website-optimization-with-cookiebot-integration/"><u>Website Optimization with Cookiebot Integration</u></a></li>
 <li><a href="https://facebook-videos.techidaily.com/your-own-beat-no-cost-fb-version-for-2024/"><u>Your Own Beat, No Cost - FB Version for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

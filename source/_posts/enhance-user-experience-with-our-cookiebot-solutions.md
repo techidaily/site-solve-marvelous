@@ -1,7 +1,7 @@
 ---
 title: Enhance User Experience with Our Cookiebot Solutions!
-date: 2024-08-25T21:52:09.600Z
-updated: 2024-08-26T21:52:09.600Z
+date: 2024-09-03T22:44:22.769Z
+updated: 2024-09-04T22:44:22.769Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c055207526e0593f6267057e6bfa17ba8927fb82ba8f876c9b7a867616b046d9.jpg
@@ -22,7 +22,10 @@ Les camions autonomes sans conducteur, la livraison par drones, les exosquelette
 L'automatisation intelligente du transport maritime commence par la numérisation et l'automatisation des documents qui régissent les processus de transport et de logistique.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Télécharger maintenant !
 
@@ -31,7 +34,10 @@ _"Alors qu’une transaction transfrontalière implique plusieurs acteurs et né
 Les expéditeurs mettent en œuvre un traitement intelligent des documents low-code pour améliorer durablement la précision, accélérer les processus et accroître la traçabilité dans le transport de fret et d'autres processus de transport/logistique. Téléchargez cet eBook pour découvrir à quoi ressemblent ces processus automatisés et quels types de résultats il est possible d'obtenir.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Merci de votre intérêt pour ABBYY.
 
@@ -40,8 +46,10 @@ Les expéditeurs mettent en œuvre un traitement intelligent des documents low-c
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 

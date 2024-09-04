@@ -1,7 +1,7 @@
 ---
 title: ABBYYとPwCコンサルティングがAI・OCR技術による新しいパートナーシップを結ぶ
-date: 2024-08-25T21:49:25.328Z
-updated: 2024-08-26T21:49:25.328Z
+date: 2024-09-03T22:44:20.002Z
+updated: 2024-09-04T22:44:20.002Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a88766153a92e1f9e8401a4428c9fb.jpg
@@ -67,9 +67,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://fox-glue.techidaily.com/new-budget-friendly-asmr-solutions-premium-quality-mics-awaiting-you/"><u>[New] Budget-Friendly ASMR Solutions  Premium Quality Mics Awaiting You</u></a></li>
@@ -114,3 +111,10 @@ Connect with us
 <li><a href="https://solve-marvelous.techidaily.com/unlocking-website-potential-with-cookiebot-technology/"><u>Unlocking Website Potential with Cookiebot Technology</u></a></li>
 <li><a href="https://sound-tweaking.techidaily.com/updated-discover-the-top-5-mp3-tag-management-software-for-optimal-audio-organization-for-2024/"><u>Updated Discover the Top 5 MP3 Tag Management Software for Optimal Audio Organization for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

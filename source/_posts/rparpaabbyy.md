@@ -1,7 +1,7 @@
 ---
 title: RPA技術の先駆者：日商エレ、RPAテクノロジーズ、ABBYYジャパンの新たな提携
-date: 2024-08-25T21:50:46.030Z
-updated: 2024-08-26T21:50:46.030Z
+date: 2024-09-03T22:44:21.430Z
+updated: 2024-09-04T22:44:21.430Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/42a3217d9873863c48091846f5f8a9e9b9b6456440b499628df593e7d229a025.jpg
@@ -96,9 +96,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-battle-for-honor-other-10-great-games-like-tsushi/"><u>[New] 2024 Approved  Battle for Honor  Other 10 Great Games Like Tsushi</u></a></li>
@@ -178,3 +175,10 @@ Connect with us
 <li><a href="https://solve-marvelous.techidaily.com/website-optimization-with-cookiebot-integration/"><u>Website Optimization with Cookiebot Integration</u></a></li>
 <li><a href="https://howto.techidaily.com/why-does-my-huawei-nova-y91-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Huawei Nova Y91 Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

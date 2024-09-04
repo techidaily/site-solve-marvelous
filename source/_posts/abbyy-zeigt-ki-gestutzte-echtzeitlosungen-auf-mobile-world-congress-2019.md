@@ -1,7 +1,7 @@
 ---
 title: ABBYY Zeigt KI-Gestützte Echtzeitlösungen Auf Mobile World Congress 2019
-date: 2024-08-25T21:50:09.013Z
-updated: 2024-08-26T21:50:09.013Z
+date: 2024-09-03T22:44:20.806Z
+updated: 2024-09-04T22:44:20.806Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ae200a2185b5d6e93408c97ace7b66b8254fa867626e84f986d0cc30e800ea8d.jpg
@@ -82,9 +82,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://twitter-videos.techidaily.com/new-chuckle-cache-uncovering-the-best-twitters-comedy-threads/"><u>[New] Chuckle Cache  Uncovering the Best Twitters Comedy Threads</u></a></li>
@@ -128,3 +125,16 @@ Vernetzen Sie sich mit uns
 <li><a href="https://extra-information.techidaily.com/unlock-serenity-with-asmr-for-uninterrupted-slumber/"><u>Unlock Serenity with ASMR for Uninterrupted Slumber</u></a></li>
 <li><a href="https://facebook-video-footage.techidaily.com/wallet-friendly-microphones-for-social-media-stars-for-2024/"><u>Wallet-Friendly Microphones for Social Media Stars for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="125" height="125" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

@@ -1,22 +1,40 @@
 ---
 title: Live-Datenerfassung Mit ABBYY OCR SDK - Instantane Erkennung Von Text Im Feld
-date: 2024-09-03T22:44:23.865Z
-updated: 2024-09-04T22:44:23.865Z
+date: 2024-09-08T23:38:28.789Z
+updated: 2024-09-09T23:38:28.789Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/428d79f8e22b19bf05f42dd0977639aed1e84dacf346522fdfb1811e179afc16.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Live-Datenerfassung Mit ABBYY OCR SDK - Instantane Erkennung Von Text Im Feld
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Real-Time Recognition SDK jetzt mit Funktionalität zur Datenerfassung in Echtzeit
 
 5\. Dezember 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Die neue Point-and-Capture-Funktionalität automatisiert die Dateneingabe auf mobilen Geräten für schnelle und mühelose Transaktionen_
 
 ABBYY, ein führender und globaler Anbieter von Technologien und Lösungen für den effektiven Einsatz von Informationen in Organisationen, gab heute die Veröffentlichung der neuen Version des ABBYY Real-Time Recognition Software Development Kits (RTR-SDK) bekannt. Dieses bietet jetzt zusätzliche Funktionalitäten zur Datenerfassung für die Mobilplattformen iOS und Android. Die Technologie für Real-Time-Recognition ist in der Lage, Textinformationen von Bildschirmobjekten zu extrahieren und diese direkt auf dem mobilen Gerät automatisch in digitale Daten umzuwandeln.
@@ -149,10 +167,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://ios-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>What Legendaries Are In Pokemon Platinum On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
 <li><a href="https://graphic-issues.techidaily.com/windows-11-nvidia-driver-issue-settled/"><u>Windows 11, NVidia Driver Issue Settled</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

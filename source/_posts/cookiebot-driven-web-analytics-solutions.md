@@ -1,22 +1,40 @@
 ---
 title: Cookiebot-Driven Web Analytics Solutions
-date: 2024-09-03T22:44:21.739Z
-updated: 2024-09-04T22:44:21.739Z
+date: 2024-09-08T23:38:26.690Z
+updated: 2024-09-09T23:38:26.690Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dadc574a72620fb10d26a05d18b7bc541d4008da38e3f5b8b4a33a2f717ba587.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Driven Web Analytics Solutions
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY stellt Open-Source KI-Bibliothek NeoML vor
 
 16\. Juni 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Das Framework bietet Softwareentwicklern leistungsstarke Algorithmen, um die Erstellung von Anwendungen mittels Deep Learning und traditionellem maschinellen Lernen zu unterstützen._ 
 
 ABBYY, ein globaler Anbieter von Technologien und Unternehmenslösungen für Digital Intelligence, stellt heute „NeoML“ vor, eine Open-Source-Bibliothek für die Erstellung, das Trainieren und die Bereitstellung von Modellen für maschinelles Lernen. NeoML ist ab sofort auf GitHub verfügbar und unterstützt sowohl Deep Learning als auch herkömmliche Algorithmen des maschinellen Lernens, die sich für Aufgaben wie prädiktive Analysen und Risikomanagement eignen. Das plattformübergreifende Framework ist für Anwendungen optimiert, die in Cloud-Umgebungen sowie auf Desktop- und Mobilgeräten ausgeführt werden. Im Vergleich zu anderen Open-Source-Bibliotheken bietet NeoML bis zu 15 Prozent schnellere Leistung bei der Inferenz von trainierten Modellen, die auf einem verwendeten Gerät laufen. Die Kombination aus höherer Inferenzgeschwindigkeit und Plattformunabhängigkeit macht die Bibliothek ideal für mobile Lösungen, die eine nahtlose Kundenerfahrung mit Datenverarbeitungsaufgaben vereinen.\*
@@ -129,10 +147,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://tech-hub.techidaily.com/tailoring-the-artificial-intelligence-experience-personalizing-chatgpt-for-your-projects/"><u>Tailoring the Artificial Intelligence Experience: Personalizing ChatGPT for Your Projects</u></a></li>
 <li><a href="https://win11.techidaily.com/transforming-windows-11-select-6-must-install-android-apps/"><u>Transforming Windows 11: Select 6 Must-Install Android Apps</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

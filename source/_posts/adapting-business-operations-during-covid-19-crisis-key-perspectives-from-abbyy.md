@@ -1,16 +1,28 @@
 ---
 title: Adapting Business Operations During COVID-19 Crisis - Key Perspectives From ABBYY
-date: 2024-09-03T22:44:23.450Z
-updated: 2024-09-04T22:44:23.450Z
+date: 2024-09-08T23:38:28.392Z
+updated: 2024-09-09T23:38:28.392Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b47fd0e753c3df7e85d7c99e9dd6f25592469353c9ed51bdab027cc3c0e36d8f.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Adapting Business Operations During COVID-19 Crisis - Key Perspectives From ABBYY
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## New COVID Data: The Real Impact of Bad Business Processes on Employees
 
 ###### Bruce Orcutt
@@ -19,6 +31,12 @@ December 09, 2020
 
 ![Blog Cover Image | ABBYY Blog Post](https://static1.abbyy.com/abbyycommedia/30442/12447_blog-cover-image_848х444_3.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 We’ve heard a lot about the impact of COVID-19 in the workplace – the transition to work-from-home, the emotional toll on employees worried about health and safety, and juggling remote learning for school-aged children. Once we settled into a new-normal routine, another challenge became apparent in the workplace – bad business processes.
 
 You may have experienced it yourself, primarily if you work in an industry that relies heavily on information submitted or corresponded with by customers such as financial services, insurance, transportation, or retail. It was manual, paper-based, and overly complex processes that were the first to break due to the pandemic. Client onboarding, transactions, and SBA Paycheck Protection Program loans in banks, claims management in insurance companies, retail customer inquiries, and warranty claims processing – these critical day-to-day operations experienced substantial delays and became increasingly frustrating for both employees customers.
@@ -29,6 +47,12 @@ What we discovered was not entirely surprising. Seventy-four percent of responde
 
 What _was_ surprising is that another major contributing factor to workplace challenges was processes. While most would agree that business processes are in place to foster efficiency, compliance, and better business outcomes, nearly half of the respondents (48%) blamed poor business processes for making their job more challenging, with one in four wanting to quit their job because of it. Another 36% said processes wasted time and let them down.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### So, in what ways do processes negatively impact employees’ work? And what can be done to address this?
 
 The answers lie in that many organizations develop processes based on how they think they should flow and not how people interact with systems, applications, and handle outlier events. ABBYY solves this problem with its [Process Intelligence](https://tools.techidaily.com/abbyy/products/) solution, which can analyze multiple processes within your business and deliver a digital process model (a “digital twin”) of your business operations and processes.
@@ -61,6 +85,18 @@ Leaders need to understand the day-to-day frustrations employees have with their
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Bruce Orcutt
 
 Senior Vice President of Product Marketing at ABBYY
@@ -70,16 +106,10 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="125" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Like, share or repost
 

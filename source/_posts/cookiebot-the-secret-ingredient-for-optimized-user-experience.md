@@ -1,22 +1,40 @@
 ---
 title: "Cookiebot: The Secret Ingredient for Optimized User Experience"
-date: 2024-09-03T22:44:22.653Z
-updated: 2024-09-04T22:44:22.653Z
+date: 2024-09-08T23:38:27.620Z
+updated: 2024-09-09T23:38:27.620Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/04715cc01635128f130003aeefa217d9440724157165604a4668d27f41792057.jpeg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot: The Secret Ingredient for Optimized User Experience
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY übernimmt TimelinePI und festigt führende Rolle in digitaler Transformation
 
 5\. August 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, ein weltweit führender Anbieter von Technologien und Lösungen für Digital IQ, hat heute die offizielle Übernahme des in Philadelphia, Pennsylvania ansässigen Unternehmens TimelinePI bekanntgegeben. TimelinePI ist Entwickler einer umfassenden Process-Intelligence-Plattform, die es Anwendern ermöglicht, jede Art von Geschäftsprozessen zu verstehen, zu überwachen und zu optimieren.
 
 Die Übernahme von TimelinePI markiert einen Meilenstein im Ausbau von ABBYYs führender Rolle in der digitalen Transformation sowie als Global Player im Bereich Process Mining – ein Markt, der sich laut Gartner bis 2023 verdreifachen wird. Die Kombination aus ABBYYs tiefem Verständnis für Unternehmensinhalte und der Bereitstellung von entscheidendem Prozess-Kontext durch die TimelinePI-Technologie führt zu einem neuen Level an Digital IQ – einer digitalen Intelligenz, die bislang auf diese Weise für Kunden nicht verfügbar war.
@@ -122,10 +140,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://tech-recovery.techidaily.com/the-ultimate-selection-best-iphone-gps-tracking-tools/"><u>The Ultimate Selection: Best iPhone GPS Tracking Tools</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/understanding-the-legal-framework-of-abbyy-flexicapture-online-service-terms-conditions-and-compliance-standards/"><u>Understanding the Legal Framework of ABBYY FlexiCapture Online Service - Terms, Conditions & Compliance Standards</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

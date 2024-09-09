@@ -1,22 +1,46 @@
 ---
 title: Warum Unternehmen Content-Kenntnis Erwerben Müssen, Um Die Entwicklung Der Intelligenten Prozessautomation Voranzutreiben – Eine ABBYY-Langzeitstudie Versteht Es
-date: 2024-09-03T22:44:23.281Z
-updated: 2024-09-04T22:44:23.281Z
+date: 2024-09-08T23:38:28.217Z
+updated: 2024-09-09T23:38:28.217Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c16b1e731514b90b733ef5726536377276b9f0da4bb0ae7f591c4a5f178d3c77.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Warum Unternehmen Content-Kenntnis Erwerben Müssen, Um Die Entwicklung Der Intelligenten Prozessautomation Voranzutreiben – Eine ABBYY-Langzeitstudie Versteht Es
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Zukunft der Arbeit: Wachsende Anzahl von Mitarbeitern wird in naher Zukunft einen digitalen Kollegen haben
 
 21\. November 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Unternehmen benötigen Content Intelligence, um die intelligente Prozessautomatisierung voranzutreiben, so eine Studie von ABBYY_
 
 Eine weltweite Umfrage des führenden Forschungsunternehmens IDC zeigt das Potenzial von Software-Robotern, Menschen an ihrem Arbeitsplatz zu unterstützen. Die von IDC veröffentlichten Ergebnisse zum Arbeitsplatz der Zukunft zeigen, dass Roboter – oder auch digitale Mitarbeiter genannt – bereits jetzt einen wachsenden Anteil an der globalen Belegschaft ausmachen, und innerhalb der nächsten zwei Jahren um 50 Prozent ansteigen werden. Die Ergebnisse spiegeln die zunehmende Nutzung von digitalen Mitarbeitern als auch grundlegende Veränderungen im Arbeitsleben hin zu einer intensiven Zusammenarbeit zwischen Mensch und Maschine wider.
@@ -30,6 +54,12 @@ IDC geht davon aus, dass der Markt für intelligente Prozessautomatisierung (IPA
 Jedoch handelt es sich nicht nur um alltägliche, sich wiederholende Aufgaben wie die Dateneingabe, die neue digitale Mitarbeiter in den kommenden Jahren bewältigen werden. Der zunehmende Einsatz von maschinellem Lernen durch menschenähnliche künstliche Intelligenz (KI) bedeutet, dass Roboterassistenten Mitarbeiter dabei unterstützen werden, bessere Entscheidungen zu treffen. In den meisten Fällen stellen diese Technologien eine Erweiterung der menschlichen Fähigkeiten dar – und keinen Ersatz. Die Umfrageergebnisse zeigen beispielsweise, dass der Anteil der Aktivitäten, die im Zusammenhang mit Informationsauswertung, die von Technologie durchgeführt werden, um 28 Prozent in den nächsten zwei Jahren ansteigen wird. Zudem wird der Anteil der Aktivitäten, die im Zusammenhang mit logischem Denken sowie Entscheidungsfindung stehen, auf 18 Prozent ansteigen.  
 ![](https://static1.abbyy.com/abbyycommedia/23910/de-press-release-21st-november.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 Die Teilnehmer der Umfrage geben zudem an, dass sie eine Reihe von Geschäftsvorteilen durch den Einsatz von Content Intelligence-Technologien in ihrer digitalen Transformationsstrategie erfahren haben. Gleichzeitig verzeichnen Unternehmen eine Steigerung um 40 Prozent in Bezug auf die Kundenzufriedenheit und die Mitarbeiterproduktivität. Außerdem sehen mehr als ein Drittel der Befragten eine schnellere Bearbeitung von Kundenanfragen, neue Produkt- oder Umsatzmöglichkeiten, mehr Transparenz und/oder Verantwortlichkeit sowie eine erhöhte Kundenbindung.
 
@@ -147,10 +177,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://tech-recovery.techidaily.com/transform-your-computer-with-free-themes-15-stunning-windows-11-makeovers/"><u>Transform Your Computer with Free Themes: 15 Stunning Windows 11 Makeovers</u></a></li>
 <li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-vivo-y02t-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Vivo Y02T Phone Network-Ready</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

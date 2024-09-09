@@ -1,22 +1,40 @@
 ---
 title: "Optimized by Cookiebot: Enhanced Sales Funnel Management and Analytics"
-date: 2024-09-03T22:44:23.180Z
-updated: 2024-09-04T22:44:23.180Z
+date: 2024-09-08T23:38:28.120Z
+updated: 2024-09-09T23:38:28.120Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/623365f2ffae0d2d8c9a44d31ae5f64f961d3fb3d2838be2d2e5cf0ae63c28b6.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Optimized by Cookiebot: Enhanced Sales Funnel Management and Analytics
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## NelsonHall、ABBYYを「Process Discovery & Mining NEAT Assessment 2020」のリーダーに選出
 
 7月1日, 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 デジタルインテリジェンス（Digital Intelligence）を推し進める[ABBYY](https://tools.techidaily.com/abbyy/products/)®は、デジタルオペレーションの変革を専門とするグローバルアナリスト企業のNelsonHallに、プロセスディスカバリーとプロセスマイニングのNEATベンダー評価においてリーダーとして認められました。ABBYYは、将来的な顧客の要件を満たすことができる面と、すぐに利益を提供できる能力の面で、15社のベンダー間で比較評価され、トップグループに位置づけられています。
 
 NelsonHall リサーチアナリストで、当該レポートの著者である**Bailey Kong**は、「ABBYY Timelineは、ビジネスユーザーを念頭に置いて明確に設計されたプラットフォームを提供しています。ビジネスユーザーが面倒に感じることなく分析を行えることと、コンテンツとデスクトップテクノロジーを統合するABBYYの技術的投資と組み合わせることで、プロセスのディスカバリーとマイニングソリューションが新たに創出される中で最先端に君臨してます」とコメントしています。
@@ -29,6 +47,12 @@ ABBYYのリーダーとしての位置付けはこのほか、提供する製品
 
 ![](https://static1.abbyy.com/abbyycommedia/28790/pdm-overall-final.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYYが提供するDigital Intelligenceソリューション一連の製品について詳しくは、以下のページをご覧ください。 <https://www.abbyy.com/solutions/digital-intelligence> ENG
 
 プロセスディスカバリーとプロセスマイニングの評価レポート、NelsonHall Vendor Evaluation & Assessment Tool（NEAT）について詳しくは、以下のページをご覧ください。 <https://www.abbyy.com/solutions/process-intelligence/neat-evaluation-for-abbyy-process-discovery-and-mining> ENG   
@@ -124,10 +148,3 @@ Connect with us
 <li><a href="https://solve-marvelous.techidaily.com/unlocking-website-potential-with-cookiebot-technology/"><u>Unlocking Website Potential with Cookiebot Technology</u></a></li>
 <li><a href="https://win-amazing.techidaily.com/update-new-brother-hl-2240-printer-driver-now-available-for-windows-pcs/"><u>Update: New Brother HL-2240 Printer Driver Now Available for Windows PCs</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030385/7443" target="_top" id="2030385">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030385" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030385/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

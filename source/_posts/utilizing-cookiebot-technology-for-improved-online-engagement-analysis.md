@@ -1,12 +1,18 @@
 ---
 title: Utilizing Cookiebot Technology for Improved Online Engagement Analysis
-date: 2024-09-03T22:44:24.177Z
-updated: 2024-09-04T22:44:24.177Z
+date: 2024-09-08T23:38:29.081Z
+updated: 2024-09-09T23:38:29.081Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/865ed323eb71130c7276babe580275f4674927ba17ed6f4bfafe6ec23c46bab1.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Utilizing Cookiebot Technology for Improved Online Engagement Analysis
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -19,37 +25,43 @@ September 19, 2023
 
 ![](https://static3.abbyy.com/abbyycommedia/38084/ds-167_revolutionizing-finance-with-ai-rpa-and-ocr.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In today's fast-paced business environment, staying ahead of the competition requires embracing technological advancements that can streamline operations and improve efficiency. In the realm of finance, organizations are turning to cutting-edge automation tools like artificial intelligence (AI), robotic process automation (RPA), and optical character recognition (OCR) to optimize their Accounts Payable (AP) processes.
 
 Recently, I had the privilege of delving into this fascinating field, and I want to share my findings with you. I would like to express my heartfelt gratitude to [Maxime Vermeir, Senior Director, AI Strategy at ABBYY](https://www.linkedin.com/in/maximevermeir/), for his invaluable insights and the opportunity to explore this groundbreaking topic. During the field research stage of my thesis report, I interviewed several experts working in the finance industry, Maxime being one of them.
 
 Experts’ insights were extremely useful to finally answer the main research question: “_Which constraints identified in Majorel Netherlands’ AP process can be solved by finance automation tools to increase process efficiency?_”. Working together with Majorel Holding I could identify the current constraints of the AP process and look for alternatives to solve them by performing desk and field research. I arrived at the conclusion that AI, RPA, and OCR, have the potential to streamline AP processes overall.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### The power of AI in Finance
 
 AI has emerged as a game-changer in the finance industry. By leveraging machine learning algorithms and advanced data analytics, financial automation tools powered by AI can intelligently extract, interpret, and process vast amounts of financial data. This not only significantly reduces manual errors but also enhances decision-making capabilities and facilitates strategic planning. With AI, finance professionals can focus on higher-value tasks, such as data analysis and strategic thinking, while routine and repetitive tasks are handled seamlessly.
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Unlocking efficiency with robotic process automation (RPA)
 
 RPA takes automation to the next level by automating rule-based, repetitive tasks within AP processes. By mimicking human interactions with various systems, RPA bots can perform tasks such as invoice processing, data entry, and vendor management swiftly and accurately. This allows finance departments to achieve enhanced efficiency, reduce operational costs, and redirect their workforce towards more value-added activities. RPA not only improves accuracy but also ensures compliance with regulations and reduces the risk of fraud.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Enhancing data extraction with AI-based OCR
 
@@ -66,10 +78,10 @@ Remember, the future is now, and it's powered by automation.
 ![](https://static1.abbyy.com/abbyycommedia/37629/luis-ernesto_110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Luis Ernesto Franceschi
 
@@ -79,31 +91,25 @@ Born and raised in Venezuela, Luis moved to Rotterdam, Netherlands, to become a 
 
 Connect with Luis on [LinkedIn](https://www.linkedin.com/in/luis-ernesto-franceschi-95b74b208/).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Related posts
 
 ![](https://static3.abbyy.com/abbyycommedia/37624/ds-63-intelligent-automation-month-1200x628.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [September is Intelligent Automation Month](https://tools.techidaily.com/abbyy/products/) 
 

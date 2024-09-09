@@ -1,22 +1,40 @@
 ---
 title: Enhanced Performance Through Advanced Cookiebot Solutions
-date: 2024-09-03T22:44:22.784Z
-updated: 2024-09-04T22:44:22.784Z
+date: 2024-09-08T23:38:27.747Z
+updated: 2024-09-09T23:38:27.747Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/10f40441e17c1fa8de82fe459b0ca66adaa7f77ee4510f8621b2c17f71bab5a7.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced Performance Through Advanced Cookiebot Solutions
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY schließt Investment durch Marlin Equity Partners zur Wachstumsbeschleunigung ab
 
 11\. Mai 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, ein Unternehmen für Digital Intelligence, gab heute den Abschluss einer bedeutenden Investition durch [Marlin Equity Partners](https://www.marlinequity.com/), einer globalen, auf Technologie fokussierten Investmentfirma, bekannt. Infolge dieser Investition wird Marlin größter Anteilseigner von ABBYY und ein strategischer Wachstumspartner für die weitere Marktexpansion des Unternehmens.
 
 „Marlin sieht einen erheblichen Wert im Erfolg, den wir mit unserer globalen Go-to-Market-Strategie haben und der Fähigkeit, unseren Kunden und Partnern die besten Digital Intelligence-Lösungen zu bieten, die ihnen dabei helfen, das Arbeiten von heute neu zu gestalten. Es ist der optimale Zeitpunkt, um den Kreis unserer Aktionäre um einen starken, wachstumsorientierten Partner zu erweitern", kommentiert Ulf Persson, CEO von ABBYY. „Mit Marlins nachweislicher Erfolgsbilanz bei der Wachstumsbeschleunigung in Zusammenarbeit mit Partnerunternehmen, freuen wir uns darauf, einen Weg einzuschlagen, auf dem wir unsere enormen Marktchancen auf dem Markt der intelligenten Prozessautomatisierung erschließen.“
@@ -104,10 +122,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://extra-tips.techidaily.com/the-art-of-drafting-alluring-vlog-show-content/"><u>The Art of Drafting Alluring Vlog Show Content</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/understanding-the-legal-framework-of-abbyy-flexicapture-online-service-terms-conditions-and-compliance-standards/"><u>Understanding the Legal Framework of ABBYY FlexiCapture Online Service - Terms, Conditions & Compliance Standards</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

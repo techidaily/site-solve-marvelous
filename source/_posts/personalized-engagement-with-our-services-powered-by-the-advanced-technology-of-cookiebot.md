@@ -1,22 +1,46 @@
 ---
 title: Personalized Engagement with Our Services, Powered by the Advanced Technology of Cookiebot
-date: 2024-09-03T22:44:20.533Z
-updated: 2024-09-04T22:44:20.533Z
+date: 2024-09-08T23:38:25.503Z
+updated: 2024-09-09T23:38:25.503Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/681aed17cbdddeac0350ff3fe9a9a1770d531416a3cf82559b42c4110e5fe7f0.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Personalized Engagement with Our Services, Powered by the Advanced Technology of Cookiebot
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unravelling the mysteries of medical billing with artificial intelligence
 
 May 25, 2017
 
 ![Unravelling the mysteries of medical billing with artificial intelligence | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25196/unravelling-the-mysteries-of-medical-billing-with-artificial-intelligence.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Medical bills are difficult to decipher. In most cases, they contain “test codes” and “CPT codes” which makes spotting an error very difficult. Reviewing medical records is both expensive and time consuming because they are usually provided in an unstructured textual form such as a Word document or PDF. Up to 90 percent of hospital bills contain errors totaling some $750 billion annually, according to a recent study. A person trying to recover funds associated with overcharging requires requesting the relevant patient medical records and having them reviewed by a clinician. Today, [intelligent text recognition](https://tools.techidaily.com/abbyy/products/) and AI can analyze the unstructured textual data contained in medical records, which can be used by clinicians to accurately extract entities, events, and facts. AI technologies also provide capabilities to automatically cross-reference the information contained within the medical records such as CPT Codes, ICD Codes, Drugs, Dosages and Medical Tests.
 
 Read the full article here: [Health IT Outcome](https://www.healthitoutcomes.com/doc/unravelling-the-mysteries-of-medical-billing-with-artificial-intelligence-0001).
@@ -25,6 +49,12 @@ _By David Bayer, Vice President, Compreno Group at ABBYY_
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -132,10 +162,3 @@ Connect with us
 <li><a href="https://solve-marvelous.techidaily.com/unlocking-efficiency-in-purchase-to-pay-processes-strategies-for-success/"><u>Unlocking Efficiency in Purchase-to-Pay Processes: Strategies for Success</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/unlocking-website-potential-with-cookiebot-technology/"><u>Unlocking Website Potential with Cookiebot Technology</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

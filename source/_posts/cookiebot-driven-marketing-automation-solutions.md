@@ -1,22 +1,46 @@
 ---
 title: Cookiebot Driven Marketing Automation Solutions
-date: 2024-09-03T22:44:22.568Z
-updated: 2024-09-04T22:44:22.568Z
+date: 2024-09-08T23:38:27.533Z
+updated: 2024-09-09T23:38:27.533Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/259362f05442761cee2c53bd4a987280fdd7ced53308719769d03bba8108cbbd.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot Driven Marketing Automation Solutions
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY and Panasonic Announce ‘ABBYY FineReader 12 Sprint for Panasonic’ Now Included In-the-box at No Charge with Every Desktop Scanner
 
 July 13, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY®, a global provider of content intelligence solutions and services, and Panasonic System Solutions Company of North America, Division of Panasonic Corporation of North America, are pleased to announce a new agreement to include the award-winning document conversion software, ABBYY FineReader 12 Sprint for Panasonic, free in-the-box with the purchase of any Panasonic KV-S1015, KV-S1026, KV-S1027 and KV-S1057 desktop document scanner. This software makes it easy to scan paper documents using a Panasonic scanner and convert them into searchable PDFs and editable formats such as Microsoft Word and Excel.
 
 The highly accurate FineReader Sprint for Panasonic software eliminates the need to retype or reformat documents, while also improving the overall quality of your scans. Users can operate their Panasonic desktop document scanner to not only scan documents of all shapes and sizes, but also improve the overall quality of images taken with mobile devices like smartphones and tablets. Scanning can be performed individually and merged into one file, or captured as a batch including documents of mixed lengths and sizes. ABBYY FineReader is internationally recognized having received more than 250 awards from leading labs and magazines and supports 190 different recognition languages, including Japanese, Chinese, Korean and Arabic.
@@ -109,10 +133,3 @@ Connect with us
 <li><a href="https://solve-marvelous.techidaily.com/warum-unternehmen-content-kenntnis-erwerben-mussen-um-die-entwicklung-der-intelligenten-prozessautomation-voranzutreiben-eine-abbyy-langzeitstudie-versteht-17/"><u>Warum Unternehmen Content-Kenntnis Erwerben Müssen, Um Die Entwicklung Der Intelligenten Prozessautomation Voranzutreiben – Eine ABBYY-Langzeitstudie Versteht Es</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/what-is-process-mining-and-why-use-it-a-comprehensive-guide/"><u>What Is Process Mining and Why Use It: A Comprehensive Guide</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,22 +1,40 @@
 ---
 title: Introducing ABBYY's Comprehensive FineReader Engine N - The Ultimate OCR Solution for Simulated and Cloud Settings
-date: 2024-09-03T22:44:20.420Z
-updated: 2024-09-04T22:44:20.420Z
+date: 2024-09-08T23:38:25.393Z
+updated: 2024-09-09T23:38:25.393Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/67fbae13bc8823b0a301a4edbd98e7b90a3759ff0f1b1dda3ab1c9790066eccf.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Introducing ABBYY's Comprehensive FineReader Engine N - The Ultimate OCR Solution for Simulated and Cloud Settings
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY、仮想環境およびクラウド環境に最適な最新の OCR SDK「FineReader Engine 12」を発表
 
 5月28日, 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **_新バージョンのソフトウェア開発キットはテキスト認識、_ _PDF_ _変換、データキャプチャをオンプレミスで稼働するアプリケーションだけでなく、仮想環境およびクラウド環境で稼働するアプリケーションにも統合します。_**
 
 コンテンツ・インテリジェンス・ソリューションおよびサービスの世界的プロバイダーであるABBYY®ジャパン株式会社(横浜市港北区)は、2018年5月29日に次世代のソフトウェア開発キット (SDK) 「ABBYY FineReader Engine 12」の発売を開始しました。同製品はテキスト認識、PDFの変換、データキャプチャの3つの機能をクラウド、オンプレミス、仮想マシンで稼働するソフトウェアアプリケーションへの統合を実現します。
@@ -107,16 +125,3 @@ Connect with us
 <li><a href="https://instagram-video-files.techidaily.com/streamline-your-content-embedding-youtube-media-into-instagrams-story-section-for-2024/"><u>Streamline Your Content  Embedding YouTube Media Into Instagram's Story Section for 2024</u></a></li>
 <li><a href="https://some-skills.techidaily.com/updated-sony-s3700-bd-review-2023-for-2024/"><u>Updated Sony S3700 BD REVIEW 2023 for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

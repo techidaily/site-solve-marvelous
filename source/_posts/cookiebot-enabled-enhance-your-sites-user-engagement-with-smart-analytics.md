@@ -1,22 +1,46 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Site's User Engagement with Smart Analytics"
-date: 2024-09-03T22:44:20.203Z
-updated: 2024-09-04T22:44:20.203Z
+date: 2024-09-08T23:38:25.201Z
+updated: 2024-09-09T23:38:25.201Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7145ec69591f6ebc68facf261c1d68971298e27f3697b076251aa5b51f323de0.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Enhance Your Site's User Engagement with Smart Analytics
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## PwC Processes Primary Documents with ABBYY Software Solutions
 
 January 26, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 PwC, a global network of auditing and consulting firms has completed [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) implementation to simplify processing primary financial documentation. This solution will enable auditors to manage their time even more efficiently when tackling high-priority, important tasks and significantly simplify data entry from the clients’ primary documents into the register.
 
 PwC clients in Russia represent over 2,000 companies, 202 of which are in the Expert 400 rating. Audit requires processing large volumes of supporting documents and reconciliating the data therein contained with the information in the accounting system. Previously the primary documents’ data had to be uploaded into the system manually. Moreover, our employees had to analyze each document, find necessary information and type it into the register.
@@ -118,10 +142,3 @@ Connect with us
 <li><a href="https://win-howtos.techidaily.com/troubleshoot-and-fix-frozen-taskbar-in-windows-11-with-these-reliable-techniques/"><u>Troubleshoot & Fix Frozen Taskbar in Windows 11 with These Reliable Techniques</u></a></li>
 <li><a href="https://tech-recovery.techidaily.com/unleash-your-love-for-music-with-these-8-amazing-free-iphone-apps/"><u>Unleash Your Love for Music with These 8 Amazing Free iPhone Apps</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

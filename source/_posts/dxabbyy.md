@@ -1,22 +1,46 @@
 ---
 title: 企業に最適なDX加速ツール：ABBYYで導くデジタルインテリジェンス力向上法
-date: 2024-09-03T22:44:20.245Z
-updated: 2024-09-04T22:44:20.245Z
+date: 2024-09-08T23:38:25.238Z
+updated: 2024-09-09T23:38:25.238Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fc6a682db0e3d4f0e7a82dcc086d1d5b243871658075302bd97663f943820452.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 企業に最適なDX加速ツール：ABBYYで導くデジタルインテリジェンス力向上法
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## DXを加速させるエンタープライズ向けデジタルインテリジェンスのパワー
 
 9月2日, 2020
 
 ![Digital Intelligence for the Enterprise | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/29319/8851e_blog_abbyy-technology-summit-2017-ignites-momentum-for-oneabbyyblog.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 「ABBYYでは、今日の最もチャレンジングな課題を解決するためにAIを活用しています。」 ABBYYの最高イノベーション責任者（CIO）であるAnthony Macciolaは、Unite.AIへのインタビューにて、 ABBYYがどのように自然言語処理、機械学習、ニューラルネットワークなどのAIテクノロジーを活用し、企業に対してビジネスプロセスとそれらを刺激するコンテンツとデータの理解を深めるための必要なツールを提供し、デジタルインテリジェンスソリューションを強化しているかを語っています。
 
 Macciolaは、デジタルインテリジェンスについて、「業界によらず、企業がプロセスを最適化し、データから具体的な価値を生み出し、組織の効率を高め、利益率を高めることを可能にするクロスインダストリーソリューションである」と説明しています。 「私たちABBYYは、さまざまな業界の企業にDX（デジタルトランスフォーメーション）を加速させ、顧客に価値を提供する新しい機会を開くためのソリューションを提供します。」とも説明しています。 
@@ -29,6 +53,18 @@ DX（デジタルトランスフォーメーション）イニシアチブを加
 
 [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [AI（人工知能）](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -147,10 +183,3 @@ Connect with us
 <li><a href="https://solve-marvelous.techidaily.com/utilizing-cookiebot-technology-for-improved-online-engagement-analysis/"><u>Utilizing Cookiebot Technology for Improved Online Engagement Analysis</u></a></li>
 <li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your OnePlus 11 5G | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

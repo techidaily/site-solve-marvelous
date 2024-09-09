@@ -1,7 +1,7 @@
 ---
 title: Enhance User Engagement Powerfully Using the Advanced Features of Cookiebot Technology
-date: 2024-09-03T22:44:23.694Z
-updated: 2024-09-04T22:44:23.694Z
+date: 2024-09-08T23:38:28.629Z
+updated: 2024-09-09T23:38:28.629Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/551b9b29030807808fecbd021cc6b8c9595b15c77a4f336ad0c59913e2c5001a.jpg
@@ -11,6 +11,12 @@ thumbnail: https://thmb.techidaily.com/551b9b29030807808fecbd021cc6b8c9595b15c77
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## On Blocking Phone Numbers, Sleeping Tight, and Choosing a Movie
 
 May 21, 2018
@@ -39,12 +45,6 @@ If you are in the **Messages** app, open the conversation, tap the information i
 
 When you block the phone number or contact, they will still be able to leave voicemails, but you won’t receive notifications. Messages that are sent or received won't be delivered. Also, the contact won’t be notified that their call or message was blocked.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Android Tip: Blocking Unwanted Contacts**
 
 There are so many Android smartphones on the market that it will take ages to describe how to block incoming calls on all of them. It means we have to choose. Let’s see how users of Samsung and Sony may escape annoying callers:
@@ -56,16 +56,10 @@ There are so many Android smartphones on the market that it will take ages to de
 ![Android Block Unwanted Contacts recent calls](https://static1.abbyy.com/abbyycommedia/26268/pppeee.png)
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="120" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 If you are a Samsung user, proceed as follows:
 
@@ -75,6 +69,12 @@ If you are a Samsung user, proceed as follows:
 
 To delete the number from the black list, go to settings, select **Call settings**, and find the **Decline a call** section where this configuration is activated.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **ABBYY Tip: BCR on Apple Watch**
 
 Did you know that your beloved [Business Card Reader](http://qrs.ly/iw4uqj5)is compatible with Apple Watch? You no longer need to take out your iPhone to check a business card of your colleague. Apple Watch BCR enables you to skim through your contacts and select the one you wish to call.
@@ -82,25 +82,13 @@ Did you know that your beloved [Business Card Reader](http://qrs.ly/iw4uqj5)is c
 ![ABBYY BCR on Apple Watch](https://static1.abbyy.com/abbyycommedia/26269/nnnnn.png)
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="540" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Users may now add complications, or put simply, notifications on the main screen that display the last scanned business card or the total number of business cards stored. Tapping the complication will open [BCR](http://qrs.ly/iw4uqj5)right on Apple Watch. Apple’s operating systems feature data update algorithm that synchronizes data among devices—between iPhone and Apple Watch in this case. In order to successfully use [BCR](http://qrs.ly/iw4uqj5)on Apple Watch, simply install it on your iPhone and it will appear on your wearable automatically.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **App of the Week: Twilight**
 
 It is common knowledge that looking at your smartphone far into the night is not that good for your health. Not only does your eyesight deteriorate from looking at the screen in the dark, such habit disturbs your sleeping schedule. But don’t worry, we’ve found an app that will help you stay healthy.
@@ -109,6 +97,12 @@ It is common knowledge that looking at your smartphone far into the night is not
 
 ![Application Twilight manage sleep control](https://static1.abbyy.com/abbyycommedia/26270/ggggggg.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Twilight adjusts screen color by filtering the blue spectrum on your smartphone or tablet after the sun goes down and enables the red spectrum instead. Filter intensity smoothly adjusts based on solar cycle considering the time of the local sunrise and sunset.
 
 ![App Twilight parameters alarm sleeping](https://static1.abbyy.com/abbyycommedia/26271/shshshshshshsh.jpg)
@@ -119,18 +113,6 @@ But this app notwithstanding, don’t forget that it is best not to use your dev
 
 Twilight is available only on [Android](https://play.google.com/store/apps/details?id=com.urbandroid.lux&hl=en).
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="540" height="960" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## First-Hand Experience: Advice From a Colleague
 
 _By Ivan Shafran, Android developer_
@@ -138,10 +120,10 @@ _By Ivan Shafran, Android developer_
 ![choose film movie abbyy advice](https://static1.abbyy.com/abbyycommedia/26272/ggggg.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **How to pick up new skills**
 
@@ -157,6 +139,12 @@ P.S. You can find our previous newsletter [here](https://tools.techidaily.com/ab
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

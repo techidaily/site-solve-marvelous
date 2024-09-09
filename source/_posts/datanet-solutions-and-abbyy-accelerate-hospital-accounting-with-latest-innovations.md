@@ -1,22 +1,40 @@
 ---
 title: "DataNet Solutions & ABBYY: Accelerate Hospital Accounting with Latest Innovations"
-date: 2024-09-03T22:44:21.070Z
-updated: 2024-09-04T22:44:21.070Z
+date: 2024-09-08T23:38:26.026Z
+updated: 2024-09-09T23:38:26.026Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8f746ea5ff5f235bd9550c0631527dab7bc233469cd27f4e2765e160c088926b.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## DataNet Solutions & ABBYY: Accelerate Hospital Accounting with Latest Innovations
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Schnellere Finanzbuchhaltung im Krankenhaus mit data net solutions und ABBYY
 
 12\. September 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _ABBYY liefert Technologien für automatisierte Rechnungsverarbeitung in der Krankenhausverwaltungslösung AMONDIS_
 
 ABBYY Europe, ein globaler Anbieter von Datenerfassung (Intelligent Capture), optischer Zeichenerkennung (OCR) sowie innovativen, sprachbasierten Technologien, ermöglicht eine schnellere Rechnungserfassung in der Krankenhausverwaltungslösung von data net solutions. Der Spezialist für Verwaltungs- und Buchhaltungs-IT für die Gesundheitswirtschaft bietet in seiner Lösung für die Finanzbuchhaltung nun ein Modul mit integrierter ABBYY Technologie zur Texterkennung und dem Lesen von Barcodes an. Dieses erlaubt, gescannte Rechnungen maschinenlesbar zu machen und so die enthaltenen Informationen für Folgeprozesse bereitzustellen. Darauf aufbauend lassen sich automatisierte Workflows einrichten. Krankenhäuser und andere Nutzer der Lösung können damit Schlüsselprozesse in der Finanzbuchhaltung signifikant beschleunigen und somit die Verwaltungskosten deutlich reduzieren.
@@ -132,16 +150,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://vp-tips.techidaily.com/where-to-find-the-best-budgeted-gopro-purchases/"><u>Where to Find the Best Budgeted GoPro Purchases</u></a></li>
 <li><a href="https://win-forum.techidaily.com/windows-10-file-management-delete-multiple-items-using-cmd-instructions/"><u>Windows 10 File Management: Delete Multiple Items Using CMD Instructions</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="125" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

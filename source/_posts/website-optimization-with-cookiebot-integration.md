@@ -1,22 +1,40 @@
 ---
 title: Website Optimization with Cookiebot Integration
-date: 2024-09-03T22:44:22.379Z
-updated: 2024-09-04T22:44:22.379Z
+date: 2024-09-08T23:38:27.350Z
+updated: 2024-09-09T23:38:27.350Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/49ffa66d38abced0cb3f87fd6a7f07b59b78823dd67224be4906012f3135d98a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Website Optimization with Cookiebot Integration
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The True Impact of COVID On Employees: 1-In-4 Want to Quit Their Jobs Because of Poor Business Processes
 
 December 02, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **_COVID-19 Technology Survey by ABBYY shows two-thirds of businesses adopted AI during lockdown_**
 
 Working from home during the pandemic has taken its toll on many workers, with one in four wanting to quit because of poor business processes, according to a new survey. The global COVID-19 Technology and Business Processes Survey discovered nearly half of staff (48%) blamed bad processes for making their job more challenging – with a third saying they waste time.
@@ -42,6 +60,12 @@ As the survey results show, organizations continue to face rising challenges whe
 
 [![ABBYY GLOBAL COVID TECHNOLOGY SURVEY RESULTS](https://static1.abbyy.com/abbyycommedia/30408/abbyy-global-covid-technology-survey_us_1200x628.jpg)](https://www.abbyy.com/media/30408/abbyy-global-covid-technology-survey%5Fus%5F1200x628.jpg "see full version")
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **About ABBYY**
 
 ABBYY empowers organizations to gain a complete understanding of their business processes and the content that fuels them with its [Digital Intelligence](https://tools.techidaily.com/abbyy/products/) platform. ABBYY technologies are used by more than 5,000 companies, including many of the Fortune 500, and is recognized for its leadership in [Intelligent Document Processing](https://tools.techidaily.com/abbyy/products/) (IDP) and [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) for driving significant impact where it matters most: customer experience, effectiveness, profitability and competitive advantage. ABBYY is a global company with offices in 14 countries. For more information, visit [www.abbyy.com](https://tools.techidaily.com/abbyy/products/) or visit us on social on [LinkedIn](https://www.linkedin.com/company/abbyy "ABBYY on LinkedIn"), [Twitter](https://twitter.com/ABBYY%5FSoftware "ABBYY on Twitter") and [Facebook](https://www.facebook.com/ABBYYsoft "ABBYY on Facebook").
@@ -139,10 +163,3 @@ Connect with us
 <li><a href="https://solve-marvelous.techidaily.com/utilizing-cookiebot-technology-for-improved-online-engagement-analysis/"><u>Utilizing Cookiebot Technology for Improved Online Engagement Analysis</u></a></li>
 <li><a href="https://tech-savvy.techidaily.com/virtual-whodunit-adventures-embark-on-4-futuristic-online-escapades/"><u>Virtual Whodunit Adventures: Embark on 4 Futuristic Online Escapades</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024347/7443" target="_top" id="2024347">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024347/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

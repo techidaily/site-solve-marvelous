@@ -1,7 +1,7 @@
 ---
 title: Unleashing Growth Potential with the Power of Cookiebot Technology for Sites
-date: 2024-09-03T22:44:22.345Z
-updated: 2024-09-04T22:44:22.345Z
+date: 2024-09-08T23:38:27.313Z
+updated: 2024-09-09T23:38:27.313Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/18316e8f71e11f28b59d175ffaa88b6b208294f15c9d92c3f00bf91d9310afa1.jpg
@@ -11,12 +11,24 @@ thumbnail: https://thmb.techidaily.com/18316e8f71e11f28b59d175ffaa88b6b208294f15
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ヘルスケアにおけるプロセスマイニング
 
 1月27日, 2021
 
 ![TL Forblog | ABBYY Blog Post](https://static4.abbyy.com/abbyycommedia/31568/tl-forblog-848x444.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 すべての病院、医療システム、および医師は、[収益を管理し](https://tools.techidaily.com/abbyy/products/)、使用率を最適化し、一連のケア全体でコストを削減するというプレッシャーに直面しています。病院、医師たちは、途方もない複雑さの中で、より少ない労力でより多くのことを行うよう求められています。電子健康記録（Electronic Health Record）やその他のテクノロジーへの投資が急増しているため、管理者や臨床チームはダッシュボードやレポートで溢れています。 すべての情報を持っているにもかかわらず、彼らはしばしば完全な洞察なしに重要な運用上の決定を下すことを余儀なくされています。
 
 医療ニーズの将来を管理するために、病院、医師たちはビジネスおよび臨床プロセスをより適切に管理できなければなりません。 品質改善戦略をどこでどのように採用するかを決定することは複雑ですが、医療専門家が臨床プロセスをよりよく理解するのにプロセスマイニングが役立ちます。
@@ -29,15 +41,27 @@ thumbnail: https://thmb.techidaily.com/18316e8f71e11f28b59d175ffaa88b6b208294f15
 
 ![ヘルスケア管理](https://static1.abbyy.com/abbyycommedia/30413/healthcare-process-improvement.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [ヘルスケア業界におけるプロセスマイニング](https://tools.techidaily.com/abbyy/products/)の適用に関する調査、実施研究は、学術理論からビジネスプロセスの実際の変革へと移行しています。 この概念は比較的新しいかもしれませんが、データサイエンティストを実際のアプリケーションに導き、実際世界で起こっている結果を得ているという報告が出てきています。
 
 Journal of Biomedical Informaticsは、Eric Rojas らによるヘルスケアにおけるプロセスマイニングの現在の採用を分析するレビューで、ヘルスケアへのプロセスマイニングの利用の最先端はヨーロッパにあり、現在の調査、実施研究の73％がここで行われていることを明らかにしました。 2020年の[プロセスマイニングとRPAの現状に関する最近の調査](https://tools.techidaily.com/abbyy/products/)によると、フランスの企業がプロセスマイニングの面で先導しており、回答者の78％がすでにそのようなツールを使用していると述べています。
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### では、プロセスマイニングはどのように動くのでしょうか？
 
@@ -56,16 +80,10 @@ Prof. Dr. ir Will Van der Aalst らによる「ヘルスケアにおけるプロ
 ![rpaプロセスマイニング](https://static1.abbyy.com/abbyycommedia/30414/healthcare-process.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 医療専門家は、プロセスマイニングを使用して、[医療におけるプロセス改善](https://tools.techidaily.com/abbyy/products/)の最適な候補を特定できます。これは、複雑で、時間的にシビアであることが多いのですが、一歩踏み込んで患者の顧客体験を改善したり、コンプライアンスリスクを避けたり、次世代プロセスマイニングソリューションであるプロセスインテリジェンスを使って効率を上げたりすることが可能です。
 
@@ -74,10 +92,10 @@ ABBYYのプロセスインテリジェンスプラットフォームは、プロ
 [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [ヘルスケア](https://tools.techidaily.com/abbyy/products/) [デジタルインテリジェンス](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 

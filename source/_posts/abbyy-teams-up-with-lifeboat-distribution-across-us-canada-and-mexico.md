@@ -1,22 +1,40 @@
 ---
 title: ABBYY Teams Up with Lifeboat Distribution Across US, Canada & Mexico
-date: 2024-09-03T22:44:20.771Z
-updated: 2024-09-04T22:44:20.771Z
+date: 2024-09-08T23:38:25.731Z
+updated: 2024-09-09T23:38:25.731Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2df210d64d34d4b3dc09759541c3c9d53d18577f1202b54d6fbdf849bf81ed68.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Teams Up with Lifeboat Distribution Across US, Canada & Mexico
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Announces Partnership with Lifeboat Distribution in the United States, Canada, and Mexico
 
 February 27, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _The company will distribute ABBYY FineReader and Recognition Server in North America_
 
 ABBYY®, a global provider of intelligent capture solutions to improve business outcomes, today announced the partnership with Lifeboat Distribution®, a value added distributor, providing supply chain services and connecting best-in-breed software publishers with resellers around the globe. The company will distribute ABBYY FineReader and ABBYY Recognition Server in the United States, Canada, and Mexico. FineReader and Recognition Server are an important part of ABBYY’s product portfolio.
@@ -119,10 +137,3 @@ Connect with us
 <li><a href="https://remote-screen-capture.techidaily.com/ultimate-free-mp3-skype-call-logger/"><u>Ultimate Free MP3 Skype Call Logger</u></a></li>
 <li><a href="https://driver-download.techidaily.com/update-your-amd-radeon-hd-graphics-card-with-new-drivers-for-windows/"><u>Update Your AMD Radeon HD Graphics Card with New Drivers for Windows</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

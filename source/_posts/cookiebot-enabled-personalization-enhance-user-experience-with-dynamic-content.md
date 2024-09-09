@@ -1,22 +1,40 @@
 ---
 title: "Cookiebot-Enabled Personalization: Enhance User Experience with Dynamic Content"
-date: 2024-09-03T22:44:20.994Z
-updated: 2024-09-04T22:44:20.994Z
+date: 2024-09-08T23:38:25.947Z
+updated: 2024-09-09T23:38:25.947Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4824b5bc1ec47ceadb929bb6b68e8c9454196f2de65b71eab7da2ab3371e3a0f.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled Personalization: Enhance User Experience with Dynamic Content
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Effizienteres Kundenmanagement im Außendienst dank Clients-Guide App mit integrierter ABBYY Visitenkartenerkennung
 
 2\. November 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Mit Technologie von ABBYY, einem führenden Anbieter von Technologien und Lösungen für Dokumentenerkennung, Data Capture und Linguistik, ermöglicht Clients-Guide seinen App-Kunden eine noch bessere Kontaktverwaltung. Die Clients-Guide FiveStar App des namhaften Herstellers von Software für Customer Relationship Management (CRM) bietet Vertriebsmitarbeitern im mobilen Außendienst vielfältige Funktionalitäten, mit denen sie ihr Kundenmanagement effizienter gestalten können. Mit der integrierten Visitenkartenerkennung können Anwender Daten aus Visitenkarten ganz bequem und noch vor Ort in das CRM-System übertragen und dann vom Smartphone aus abrufen. Für die hierzu benötigte Texterkennungstechnologie (OCR) nutzt Clients-Guide jetzt den ABBYY Cloud OCR SDK Web-Service. Damit wird der rechenintensive Arbeitsschritt der OCR-Verarbeitung auf einem leistungsstarken Server in der Cloud und damit unabhängig vom Betriebssystem des Smartphones durchgeführt, was den Integrationsaufwand erheblich reduziert. Zudem ist die Einbindung der OCR-Funktionalität sehr schlank - der benötigte Speicherplatz der App wird nur gering erhöht und der Arbeitsspeicher des Endgerätes bleibt für andere Prozesse verfügbar.
 
 Nutzer der [Clients-Guide FiveStar App](http://www.clients-guide.com/free-vs-pro.html) fotografieren einfach mit ihrem Smartphone die Visitenkarten eines neuen Kontakts ab und die App übermittelt die Bilddatei an die ABBYY Cloud. Dort wird die Datei mit der preisgekrönten ABBYY OCR-Technologie erkannt und die jeweiligen Visitenkartenfelder ausgelesen. Die Daten werden dann als vCard-Datei zurück an die Clients-Guide FiveStar App übertragen und wenn nötig vom Nutzer korrigiert. Der neue Kontakteintrag wird automatisch in der App angelegt. Um einen höchstmöglichen Datenschutz zu gewährleisten, werden alle Bilddaten und vCard-Dateien nach der Verarbeitung unverzüglich in der ABBYY-Cloud gelöscht.
@@ -134,10 +152,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://hardware-help.techidaily.com/troubleshooting-and-resolving-asus-pce-ac56-driver-challenges-in-win-10-8-and-7-a-comprehensive-fix/"><u>Troubleshooting and Resolving ASUS PCE-AC56 Driver Challenges in Win 10, 8 & 7 - A Comprehensive Fix!</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/understanding-the-legal-framework-of-abbyy-flexicapture-online-service-terms-conditions-and-compliance-standards/"><u>Understanding the Legal Framework of ABBYY FlexiCapture Online Service - Terms, Conditions & Compliance Standards</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,12 +1,18 @@
 ---
 title: Leverage the Power of Cookiebot for Superior Web Analytics and Conversion Tracking
-date: 2024-09-03T22:44:23.835Z
-updated: 2024-09-04T22:44:23.835Z
+date: 2024-09-08T23:38:28.757Z
+updated: 2024-09-09T23:38:28.757Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee1664031b51ad4dc762eeccdfd025.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Leverage the Power of Cookiebot for Superior Web Analytics and Conversion Tracking
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
@@ -17,8 +23,26 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![15040 Carlsberg Blog](https://static1.abbyy.com/abbyycommedia/35962/15040_carlsberg_blog.png) 
 
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Die Carlsberg-Gruppe digitalisiert ihre Bestell- und Lieferprozesse mit den intelligenten Dokumentenverarbeitungslösungen von ABBYY_
 
 Mit Hilfe der intelligenten Prozessautomatisierung von [ABBYY](https://tools.techidaily.com/abbyy/products/) können Hunderte von Bieren der Carlsberg-Gruppe in mehr als 150 Märkten nun deutlich schneller an ihr Ziel gelangen. Die Carlsberg-Gruppe, eine der weltweit führenden Brauereigruppen, hat sich für ABBYY entschieden, um ihre Bestell- und Lieferprozesse zu automatisieren und damit sowohl die Markteinführung zu beschleunigen als auch die Kundenzufriedenheit zu erhöhen. Die ABBYY-Lösungen für intelligente Dokumentenverarbeitung (IDP) erlauben es der Carlsberg-Gruppe, ihre Strategie der digitalen Transformation schneller umzusetzen, die Effizienz der Arbeitsabläufe zu steigern und die Produktivität ihrer Teams zu verbessern.
@@ -40,6 +64,12 @@ _Neil Murphy, Global Channel Chief bei ABBYY._
 Die Plattform für intelligente Prozessautomatisierung von ABBYY umfasst branchenführende Lösungen für intelligente Dokumentenverarbeitung (IDP), Process Mining und Task Mining. Dazu gehört [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/), die erste Low-Code/No-Code-Plattform der Branche, die künstliche Intelligenz (KI) einsetzt, um Dokumente schnell und einfach zu verstehen. Vantage macht die digitalen Mitarbeiter und Prozesse von heute intelligenter, indem es KI-Skills zum Lesen, Verstehen und Extrahieren von Inhalten aus Dokumenten bereitstellt und Unternehmen dabei hilft, die digitale Transformation zu beschleunigen. [ABBYY Timeline](https://tools.techidaily.com/abbyy/products/) verfügt über eine fortschrittliche Process-Mining- und Task-Mining-Technologie, die die neueste künstliche Intelligenz nutzt. Sie ermöglicht es Unternehmen, automatisch einen interaktiven digitalen Zwilling ihrer Prozesse zu erstellen und diese in Echtzeit zu analysieren, um Engpässe zu identifizieren und zukünftige Ergebnisse vorherzusagen, um die Entscheidungsfindung für Technologieinvestitionen zu erleichtern.  
 Für weitere Informationen besuchen Sie: <https://www.abbyy.com/de/solutions/intelligent-process-automation-ipa/>.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Über ABBYY
 
 ABBYY treibt die intelligente Automatisierung voran. Wir gestalten die Art und Weise, wie Menschen arbeiten neu, indem wir Automatisierungsplattformen mit der Intelligenz ausstatten, die es Unternehmen ermöglicht, ihr Geschäft zu beschleunigen. Unsere Lösungen wandeln Unternehmensdaten in verwertbare Daten um und liefern die Erkenntnisse, die für ein smarteres und schnelleres Arbeiten erforderlich sind.
@@ -51,20 +81,20 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### ABBYY Pressekontakt
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Eva-Maria Hufschmitt
 

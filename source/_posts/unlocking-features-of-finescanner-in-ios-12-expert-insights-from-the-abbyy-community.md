@@ -1,12 +1,18 @@
 ---
 title: Unlocking Features of FineScanner in iOS 12 - Expert Insights From the ABBYY Community
-date: 2024-09-03T22:44:24.159Z
-updated: 2024-09-04T22:44:24.159Z
+date: 2024-09-08T23:38:29.064Z
+updated: 2024-09-09T23:38:29.064Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/995d8276c073ea6830ba619ba4614fd047fc0375a4d1ae8bef82547a42248f63.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unlocking Features of FineScanner in iOS 12 - Expert Insights From the ABBYY Community
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -17,8 +23,20 @@ September 18, 2018
 
 ![](https://static2.abbyy.com/abbyycommedia/26499/blog-fsi-siri-en-1x.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 iOS 12 brought many features to Apple-devices. The one of great significance is Siri level-up: she’s become smarter, Siri Suggestions became more accurate, and a WOW-feature is Siri Shortcuts. We’re always up-to-date, so FineScanner is now a friend to Siri.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Siri Shortcuts in FineScanner
 
 In 2017 [with iOS 11 release](https://tools.techidaily.com/abbyy/products/) we’ve added PDF-tools, auto-crop has become as accurate as it never was, and Drag-and-Drop on iPad made the work with [FineScanner](http://qrs.ly/mg4z2wm) rapid. Now with the new Siri feature, you can attach voice **s**hortcuts to scans in [FineScanner](http://qrs.ly/mg4z2wm). It allows to open documents in a couple seconds, not even opening [FineScanner](http://qrs.ly/mg4z2wm) app. Just ask Siri! Follow the steps below to make it work:
@@ -40,6 +58,12 @@ P.S. Nostalgy FineScanner features for [iOS 11 in 2017](https://tools.techidaily
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -140,10 +164,3 @@ Connect with us
 <li><a href="https://some-tips.techidaily.com/the-ultimate-guide-to-closer-insight-in-roblox-games-for-2024/"><u>The Ultimate Guide to Closer Insight in Roblox Games for 2024</u></a></li>
 <li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-vivo-t2-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Vivo T2 5G Location | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

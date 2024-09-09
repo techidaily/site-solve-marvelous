@@ -1,28 +1,58 @@
 ---
 title: "Comparaison Du Sérieux Des Différents Domaines Selon ABBYY : Quel Domaine Est Le Plus Rigoureux ?"
-date: 2024-09-03T22:44:20.088Z
-updated: 2024-09-04T22:44:20.088Z
+date: 2024-09-08T23:38:25.104Z
+updated: 2024-09-09T23:38:25.104Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/df387578e472d57cf1ae89d5517c348af827dd00df3f1d4defd5e8c6891f82cb.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Comparaison Du Sérieux Des Différents Domaines Selon ABBYY : Quel Domaine Est Le Plus Rigoureux ?
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Étude ABBYY : respect des processus, quel secteur est le plus rigoureux ?
 
 15 juillet 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Près de la moitié (46 %) des décideurs évoluant dans le secteur de la banque-finance considèrent que les processus sont rigoureusement suivis dans leur entreprise, contre seulement 15 % dans le secteur public._
 
 Selon une étude conduite par ABBYY, le spécialiste de l’intelligence digitale, dans les entreprises du secteur de la banque-finance, les processus sont trois fois plus respectés que dans le secteur public. L’une des explications à cet écart est la complexité des processus jugés trop complexes ou trop nombreux pour être suivis. Du reste, il est encourageant de constater que les décideurs du secteur de la banque-finance sont ouverts de nouvelles technologies. Et pour cause, quasiment la totalité (98 %) des décideurs de ce secteur pensent que les technologies de Process Mining sont ou seraient utiles à leur entreprise, tout comme 89 % des dirigeants du secteur de l’assurance.
 
 ![infographic](https://static1.abbyy.com/abbyycommedia/29023/11982_infographics_process-mining_abbyy-survey_fr_300dpi.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 _« Une des étapes essentielles pour accélérer la mutation digitale d’une entreprise est d’en appréhender les processus. Cette étape est indispensable pour les optimiser. C'est particulièrement important pour les établissements financiers qui sont confrontés à une pression soutenue depuis le début de la pandémie. L’enjeu dans ce secteur est d’assurer la continuité des activités et de s’adapter aux nouvelles attentes des clients. L’innovation insufflée par le Process Intelligence le permet. »_, remarque Linda Ameur, directrice France d’ABBYY.
 
@@ -38,6 +68,18 @@ Les décideurs du secteur de la banque-finance estiment que leurs effectifs sont
 
 ![](https://static1.abbyy.com/abbyycommedia/29012/pr-1407-table-1-fr.png)
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Quels facteurs freinent la bonne application des processus ?**
 
 Lorsque les salariés évoluent dans l’univers de la banque ou de la finance s’éloignent des processus, c'est souvent pour fournir une meilleure qualité de service à leurs clients. En effet, près de 2/3 des décideurs dans le domaine de l’assurance (62 %) sont convaincus que leurs équipes le font dans cette optique. La moitié (50 %) des décideurs du secteur de la banque-finance partage ce constat. Cela laisse entendre que ce secteur des services financiers est particulièrement orienté client et davantage prédisposé à contourner les règles si cela est dans l’intérêt de ces derniers, notamment pour pallier des processus peu optimisés.
@@ -46,6 +88,12 @@ _« Ce n'est qu'une fois que chaque processus a été identifié, examiné, amé
 
 ![](https://static1.abbyy.com/abbyycommedia/29013/pr-1407-table-2-fr.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
   
 Pour en savoir plus sur la manière dont les entreprises du secteur de la banque-finance peuvent gérer leurs processus et leurs contenus, consultez [le dernier webinaire d'ABBYY](https://tools.techidaily.com/abbyy/products/) portant sur l'intelligence numérique appliquée aux services financiers.
 
@@ -135,10 +183,3 @@ Connect with us
 <li><a href="https://solve-marvelous.techidaily.com/warum-unternehmen-content-kenntnis-erwerben-mussen-um-die-entwicklung-der-intelligenten-prozessautomation-voranzutreiben-eine-abbyy-langzeitstudie-versteht-17/"><u>Warum Unternehmen Content-Kenntnis Erwerben Müssen, Um Die Entwicklung Der Intelligenten Prozessautomation Voranzutreiben – Eine ABBYY-Langzeitstudie Versteht Es</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/what-is-process-mining-and-why-use-it-a-comprehensive-guide/"><u>What Is Process Mining and Why Use It: A Comprehensive Guide</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

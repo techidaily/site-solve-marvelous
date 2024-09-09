@@ -1,7 +1,7 @@
 ---
 title: "Masterful Mobile Tools: ABBYY's Guide to Enhancing Smartphone Productivity with OCR"
-date: 2024-09-03T22:44:22.187Z
-updated: 2024-09-04T22:44:22.187Z
+date: 2024-09-08T23:38:27.140Z
+updated: 2024-09-09T23:38:27.140Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0138e2483878b61786c62e2e9ead335ddaa2649c1800ba21659cf76cde33dc5d.jpg
@@ -11,18 +11,36 @@ thumbnail: https://thmb.techidaily.com/0138e2483878b61786c62e2e9ead335ddaa2649c1
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Speaking Smartphones, To-Do Lists, and Calculator Tips
 
 November 28, 2022
 
 ![](https://static1.abbyy.com/abbyycommedia/26060/mobile-monday-12.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _Editorial note: FineReader PDF Mobile for Android, Business Card Reader for Android, and Text Grabber for Android & iOS have been discontinued since September 2023\. You can learn more about that [here](https://tools.techidaily.com/abbyy/products/)._
 
 ---
 
 We all enjoy tales about the rise of the machines, but let’s face it: our smartphones are getting smarter! With this issue you will learn how to teach your smartphone to speak, export business cards, and never forget a thing.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **iOS Tip: Teaching Your iPhone to Speak**
 
 You won’t become a proud owner of a pocket Terminator, of course, but your smartphone will be able to talk at least like a three-year-old thanks to [VoiceOver](https://www.apple.com/accessibility/iphone/vision/), a screen-reading technology that tells you what’s happening on your iPhone. Indispensable for vision-impaired users, this feature serves as a mediator between the interface and the user, reading out loud screen elements and actions that you take within apps.
@@ -57,6 +75,18 @@ Smartphones powered by Android are also capable of speaking to their users and g
 
 ![Android teach smartphone to speak TalkBack](https://static1.abbyy.com/abbyycommedia/26063/01140716-83af-4ce3-b3c3-b48dbccd4de9-e1509384509701.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 There are three ways to activate [TalkBack](https://play.google.com/store/apps/details?id=com.google.android.marvin.talkback&hl=en) on your phone:
 
 1. Press and hold both volume control buttons for three seconds.
@@ -82,19 +112,19 @@ After activating [TalkBack](https://play.google.com/store/apps/details?id=com.go
 ![TalkBack app Android settings](https://static1.abbyy.com/abbyycommedia/26064/android_7_nougat_talkback_fig_10-e1509384740886.png)
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 For more details on [TalkBack](https://play.google.com/store/apps/details?id=com.google.android.marvin.talkback&hl=en) and its capabilities, please visit [this help page](https://support.google.com/accessibility/android/answer/6283677?hl=en). ABBYY TextGrabber for both Android and iOS uses screen reading features to help vision-impaired users. You can also automatically copy the recognized text to the clipboard and listen to it in your headphones or via third-party apps.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **ABBYY Tip: Exporting Business Cards From Business Card Reader**
 
 There are two ways to export business cards from [Business Card Reader](https://bcrfree.app.link/mobilemonday) — as a \*.csv file or through Salesforce (currently works only on iOS). Here’s instructions for iPhone users. The most hassle-free way to do this is as follows:
@@ -107,16 +137,10 @@ There are two ways to export business cards from [Business Card Reader](https://
 ![Busines Card Reader (Scanner) Abbyy](https://static1.abbyy.com/abbyycommedia/26066/image-1-e1509384965944.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 On an Android device:
 
@@ -125,20 +149,8 @@ On an Android device:
  In order to export the entire database, check the box at the top.  
 ![](https://static1.abbyy.com/abbyycommedia/37169/mceclip1.png)
 2. Tap the Share button > select Export to CSV > MS Outlook or Google Contacts.  
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://static1.abbyy.com/abbyycommedia/37170/mceclip2.png)
 3. The file will be created automatically. Now you can share it with anyone right away!
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 To open a CSV file with the business cards in MS Excel, choose the file in **File Explorer**. If your system settings prevent the contents of the file from being displayed correctly, do the following:
 
@@ -153,12 +165,6 @@ To open a CSV file with the business cards in MS Excel, choose the file in **Fil
 
 It’s that simple!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030373/7443" target="_top" id="2030373">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030373" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030373/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **App of The Week: Track Your Working Hours Effectively** 
 
 [Hourly](https://apps.apple.com/us/app/hourly-time-and-task-manager/id1308461936) will help you to control your time spent on every task effectively. Create a to-do list of tasks, count the time spent on each task, and track how productive your work was during the day and month.
@@ -176,16 +182,10 @@ And finally, why Hourly?
 5. Voiceover accessible.
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="125" height="125" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **First-Hand Experience:** Advice From a Colleague
 
@@ -194,10 +194,10 @@ _Shared by Anton Zakharenkov, designer_
 ![iPhone calculator correcting mistakes ABBYY](https://static1.abbyy.com/abbyycommedia/26069/img_1989_1024-e1509385530895.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Today I’m going to share with you a tip that is both hugely useful and little know to most users. It’s about correcting mistakes in the iPhone calculator. Calculator is an app no one can do without. We all have our phones in our pockets and we all need to make complicated calculations now and then.
 
@@ -209,6 +209,12 @@ You are welcome.:)
 
 ![undo typing iOS calculator Abbyy](https://static1.abbyy.com/abbyycommedia/26070/calc_2x_1024-e1509385642453.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 That’s all for today, guys. As usual, the next issue of this newsletter will be out next Monday. The previous issue is available [here](https://tools.techidaily.com/abbyy/products/).
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 

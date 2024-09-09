@@ -1,24 +1,48 @@
 ---
 title: "Cookiebot-Enabled: Enhancing Your Website's Visitor Tracking Experience"
-date: 2024-09-03T22:44:20.972Z
-updated: 2024-09-04T22:44:20.972Z
+date: 2024-09-08T23:38:25.930Z
+updated: 2024-09-09T23:38:25.930Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6ed52b8d826a5b6701c9229d81239cb21a1a6ea95480871656b8b252c90f9890.jpeg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Enhancing Your Website's Visitor Tracking Experience
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## In Zeiten großer Resignation: Laut ABBYY-Studie glauben 56% der deutschen Arbeitnehmer, dass KI-Lösungen ihre Arbeit erleichtern würden
 
 10\. November 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![News Artificialintelligence 1](https://static5.abbyy.com/abbyycommedia/33482/news-artificialintelligence-1.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Laut einer neuen globalen Studie von ABBYY, ein Unternehmen für Digital Intelligence, gaben 58% der befragten Mitarbeiter in Deutschland an, dass ihre Arbeit dadurch erschwert wird, dass sie nicht auf Daten in Dokumenten zugreifen können, die für ihre Arbeit erforderlich sind. 95% der Befragten verbringen bis zu 8 Stunden pro Woche damit, in Dokumenten nach Informationen zu suchen, die sie unter anderem für die Kundenbetreuung benötigen. Ein Viertel (25%) verliert somit wöchentlich einen gesamten Arbeitstag an Zeit. Unter der Herausforderung, dass geschäftskritische Informationen heute in verschiedensten digitalisierten Dokumenten enthalten sind, einschließlich PDFs, Excel-Tabellen, E-Mails, Bildern, Textnachrichten oder Chatbot-Konversationen, können Mitarbeiter ihre Zeit nicht optimal nutzen. Das kann sich negativ auf Geschäftsentscheidungen und das Kundenerlebnis auswirken – und es kann Auswirkungen darauf haben, dass Mitarbeiter unter aktuellen Bedingungen, in der zahlreiche Arbeitnehmer mit Kündigungsgedanken spielen, ihren Arbeitsplatz verlassen.
 
 Mitarbeiter möchten weniger Zeit mit der manuellen Suche nach Informationen und mehr Zeit mit strategischen und bedeutungsvollen Aufgaben, wie dem Aufbau von Kundenbeziehungen verbringen, die sie motivieren und ihren Einfluss erhöhen. Nicht oder nur schwer auf Daten in Dokumenten zugreifen zu können führt jedoch zu Verzögerungen bei der Durchführung von Prozessen (46%), zu vermehrten manuellen Tätigkeiten (33%), zu Fehlern (28%) und zu schlechten Kundenerlebnissen (15%). Demotivierte Mitarbeiter müssen dann einspringen, um Fehler zu beheben und Lücken zu schließen, was sie davon abhält, sich auf anspruchsvollere, komplexere Projekte zu konzentrieren. Über ein Viertel (26%) ist der Meinung, dass KI-Technologien zur Verarbeitung von Dokumenten hier Abhilfe schaffen können.
@@ -31,6 +55,12 @@ Die Studie zeigt, dass Unternehmen, die in KI-basierte Lösungen für die Dokume
 
 ![](https://static1.abbyy.com/abbyycommedia/34733/infographics-de.jpg?width=1182&height=620)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _"Auch im heutigen digitalen Zeitalter kommt man an der Verwendung von Dokumenten in keinem Unternehmen vorbei. Gerade in Zeiten, in denen Angestellte zunehmend mit dem Gedanken spielen, Arbeitgeber zu verlassen, die ihnen nicht die Möglichkeiten, Tools und Unterstützung bieten, die sie benötigen, ist es wichtig, Mitarbeiter mit Lösungen wie KI-Technologien zu fördern, insbesondere wenn es sich um dokumentenzentrierte Aufgaben handelt“,_ sagt **Weronika Niemczyk, Chief People Officer bei ABBYY**_. „Der Einsatz von KI-Skills für die Bearbeitung von Dokumenten führt zu erheblichen Vorteilen – nicht nur in Bezug auf die Geschwindigkeit von Prozessen und die Reduzierung von Fehlern, sondern er verringert auch den Bedarf an zusätzlichem Personal. Das Ergebnis sind zufriedenere und engagiertere Mitarbeiter, die mehr Zeit haben, um sich den Aufgaben zu widmen, auf die es ankommt - nämlich hervorragende Kundenerlebnisse zu bieten und kreative Problemlösungen zu finden."_
 
 Erfahren Sie mehr darüber, wie ABBYY dokumentenzentrierte Herausforderungen mit seiner No-Code-Plattform und dem Marktplatz für KI-Skills löst: [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/).
@@ -45,27 +75,15 @@ ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Ges
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Bianca Stupp
 

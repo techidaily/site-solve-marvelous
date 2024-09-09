@@ -1,16 +1,40 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Website's User Experience & Tracking"
-date: 2024-09-03T22:44:19.743Z
-updated: 2024-09-04T22:44:19.743Z
+date: 2024-09-08T23:38:24.815Z
+updated: 2024-09-09T23:38:24.815Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5996397f505d52b0f60ffe77c36fd8859621590a57dd0707f44eeaa06c560dbc.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Enhance Your Website's User Experience & Tracking
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY’s UK Partner Day Highlights Innovation and ROI Using AI
 
 April 23, 2024
@@ -25,6 +49,12 @@ Despite some claims that intelligent document processing (IDP) is obsolete, Max 
 
 **![abbyy-uk-partner-day-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-uk-partner-day/abbyy-partner-day-uk-2024_1.jpg)** 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### How the NHS found success with ABBYY Vantage and Extra Technology 
 
 Extra Technology showcased the transformative power of [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/), for fully automating invoice processing and reducing payment risk at the Manchester NHS Trust, where thousands of different types of invoices are processed a year. With ABBYY’s continuous machine learning capabilities, post-processing and data validation, invoicing times were significantly reduced, freeing up staff to focus on other business-critical areas and yielding cost-savings in the millions. 
@@ -37,6 +67,12 @@ Edd Berry, Director of Finance Innovation, Manchester University NHS Foundation 
 
 **![abbyy-uk-partner-day-2](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-uk-partner-day/abbyy-partner-day-uk-2024_3.jpg)** 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### How to streamline freight processes with ABBYY 
 
 Intelligent document processing (IDP) can have tremendous positive impact for transportation and logistics organizations. In the intricate world of supply chain, the movement of freight relies heavily on paperwork. Each cross-border transaction demands an average of 36 documents, yet shockingly, less than one percent of these vital papers are digitized. With a staggering 50 million bills of lading issued annually, and a mere two percent being electronic, it's evident that the industry's reliance on paper documentation persists, echoing practices dating back decades. 
@@ -73,6 +109,12 @@ _Subscribe to stay connected with email updates and thought leadership insights 
 
 ![Dan Corp](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/autors-headshots/dan_corp.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Dan Corp
 
 Senior Partner Manager UK & Ireland at ABBYY
@@ -198,10 +240,3 @@ Connect with us
 <li><a href="https://bypass-frp.techidaily.com/samsung-galaxy-m14-4g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Samsung Galaxy M14 4G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
 <li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-infinix-smart-8-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Infinix Smart 8 Phone Pattern Lock</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

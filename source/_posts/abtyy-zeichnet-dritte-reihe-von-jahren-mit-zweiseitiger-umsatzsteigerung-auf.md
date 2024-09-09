@@ -1,22 +1,40 @@
 ---
 title: ABTYY Zeichnet Dritte Reihe Von Jahren Mit Zweiseitiger Umsatzsteigerung Auf
-date: 2024-09-03T22:44:22.484Z
-updated: 2024-09-04T22:44:22.484Z
+date: 2024-09-08T23:38:27.454Z
+updated: 2024-09-09T23:38:27.454Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9332c7608a3b7c0a804f93bd3e8889a390304fedee62792e7be872d16bace959.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABTYY Zeichnet Dritte Reihe Von Jahren Mit Zweiseitiger Umsatzsteigerung Auf
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY erzielt drittes Jahr in Folge ein jährliches Umsatzwachstum im zweistelligen Bereich
 
 24\. März 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Zu den Wachstumsfaktoren im Jahr 2019 zählten RPA-Partnerschaften, die Erweiterung des Produktportfolios und eine verstärkte globale Präsenz_
 
 ABBYY, globaler Anbieter von Technologien und Unternehmenslösungen für Digital Intelligence, gab heute seine Ergebnisse für das Jahr 2019 bekannt: das Unternehmen verzeichnet erneut ein zweistelliges Umsatzwachstum im Vergleich zum Vorjahr und ist speziell beim Geschäft rund um RPA-Integrationen und strategische Partnerschaften gewachsen. Zu den weiteren Erfolgsfaktoren gehörte die Erweiterung des Produktportfolios nach der Übernahme von TimelinePI – jetzt [ABBYY Timeline](https://tools.techidaily.com/abbyy/products/) und bis dato einzige End-to-End Process Intelligence-Plattform.
@@ -149,10 +167,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://hardware-updates.techidaily.com/unveiling-the-secrets-of-high-performance-computing-with-toms-reviews/"><u>Unveiling the Secrets of High-Performance Computing with Tom's Reviews</u></a></li>
 <li><a href="https://printer-issues.techidaily.com/windows-missing-hp-print-drivers-unfound/"><u>Windows Missing: HP Print Drivers Unfound</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

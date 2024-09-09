@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance User Experience with Personalized Website Analytics"
-date: 2024-09-03T22:44:24.394Z
-updated: 2024-09-04T22:44:24.394Z
+date: 2024-09-08T23:38:29.296Z
+updated: 2024-09-09T23:38:29.296Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/08c3aa17e0d4eaa82a6912035c2625c6aeb814a3c6b04915c834196ff8d149e8.jpg
@@ -17,6 +17,12 @@ February 10, 2022
 
 ![](https://static1.abbyy.com/abbyycommedia/35210/848x444-branded-visual-professionals-2-1.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 As we march full steam ahead into 2022, we couldn’t help but reflect on how intelligent process automation technology enabled companies to pivot, grow, and focus on their digital transformation journeys. From big product announcements to thought-provoking pieces, we had several great articles that unlocked tips and insight to help organizations accelerate their business growth.
 
 Here are our most read articles of 2021 that provide context to the progress made and issues facing organizations.
@@ -27,19 +33,31 @@ Healthcare Global featured our big announcement of the [ABBYY Marketplace](https
 
 [Read the article](https://healthcareglobal.com/technology-and-ai-3/abbyys-new-no-code-ai-technology-could-be-gamechanger)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **2\. ABBYY Blog**: Amidst the Great Resignation, 52% of employees believe AI skills will make their job easier, according to ABBYY survey
 
 ![the great resignation and document challenges](https://static1.abbyy.com/abbyycommedia/35211/news-artificialintelligence-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Employees want to feel empowered through work that matters, such as building meaningful customer relations, rather than spending time manually searching for information. Yet, the inability to access data in documents is leading to delays in completing processes, increased manual handling, errors and poor customer experience. Read what 4,000 respondents worldwide said are their document challenges and how no-code Intelligent Document Processing and document skills can make working with documents easier, and happier employees.
 
 [Read the article](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **3\. CMSWire**: ABBYY Reaffirms Its Digital Transformation Cred & More News
 
@@ -47,38 +65,26 @@ In David Roe’s roundup of tech news on CMSWire, he included our news about the
 
 [Read the article](https://www.cmswire.com/digital-workplace/slack-creates-privacy-fuss-abbyy-reaffirms-its-digital-transformation-cred-more-news/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **4\. Analytics Insight**: How CIOs Can Get the Most ROI from Digital Transformation Budgets
 
 ![Anthony Macciola, CIO, ABBYY](https://static1.abbyy.com/abbyycommedia/35215/anthonymacciola-848x444.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 While technology is quickly changing the nature of business, its investment processes haven’t always maintained the same rate of progress. ABBYY’s Chief Innovation Officer (CIO) [Anthony Macciola](https://tools.techidaily.com/abbyy/products/)shares why CIOs need to rethink technology budgeting, how to get the most return on investment (ROI) from it, prioritize their digital investments, and 3 ways CIOs can achieve all of this in his article for Analytics Insight.
 
 [Read the article](https://bit.ly/3lH8Mmt)
 
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **5\. Supply & Demand Chain Executive**: AP Automation: The Key to Long-Term Financial Health in the Supply Chain
 
 This article highlighted to supply chain leaders the reasons why accounts payable (AP) automation hasn’t been completed, including fear of taking on the project, loss of control, not having the IT staff to carry it out, and integrating with current systems. We explain how they can make a business case for AP automation, how to select the right technology, and how to measure its ROI.
@@ -86,10 +92,10 @@ This article highlighted to supply chain leaders the reasons why accounts payabl
 [Read the article](https://www.sdcexec.com/sourcing-procurement/article/21366306/abbyy-ap-automation-the-key-to-longterm-financial-health-in-the-supply-chainAP Automation: The Key to Long-Term Financial Health in the Supply Chain)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **6\. KMWorld**: KMWorld Readers’ Choice Award 2021 Winners
 
@@ -103,12 +109,6 @@ _Tom Hogan, Group Publisher at KMWorld_
 
 [Process Mining](https://tools.techidaily.com/abbyy/products/) [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Intelligent Document Processing (IDP)](https://www.abbyy.com/blog/intelligent-document-processing-idp/ "Intelligent Document Processing (IDP)") [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

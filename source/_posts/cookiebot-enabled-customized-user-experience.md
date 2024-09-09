@@ -1,22 +1,46 @@
 ---
 title: Cookiebot-Enabled Customized User Experience
-date: 2024-09-03T22:44:24.375Z
-updated: 2024-09-04T22:44:24.375Z
+date: 2024-09-08T23:38:29.277Z
+updated: 2024-09-09T23:38:29.277Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f07bcde69983933cb76ff9d178455e2b69ef74b8fc7b5950817350ad54cf2512.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled Customized User Experience
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY to showcase powerful AI for documents at AI Summit London
 
 June 11, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY®, a global provider of content intelligent solutions and services, will join the world’s foremost innovators at The AI Summit London on 13th and 14th June. ABBYY, a Platinum Sponsor of the conference, will showcase its expertise in Artificial Intelligence (AI), innovations in AI-powered content intelligence and digital transformation alongside Microsoft, Facebook, Amazon, Google, Accenture and IBM, to help participants gain a practical understanding of AI, its use cases and impact on content-centric business processes
 
 During the keynote at 2:25pm on the 14th June, ABBYY Chief Innovation Officer Anthony Macciola will address the challenge of getting valuable insights from unstructured content to gain a competitive edge. He will discuss trends in Robotic Process Automation and talk about how content intelligence can make robots smarter. “AI improves the way enterprises and organisations understand their customers, their desires, and goals. Content Intelligence enables real-time understanding of content and communications, providing faster, more convenient customer service and efficient processing of information. Resolving customer service issues before they arise could significantly lower customer abandonment rates,” commented Anthony Macciola, Chief Innovation Officer at ABBYY Global.
@@ -105,16 +129,3 @@ Connect with us
 <li><a href="https://solve-marvelous.techidaily.com/revolutionizing-mobile-tech-music-streaming-and-e-signatures-with-smartwatches-insights-from-the-abbyy-blog/"><u>Revolutionizing Mobile Tech: Music Streaming & E-Signatures with Smartwatches – Insights From the ABBYY Blog</u></a></li>
 <li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-google-pixel-8-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Google Pixel 8? Fixed | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="120" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

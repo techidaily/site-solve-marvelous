@@ -1,22 +1,40 @@
 ---
 title: "Cookiebot-Enabled: Enhancing Your Site's Analytics and Personalization"
-date: 2024-09-03T22:44:22.618Z
-updated: 2024-09-04T22:44:22.618Z
+date: 2024-09-08T23:38:27.585Z
+updated: 2024-09-09T23:38:27.585Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee1459c9f567932a80d4f33ce93.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Enhancing Your Site's Analytics and Personalization
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Timeline 5.0 にタスクマイニング機能が追加され、人、プロセス、コンテンツを結びつけることが可能に
 
 10月13日, 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _最新バージョンのプラットフォームでは、ユーザーのインタラクションとビジネスプロセスが結びつけられており、360度の視点で業務を考察することが可能になりました。組織はそれを通じてデータに基づいた意思決定ができ、業務遂行能力をアップさせることができます。_
 
 デジタルインテリジェンスで知られる企業ABBYYは今日、Timeline 5.0の発売を発表しました。唯一のエンドツーエンドのプロセスインテリジェンスプラットフォームであるTimeline 5.0では、人、プロセス、コンテンツのインサイトを組み合わせることで、ビジネスオペレーションを360度の視点から可視化しています。新しいタスクマイニング機能と特許出願中のプロセスマイニング技術を活用して、Timelineはデスクトップユーザーの操作データを分析し、システムイベントデータからマイニングしたプロセスの詳細とシームレスにリンクさせています。それにより組織は、業務効率を高め、顧客体験を向上させ、インパクトあるデジタルトランスフォーメーションのイニシアチブを加速させることができるようになります。
@@ -130,10 +148,3 @@ Connect with us
 <li><a href="https://tech-haven.techidaily.com/unclogging-windows-overwhelmed-chatgpt/"><u>Unclogging Windows' Overwhelmed ChatGPT</u></a></li>
 <li><a href="https://ai-driven-video-production.techidaily.com/updated-get-ready-for-the-big-screen-top-movie-trailer-apps-for-iphone-and-ipad-for-2024/"><u>Updated Get Ready for the Big Screen Top Movie Trailer Apps for iPhone and iPad for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

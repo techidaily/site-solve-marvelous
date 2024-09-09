@@ -1,22 +1,40 @@
 ---
 title: "Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Solutions"
-date: 2024-09-03T22:44:24.431Z
-updated: 2024-09-04T22:44:24.431Z
+date: 2024-09-08T23:38:29.332Z
+updated: 2024-09-09T23:38:29.332Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f49bc8cad6beb9dab5f0418b9b2ef89c1f57811a05de89bd7149842bbd8e67a6.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Solutions
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## iGuana et ABBYY unissent leurs forces pour aider les entreprises à rationaliser et à automatiser leurs processus de comptabilité fournisseurs
 
 15 février 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY et [iGuana](https://iguana-idm.com/fr/ "iGuana"), fournisseur leader de solutions de gestion de documents et d’archivage numérique dans le BÉNÉLUX, ont le plaisir de vous annoncer le lancement de leur partenariat.
 
 En effet, iGuana et ABBYY ont décidé d’unir leurs forces pour aider leurs clients ‘Entreprises’ à rationaliser et à automatiser les processus de facturation de leurs départements Comptabilité fournisseurs (CF). L’objectif premier de ce partenariat est d’intégrer deux puissantes plateformes logicielles d’entreprise dans une solution à guichet unique dotée des fonctions suivantes : capture automatique de factures, extraction de données, traitement intelligent et archivage numérique.
@@ -165,10 +183,3 @@ Connect with us
 <li><a href="https://solve-marvelous.techidaily.com/unlocking-efficiency-in-purchase-to-pay-processes-strategies-for-success/"><u>Unlocking Efficiency in Purchase-to-Pay Processes: Strategies for Success</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/unlocking-website-potential-with-cookiebot-technology/"><u>Unlocking Website Potential with Cookiebot Technology</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

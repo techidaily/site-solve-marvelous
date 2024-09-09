@@ -1,22 +1,46 @@
 ---
 title: "Optimize With Cookiebot: Next-Level Analytics and Personalization Power"
-date: 2024-09-03T22:44:23.908Z
-updated: 2024-09-04T22:44:23.908Z
+date: 2024-09-08T23:38:28.836Z
+updated: 2024-09-09T23:38:28.836Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a9af59315aea8cc232d9e9df37ddf4fb252ec7cdb030d740feb1460fb864db26.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Optimize With Cookiebot: Next-Level Analytics and Personalization Power
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Christian Marquardt neuer Channel-Chef bei ABBYY Europe
 
 19\. September 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY®, ein globaler Anbieter von Lösungen und Services für Content Intelligence, stellt mit Christian Marquardt einen neuen Channel-Chef für die europäischen Kernregionen an. Marquardt wird ab sofort in der Rolle des Director of Partnerships & Alliances DACH, BeNelux, France & UK das Wachstum des Partnergeschäfts in den Tier-1-Regionen in Europa weiter vorantreiben.
 
 „Christian verfügt über langjährige Erfahrung und fundierte Kenntnisse sowohl in der Capture-Branche als auch im RPA-Umfeld. Diese konnte er während seiner beruflichen Laufbahn ausbauen. Er kennt sowohl den Markt als auch die Partnerlandschaft“, so Markus Pichler, VP Global Partnerships & Alliances. „Ich bin mir sicher, dass Christian sowohl menschlich als auch fachlich ein Gewinn für mein Team sein wird. Denn er vereint technisches Hintergrundwissen mit umfangreicher Erfahrung im indirekten Vertrieb und weiß, was im Channel-Markt wichtig ist.“
@@ -118,10 +142,3 @@ Vernetzen Sie sich mit uns
 <li><a href="https://some-tips.techidaily.com/the-quest-for-ultimate-clarity-with-the-z32x-monitor-for-2024/"><u>The Quest for Ultimate Clarity with the Z32X Monitor for 2024</u></a></li>
 <li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-infinix-smart-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Infinix Smart 8 | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

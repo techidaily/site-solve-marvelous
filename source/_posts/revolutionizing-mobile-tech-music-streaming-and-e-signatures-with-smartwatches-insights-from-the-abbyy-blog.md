@@ -1,12 +1,18 @@
 ---
 title: "Revolutionizing Mobile Tech: Music Streaming & E-Signatures with Smartwatches – Insights From the ABBYY Blog"
-date: 2024-09-03T22:44:23.233Z
-updated: 2024-09-04T22:44:23.233Z
+date: 2024-09-08T23:38:28.172Z
+updated: 2024-09-09T23:38:28.172Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/800871781dded7ace3211c5534653c24a5267e768de909ec1df6dcfa19126cf1.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Revolutionizing Mobile Tech: Music Streaming & E-Signatures with Smartwatches – Insights From the ABBYY Blog
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -23,6 +29,12 @@ Smartwatches are everywhere. They come in all shapes and sizes with tons of usef
 
 ![many smart watches](https://static1.abbyy.com/abbyycommedia/31251/many-smartwatches.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 One of the most popular smartwatch features is the music player. Your phone may be too bulky for a workout but a smartwatch is just the ticket. Read on to find out how to play music on your wearable gadget without having your smartphone within range.
 
 ## **iOS Tip: Listening to Music on Your Apple Watch Without Having Your iPhone Nearby**
@@ -43,24 +55,72 @@ Proceed as follows:
 
 ![create new playlist on iPhone music app](https://static1.abbyy.com/abbyycommedia/31241/musicwatch3.png)
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![music playlist for apple watch](https://static1.abbyy.com/abbyycommedia/31242/musicwatch4.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * Select the desired tracks, name your playlist, and tap **Save**.
 * Open the Watch app on the smartphone and select My Watch → Music.
 * Tap Add Music…
 
 ![Apple Watch Music settings](https://static1.abbyy.com/abbyycommedia/31239/iphone-watch-music.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * In the **Automatically Add** section, you can enable or disable playlists. Songs in your enabled playlists will be automatically saved on your wearable device. For example, the **Heavy Rotation** playlist will include your recently played tracks. If you are an Apple Music subscriber, the tracks in the **New Music Mix** and **Favorites Mix** playlists will be automatically loaded into your watch. If you listen to a lot of music and mark tracks you like with a heart icon, the **For You** section will list recommendations based on your likes.
 
 ![how to modify apple watch playlists](https://static1.abbyy.com/abbyycommedia/31250/iphone-like-music.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Apple Music Love a song](https://static1.abbyy.com/abbyycommedia/31238/iphone-like-music2.png)
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Now that you have loaded the tracks into your watch, put your earphones into pairing mode, go to the Bluetooth settings on your watch, and pair it with your earphones.
 
 ![Apple Watch pair Bluetooth device](https://static1.abbyy.com/abbyycommedia/31248/applewatch-headphones.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Now open the Music app and when it says “Choose a music source to play from”, select **Apple Watch**. Then tap **Play** et voila—you can enjoy your favorite music playing on your Apple Watch!
 
 ![play music from Apple Watch](https://static1.abbyy.com/abbyycommedia/31249/applewatch-music.jpg)
@@ -73,6 +133,18 @@ If you have an active subscription to Apple Music, your media library will be au
 
 ![listen to music on Apple Watch](https://static1.abbyy.com/abbyycommedia/29830/watchos4-3-series2-apple-music-library-animation.gif)
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Remember that you can also ask Siri to launch desired tracks.
 
 ## **Android Tip: Listening to Music on Wear OS-Powered Devices**
@@ -89,12 +161,6 @@ A Wear OS-powered watch allows you to download tracks and listen to them offline
 
 Naturally, when your watch is offline it will only play previously downloaded tracks.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **ABBYY Tip: How to Sign a Document in FineScanner for iOS**
 
 [FineScanner for iOS](http://qrs.ly/pl4x25p) lets you add a signature to your document in seconds:
@@ -112,10 +178,16 @@ Now you are ready to send the document to your colleagues to complete the approv
 To learn more about other PDF editing features available in FineScanner, see [this article](https://tools.techidaily.com/abbyy/products/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **App of the Week: SimpleMind**
 
@@ -125,48 +197,36 @@ Mind maps are an excellent way to visually organize your ideas and plans. They c
 
 ![mind map app](https://static1.abbyy.com/abbyycommedia/31243/simple-mind.png)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Create a new mind map and specify a “central topic”. In this example, we are drawing a mind map to prepare for a holiday. Tap the plus icon to add associated ideas. Here’s what you may want to consider: pack beach clothes and sunscreen, don’t forget your flight tickets, check departure time online, remember to water your houseplants before you leave. Put all these on the map.
 
 Tap the “Т” icon to add a note to an item. It won’t be shown on the map but you can open it at any time by simply tapping on it.
 
 ![SimpleMind app](https://static1.abbyy.com/abbyycommedia/31246/simplemind5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The app offers a wide variety of visual styles for your diagrams!
 
 ![Mind Map on SimpleMind App](https://static1.abbyy.com/abbyycommedia/31244/simple-mind2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 If you prefer your plan as a list, simply select the **Outline** option in the bottom-left corner.
 
 ![Outline mind map mobile App](https://static1.abbyy.com/abbyycommedia/31245/simple-mind4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The app is available both on [iOS](https://itunes.apple.com/us/app/simplemind-legacy/id304515487) and on [Android](https://play.google.com/store/apps/details?id=com.modelmakertools.simplemindfree&hl=ru). The basic functions are available free of charge. You can also purchase additional features such as the ability to change colours, add images and photos, add hyperlinks to mind maps, AirPrint mind maps, and more. See the screenshot below for the complete list of paid-for features.
 
 ![simple mind app](https://static1.abbyy.com/abbyycommedia/31247/simplemind6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **First-Hand Experience: Advice From a Colleague**
 
 _By Ludmila Krasnova, Marketing Manager_

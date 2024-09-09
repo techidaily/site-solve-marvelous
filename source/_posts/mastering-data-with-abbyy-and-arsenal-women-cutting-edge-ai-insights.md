@@ -1,16 +1,28 @@
 ---
 title: "Mastering Data with ABBYY & Arsenal Women: Cutting-Edge AI Insights"
-date: 2024-09-03T22:44:23.145Z
-updated: 2024-09-04T22:44:23.145Z
+date: 2024-09-08T23:38:28.089Z
+updated: 2024-09-09T23:38:28.089Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c1b8f5eb5059b436ba72d1c75d15b589d4913c1c77b2ab824b82342859c0a119.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Mastering Data with ABBYY & Arsenal Women: Cutting-Edge AI Insights
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY x Arsenal Women: Let’s Get Real with Alessia Russo, Kyra Cooney-Cross and Emily Fox
 
 July 5, 2024
@@ -61,6 +73,12 @@ Ready to learn how ABBYY can put your information to work? [Sign up](https://too
 
 ![Colin Busick](https://www.abbyy.com/-/jssmedia/project/Abbyy/Abbyy/Insights/Blog/Autors-Headshots/colin-busick-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Colin Busick
 
 Colin Busick is the United States and Asia-Pacific Public Relations Specialist at ABBYY, supporting initiatives to drive global awareness of ABBYY’s leadership in artificial intelligence and intelligent automation. With demonstrable writing proficiency and a passion for storytelling, Colin’s innovation-oriented perspective has amplified ABBYY’s message of purpose-built AI to reach business and technology audiences worldwide.
@@ -170,10 +188,3 @@ Connect with us
 <li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-online-dailymotion-converter-convert-videos-in-seconds/"><u>Updated 2024 Approved Online Dailymotion Converter Convert Videos in Seconds</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/website-optimization-with-cookiebot-integration/"><u>Website Optimization with Cookiebot Integration</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

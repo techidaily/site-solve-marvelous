@@ -1,22 +1,40 @@
 ---
 title: "NelsonHall's 2020 Technology Radar: ABBYY Recognized as Front-Runner in Process Mining & Data Analysis Techniques"
-date: 2024-09-03T22:44:23.894Z
-updated: 2024-09-04T22:44:23.894Z
+date: 2024-09-08T23:38:28.820Z
+updated: 2024-09-09T23:38:28.820Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/10021b17375d6e35424f943b31fb1f59b98c4b332e933017960911271c0d2245.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## NelsonHall's 2020 Technology Radar: ABBYY Recognized as Front-Runner in Process Mining & Data Analysis Techniques
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## NelsonHall Names ABBYY a Leader in Process Discovery & Mining NEAT Assessment 2020
 
 June 23, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [ABBYY](https://tools.techidaily.com/abbyy/products/)®, a Digital Intelligence company, has been identified by NelsonHall, a global analyst firm specializing in digital operations transformation, as a Leader in its NEAT vendor evaluation for Process Discovery and Mining. ABBYY is positioned in the top grouping in the comparative assessment among 15 vendors due to its ability to deliver immediate benefit and meet future client requirements.
 
 NelsonHall Research Analyst and author of the report, **Bailey Kong**, said: “ABBYY Timeline offers a platform that is clearly designed with the business user in mind. Its enablement of business users to perform frictionless analyses, combined with ABBYY’s investments to integrate content and desktop technologies, positions it at the forefront of the emerging wave of process discovery and mining solutions.”
@@ -29,6 +47,12 @@ In addition to process mining and discovery capabilities,[ABBYY Timeline](https:
 
 ![](https://static1.abbyy.com/abbyycommedia/28790/pdm-overall-final.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 To learn more about ABBYY’s full suite of Digital Intelligence solutions, please visit: <https://www.abbyy.com/solutions/digital-intelligence/>
 
 To view the NelsonHall Vendor Evaluation & Assessment Tool (NEAT) for Process Discovery and Mining, please visit: <https://www.abbyy.com/resources/report/process-discovery-and-mining-evaluation-nelsonhall-2021/>
@@ -125,16 +149,3 @@ Connect with us
 <li><a href="https://solve-marvelous.techidaily.com/website-optimization-with-cookiebot-integration/"><u>Website Optimization with Cookiebot Integration</u></a></li>
 <li><a href="https://facebook-videos.techidaily.com/your-own-beat-no-cost-fb-version-for-2024/"><u>Your Own Beat, No Cost - FB Version for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="80" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

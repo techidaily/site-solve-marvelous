@@ -61,6 +61,63 @@
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-duotone-900.woff2" as="font" crossorigin type="font/woff2">
     <link rel="preload" href="https://cloudflare-cdn.techidaily.com/webfonts/fa-thin-100.woff2" as="font" crossorigin type="font/woff2">
 
+    <!-- tailwind.css -->
+    <script src="https://cloudflare-cdn.techidaily.com/js/libs/tailwindcss.v3.4.5.js" crossorigin></script> 
+    <script>
+    try {
+        tailwind.config = {
+          theme: {
+            extend: {
+              spacing: {
+                unit: "38px",
+              },
+              margin: {
+                "spacing-unit": "38px",
+              },
+              maxWidth: {
+                content: "1280px",
+                "has-toc-content": "120%",
+              },
+              zIndex: {
+                1: 1001,
+                2: 1002,
+                3: 1003,
+                4: 1004,
+                5: 1005,
+                6: 1006,
+                7: 1007,
+                8: 1008,
+                9: 1009,
+              },
+              borderRadius: {
+                none: "0px",
+                xsmall: "4px",
+                small: "9px",
+                medium: "14px",
+                large: "18px",
+                xlarge: "24px",
+                xxlarge: "48px",
+              },
+              fontFamily: {
+                chinese: ["sans-serif"],
+                english: ["Satoshi-Variable", "sans-serif"],
+                default: [
+                  "Satoshi-Variable",
+                  "system-ui",
+                  "sans-serif",
+                ],
+              },
+              fontSize: {
+                default: "16px"
+              },
+              lineHeight: {
+                default: "1.5"
+              }
+            }
+          }
+        }        
+    } catch (e) {}
+    </script>   
 
     <!--- Page Info-->
     
@@ -246,7 +303,7 @@
 
     <script id="hexo-configurations">
     window.config = {"hostname":"solve-marvelous.techidaily.com","root":"/","language":"en"};
-    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1000px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
+    window.theme = {"articles":{"style":{"font_size":"16px","line_height":1.5,"image_border_radius":"0px","image_alignment":"center","image_caption":false,"link_icon":true,"title_alignment":"left","headings_top_spacing":{"h1":"5rem","h2":"4rem","h3":"2.8rem","h4":"2.5rem","h5":"2.2rem","h6":"2rem"}},"word_count":{"enable":true,"count":true,"min2read":true},"author_label":{"enable":true,"auto":false,"list":[]},"code_block":{"copy":true,"style":"mac","font":{"enable":false,"family":null,"url":null}},"toc":{"enable":true,"max_depth":3,"number":false,"expand":true,"init_open":false},"copyright":{"enable":true,"default":"cc_by_nc_sa"},"lazyload":true,"recommendation":{"enable":false,"title":"Recommend","limit":3,"mobile_limit":2,"placeholder":"/images/wallhaven-wqery6-light.webp","skip_dirs":[]}},"colors":{"primary":"#A31F34","secondary":null,"default_mode":"light"},"global":{"fonts":{"chinese":{"enable":false,"family":null,"url":null},"english":{"enable":false,"family":null,"url":null}},"content_max_width":"1280px","sidebar_width":"210px","hover":{"shadow":true,"scale":false},"scroll_progress":{"bar":false,"percentage":true},"website_counter":{"url":"https://cn.vercount.one/js","enable":false,"site_pv":true,"site_uv":true,"post_pv":true},"single_page":true,"preloader":true,"open_graph":true,"google_analytics":{"enable":true,"id":"G-NYMH9T25CD"}},"home_banner":{"enable":true,"style":"fixed","image":{"light":"/images/wallhaven-wqery6-light.webp","dark":"/images/wallhaven-wqery6-dark.webp"},"title":"Enjoy life easier but more creative!","subtitle":{"text":[],"hitokoto":{"enable":false,"api":"https://v1.hitokoto.cn"},"typing_speed":100,"backing_speed":80,"starting_delay":500,"backing_delay":1500,"loop":true,"smart_backspace":true},"text_color":{"light":"#fff","dark":"#d1d1b6"},"text_style":{"title_size":"2.8rem","subtitle_size":"1.5rem","line_height":1.2},"custom_font":{"enable":false,"family":null,"url":null},"social_links":{"enable":false,"style":"default","links":{"github":null,"instagram":null,"zhihu":null,"twitter":null,"email":null},"qrs":{"weixin":null}}},"plugins":{"feed":{"enable":true},"aplayer":{"enable":false,"type":"fixed","audios":[{"name":null,"artist":null,"url":null,"cover":null,"lrc":null}]},"mermaid":{"enable":false,"version":"9.3.0"}},"version":"2.6.1","navbar":{"auto_hide":true,"color":{"left":"#f78736","right":"#367df7","transparency":35},"width":{"home":"1200px","pages":"1000px"},"links":{"Home":{"path":"/","icon":"fa-regular fa-house"},"Tools":{"path":"https://tools.techidaily.com","icon":"fa-regular fa-archive"},"Links":{"icon":"fa-regular fa-link","submenus":{"HowTo":"https://howto.techidaily.com","Mobile Images":"https://img0mobiles.techidaily.com"}},"Privacy":{"path":"/privacy","icon":"fa-regular fa-shield-halved"},"Terms&Conditions":{"path":"/terms_conditions","icon":"fa-regular fa-file-contract"},"About":{"path":"/about","icon":"fa-regular fa-user"}},"search":{"enable":false,"preload":true}},"page_templates":{"friends_column":2,"tags_style":"blur"},"home":{"sidebar":{"enable":true,"position":"left","first_item":"menu","announcement":null,"show_on_mobile":true,"links":null},"article_date_format":"auto","categories":{"enable":true,"limit":3},"tags":{"enable":true,"limit":3}},"footerStart":"2017/8/17 11:45:14"};
     window.lang_ago = {"second":"%s seconds ago","minute":"%s minutes ago","hour":"%s hours ago","day":"%s days ago","week":"%s weeks ago","month":"%s months ago","year":"%s years ago"};
     window.data = {"masonry":false};
   </script>
@@ -693,31 +750,30 @@
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/datanet-solutions-and-abbyy-accelerate-hospital-accounting-with-latest-innovations/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/8f746ea5ff5f235bd9550c0631527dab7bc233469cd27f4e2765e160c088926b.jpg" alt="DataNet Solutions &amp; ABBYY: Accelerate Hospital Accounting with Latest Innovations" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/streamline-client-onboarding-for-increased-devotion-to-your-financial-firm/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/56e9a63f6cd0da6aa662fe6ddfb8ba418b2232ba03eb8e75fedd97f8000b9ecc.jpg" alt="Streamline Client Onboarding for Increased Devotion to Your Financial Firm" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/datanet-solutions-and-abbyy-accelerate-hospital-accounting-with-latest-innovations/">
-                            DataNet Solutions &amp; ABBYY: Accelerate Hospital Accounting with Latest Innovations
+                        <a href="/streamline-client-onboarding-for-increased-devotion-to-your-financial-firm/">
+                            Streamline Client Onboarding for Increased Devotion to Your Financial Firm
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            DataNet Solutions &amp; ABBYY: Accelerate Hospital Accounting with Latest InnovationsNewsroom 
-Schnellere Finanzbuchhaltung i...
+                             ## Streamline Client Onboarding for Increased Devotion to Your Financial Firm Also read: [New] Exploring the Mo...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:44:21 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:38:26 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -741,7 +797,7 @@ Schnellere Finanzbuchhaltung i...
         
     </div>
 
-    <a href="/datanet-solutions-and-abbyy-accelerate-hospital-accounting-with-latest-innovations/">Read more<span class="seo-reader-text">DataNet Solutions &amp; ABBYY: Accelerate Hospital Accounting with Latest Innovations</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/streamline-client-onboarding-for-increased-devotion-to-your-financial-firm/">Read more<span class="seo-reader-text">Streamline Client Onboarding for Increased Devotion to Your Financial Firm</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -757,31 +813,30 @@ Schnellere Finanzbuchhaltung i...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/customized-user-journeys-with-the-efficient-tracking-of-cookiebot-technology/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/8d4f635de6f8288e79a21d2dcf9027cad8747323c88b4f310acedbe966d2fadc.jpg" alt="Customized User Journeys with the Efficient Tracking of Cookiebot Technology" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/significant-financial-boost-abbyy-records-a-25-surge-in-revenue-during-2017/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/a9e60c359d76678f8aad5193db4d1713b6255faff22e113abbe3abedfe2cc94d.jpeg" alt="Significant Financial Boost: ABBYY Records a 25% Surge in Revenue During 2017" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/customized-user-journeys-with-the-efficient-tracking-of-cookiebot-technology/">
-                            Customized User Journeys with the Efficient Tracking of Cookiebot Technology
+                        <a href="/significant-financial-boost-abbyy-records-a-25-surge-in-revenue-during-2017/">
+                            Significant Financial Boost: ABBYY Records a 25% Surge in Revenue During 2017
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Customized User Journeys with the Efficient Tracking of Cookiebot TechnologyBack to ABBYY Blog 
-Three companies share how int...
+                             ## Significant Financial Boost: ABBYY Records a 25% Surge in Revenue During 2017 Back to Newsroom ...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:44:21 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:38:26 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -805,7 +860,7 @@ Three companies share how int...
         
     </div>
 
-    <a href="/customized-user-journeys-with-the-efficient-tracking-of-cookiebot-technology/">Read more<span class="seo-reader-text">Customized User Journeys with the Efficient Tracking of Cookiebot Technology</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/significant-financial-boost-abbyy-records-a-25-surge-in-revenue-during-2017/">Read more<span class="seo-reader-text">Significant Financial Boost: ABBYY Records a 25% Surge in Revenue During 2017</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -821,30 +876,30 @@ Three companies share how int...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/cookiebot-enhanced-experience-tailored-web-personalization/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/08adc1f5589e44169595af5c9b0bbe1d47ddf251228c4f908d9ec621a0b86cd0.jpg" alt="Cookiebot-Enhanced: Experience Tailored Web Personalization" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/rparpaabbyy/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/42a3217d9873863c48091846f5f8a9e9b9b6456440b499628df593e7d229a025.jpg" alt="RPA技術の先駆者：日商エレ、RPAテクノロジーズ、ABBYYジャパンの新たな提携" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/cookiebot-enhanced-experience-tailored-web-personalization/">
-                            Cookiebot-Enhanced: Experience Tailored Web Personalization
+                        <a href="/rparpaabbyy/">
+                            RPA技術の先駆者：日商エレ、RPAテクノロジーズ、ABBYYジャパンの新たな提携
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Cookiebot-Enhanced: Experience Tailored Web PersonalizationABBYY | AlteryxApporter la puissance de la Process Intelligence à ...
+                             Click here ## RPA技術の先駆者：日商エレ、RPAテクノロジーズ、ABBYYジャパンの新たな提携 ニュースルーム ...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:44:21 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:38:26 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -868,7 +923,7 @@ Three companies share how int...
         
     </div>
 
-    <a href="/cookiebot-enhanced-experience-tailored-web-personalization/">Read more<span class="seo-reader-text">Cookiebot-Enhanced: Experience Tailored Web Personalization</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/rparpaabbyy/">Read more<span class="seo-reader-text">RPA技術の先駆者：日商エレ、RPAテクノロジーズ、ABBYYジャパンの新たな提携</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -884,31 +939,30 @@ Three companies share how int...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/cookiebot-enabled-personalization-for-enhanced-user-experience/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/a5249e9b13fd437412102feed5c7841b8ccf98fdf0188fbbf3a215fd35680a08.JPG" alt="Cookiebot-Enabled Personalization for Enhanced User Experience" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/revamping-your-online-presence-mastering-the-art-of-page-optimization/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/891c1ef62d1f0cae8f261e14a3ae4e9d18efe066afd0af7e2373c813aa6b6f85.jpg" alt="Revamping Your Online Presence: Mastering the Art of Page Optimization" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/cookiebot-enabled-personalization-for-enhanced-user-experience/">
-                            Cookiebot-Enabled Personalization for Enhanced User Experience
+                        <a href="/revamping-your-online-presence-mastering-the-art-of-page-optimization/">
+                            Revamping Your Online Presence: Mastering the Art of Page Optimization
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Cookiebot-Enabled Personalization for Enhanced User ExperienceBack to The Intelligent Enterprise 
-Creating an Intelligent Aut...
+                             ## Revamping Your Online Presence: Mastering the Art of Page Optimization Back to Webinars ...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:44:21 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:38:26 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -932,7 +986,7 @@ Creating an Intelligent Aut...
         
     </div>
 
-    <a href="/cookiebot-enabled-personalization-for-enhanced-user-experience/">Read more<span class="seo-reader-text">Cookiebot-Enabled Personalization for Enhanced User Experience</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/revamping-your-online-presence-mastering-the-art-of-page-optimization/">Read more<span class="seo-reader-text">Revamping Your Online Presence: Mastering the Art of Page Optimization</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -948,31 +1002,30 @@ Creating an Intelligent Aut...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/cookiebot-enabled-personalization-enhance-user-experience-with-dynamic-content/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/4824b5bc1ec47ceadb929bb6b68e8c9454196f2de65b71eab7da2ab3371e3a0f.png" alt="Cookiebot-Enabled Personalization: Enhance User Experience with Dynamic Content" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/rapid-digital-transformation-strategies-for-the-artificial-intelligence-sector-ebook-by-abbyy/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/b97d0ebad54511b61b45570cc2aa70ceb4b57e4382ef455cbbee6f6a39f5f377.jpg" alt="Rapid Digital Transformation Strategies for the Artificial Intelligence Sector – eBook by ABBYY" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/cookiebot-enabled-personalization-enhance-user-experience-with-dynamic-content/">
-                            Cookiebot-Enabled Personalization: Enhance User Experience with Dynamic Content
+                        <a href="/rapid-digital-transformation-strategies-for-the-artificial-intelligence-sector-ebook-by-abbyy/">
+                            Rapid Digital Transformation Strategies for the Artificial Intelligence Sector – eBook by ABBYY
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Cookiebot-Enabled Personalization: Enhance User Experience with Dynamic ContentNewsroom 
-Effizienteres Kundenmanagement im Au...
+                             ## Rapid Digital Transformation Strategies for the Artificial Intelligence Sector – eBook by ABBYY eBook ## ...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:44:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:38:26 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -996,7 +1049,7 @@ Effizienteres Kundenmanagement im Au...
         
     </div>
 
-    <a href="/cookiebot-enabled-personalization-enhance-user-experience-with-dynamic-content/">Read more<span class="seo-reader-text">Cookiebot-Enabled Personalization: Enhance User Experience with Dynamic Content</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/rapid-digital-transformation-strategies-for-the-artificial-intelligence-sector-ebook-by-abbyy/">Read more<span class="seo-reader-text">Rapid Digital Transformation Strategies for the Artificial Intelligence Sector – eBook by ABBYY</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1012,31 +1065,30 @@ Effizienteres Kundenmanagement im Au...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/cookiebot-enabled-enhancing-your-websites-visitor-tracking-experience/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/6ed52b8d826a5b6701c9229d81239cb21a1a6ea95480871656b8b252c90f9890.jpeg" alt="Cookiebot-Enabled: Enhancing Your Website&#39;s Visitor Tracking Experience" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/optimisation-et-traitement-efficace-des-documents-grace-a-la-solution-abbyy-enterprise-capture-par-les-systemes-arvato/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/731e7d95cb104fd0f2b4a441263b2d39fb916acbe1dcf99883081e6f54b5961f.jpg" alt="Optimisation Et Traitement Efficace Des Documents Grâce À La Solution ABBYY Enterprise Capture Par Les Systèmes Arvato" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/cookiebot-enabled-enhancing-your-websites-visitor-tracking-experience/">
-                            Cookiebot-Enabled: Enhancing Your Website&#39;s Visitor Tracking Experience
+                        <a href="/optimisation-et-traitement-efficace-des-documents-grace-a-la-solution-abbyy-enterprise-capture-par-les-systemes-arvato/">
+                            Optimisation Et Traitement Efficace Des Documents Grâce À La Solution ABBYY Enterprise Capture Par Les Systèmes Arvato
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Cookiebot-Enabled: Enhancing Your Website’s Visitor Tracking ExperienceNewsroom 
-In Zeiten großer Resignation: Laut ABBYY-Stu...
+                            Optimisation Et Traitement Efficace Des Documents Grâce À La Solution ABBYY Enterprise Capture Par Les Systèmes ArvatoRetourn...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:44:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:38:26 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -1060,7 +1112,7 @@ In Zeiten großer Resignation: Laut ABBYY-Stu...
         
     </div>
 
-    <a href="/cookiebot-enabled-enhancing-your-websites-visitor-tracking-experience/">Read more<span class="seo-reader-text">Cookiebot-Enabled: Enhancing Your Website&#39;s Visitor Tracking Experience</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/optimisation-et-traitement-efficace-des-documents-grace-a-la-solution-abbyy-enterprise-capture-par-les-systemes-arvato/">Read more<span class="seo-reader-text">Optimisation Et Traitement Efficace Des Documents Grâce À La Solution ABBYY Enterprise Capture Par Les Systèmes Arvato</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1076,31 +1128,30 @@ In Zeiten großer Resignation: Laut ABBYY-Stu...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/cookiebot-driven-automation-for-enhanced-website-analytics/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/ed59cfb64274f1c3cef31ec193da51a46dc4b1758c31b372bba92f57a24379da.jpg" alt="Cookiebot-Driven Automation for Enhanced Website Analytics" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/neuer-methodik-von-abbyy-fur-die-prazise-einordnung-von-schriftstucken/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/7b81e5a1677e5963f8851410568bf197590afb5724fdd9ea66669ac914b2f944.jpg" alt="Neuer Methodik Von ABBYY Für Die Präzise Einordnung Von Schriftstücken" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/cookiebot-driven-automation-for-enhanced-website-analytics/">
-                            Cookiebot-Driven Automation for Enhanced Website Analytics
+                        <a href="/neuer-methodik-von-abbyy-fur-die-prazise-einordnung-von-schriftstucken/">
+                            Neuer Methodik Von ABBYY Für Die Präzise Einordnung Von Schriftstücken
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Cookiebot-Driven Automation for Enhanced Website AnalyticsNewsroom 
-ABBYY Recognition Server erhält umfassendes Update und ne...
+                             ## Neuer Methodik Von ABBYY Für Die Präzise Einordnung Von Schriftstücken Newsroom ## ABBYY mit neuem Ansat...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:44:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:38:26 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -1124,7 +1175,7 @@ ABBYY Recognition Server erhält umfassendes Update und ne...
         
     </div>
 
-    <a href="/cookiebot-driven-automation-for-enhanced-website-analytics/">Read more<span class="seo-reader-text">Cookiebot-Driven Automation for Enhanced Website Analytics</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/neuer-methodik-von-abbyy-fur-die-prazise-einordnung-von-schriftstucken/">Read more<span class="seo-reader-text">Neuer Methodik Von ABBYY Für Die Präzise Einordnung Von Schriftstücken</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1140,31 +1191,30 @@ ABBYY Recognition Server erhält umfassendes Update und ne...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/comment-les-seniors-surpassent-ils-dans-le-teletravail-decouvrez-nos-resultats-dabbyy/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/287414ff43ab53f27880b8114eed3693184381a70cdfc416ba85990af80f04e8.jpg" alt="Comment Les Seniors Surpassent-Ils Dans Le Télétravail? Découvrez Nos Résultats D&#39;ABBYY!" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/navigating-the-essentials-of-kyc-regulations-in-depth-strategies-for-successful-implementation/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480cf9bd2a5898ac2cac1fa41f0.jpg" alt="Navigating the Essentials of KYC Regulations: In-Depth Strategies for Successful Implementation" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/comment-les-seniors-surpassent-ils-dans-le-teletravail-decouvrez-nos-resultats-dabbyy/">
-                            Comment Les Seniors Surpassent-Ils Dans Le Télétravail? Découvrez Nos Résultats D&#39;ABBYY!
+                        <a href="/navigating-the-essentials-of-kyc-regulations-in-depth-strategies-for-successful-implementation/">
+                            Navigating the Essentials of KYC Regulations: In-Depth Strategies for Successful Implementation
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Comment Les Seniors Surpassent-Ils Dans Le Télétravail? Découvrez Nos Résultats D’ABBYY!Actualités 
-Télétravail : selon ABBYY...
+                            Navigating the Essentials of KYC Regulations: In-Depth Strategies for Successful ImplementationBack to ABBYY Blog ##...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:44:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:38:26 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -1188,7 +1238,7 @@ Télétravail : selon ABBYY...
         
     </div>
 
-    <a href="/comment-les-seniors-surpassent-ils-dans-le-teletravail-decouvrez-nos-resultats-dabbyy/">Read more<span class="seo-reader-text">Comment Les Seniors Surpassent-Ils Dans Le Télétravail? Découvrez Nos Résultats D&#39;ABBYY!</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/navigating-the-essentials-of-kyc-regulations-in-depth-strategies-for-successful-implementation/">Read more<span class="seo-reader-text">Navigating the Essentials of KYC Regulations: In-Depth Strategies for Successful Implementation</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1204,31 +1254,30 @@ Télétravail : selon ABBYY...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/boost-your-sites-insight-capabilities-leveraging-cutting-edge-cookie-based-tools/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/d20fb0a2bb9049e2210bb23aa9225c390244059cedf35b9a34d45f9a041c8543.jpg" alt="[Boost Your Site&#39;s Insight Capabilities]: Leveraging Cutting-Edge Cookie-Based Tools" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/masterclass-in-crafting-high-performance-digital-pages-for-maximum-seo-impact/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/29c87a2813101a91590a08620c363a707a12be2c13cdc82a6c440d60f80e5fd3.jpg" alt="Masterclass in Crafting High-Performance Digital Pages for Maximum SEO Impact" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/boost-your-sites-insight-capabilities-leveraging-cutting-edge-cookie-based-tools/">
-                            [Boost Your Site&#39;s Insight Capabilities]: Leveraging Cutting-Edge Cookie-Based Tools
+                        <a href="/masterclass-in-crafting-high-performance-digital-pages-for-maximum-seo-impact/">
+                            Masterclass in Crafting High-Performance Digital Pages for Maximum SEO Impact
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            [Boost Your Site’s Insight Capabilities]: Leveraging Cutting-Edge Cookie-Based ToolsNewsroom 
-ABBYY holt Susanne Richter-Will...
+                             ## Masterclass in Crafting High-Performance Digital Pages for Maximum SEO Impact Back to Webinars ## ABBYY無...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:44:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:38:26 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -1252,7 +1301,7 @@ ABBYY holt Susanne Richter-Will...
         
     </div>
 
-    <a href="/boost-your-sites-insight-capabilities-leveraging-cutting-edge-cookie-based-tools/">Read more<span class="seo-reader-text">[Boost Your Site&#39;s Insight Capabilities]: Leveraging Cutting-Edge Cookie-Based Tools</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/masterclass-in-crafting-high-performance-digital-pages-for-maximum-seo-impact/">Read more<span class="seo-reader-text">Masterclass in Crafting High-Performance Digital Pages for Maximum SEO Impact</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>
@@ -1268,30 +1317,30 @@ ABBYY holt Susanne Richter-Will...
 
                 
                     <div id="home-article-thumbnail" class="basis-1/3 lg:basis-1/4 xl:basis-1/5 relative flex justify-center items-center overflow-hidden rounded-large">
-                        <a href="/boost-your-phones-speed-plus-introducing-ar-business-cards-habit-building-techniques-wisdom-on-the-abbyy-blog/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
-                            <img src="https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571566316abe24ad6c80cbdaa7.jpeg" alt="Boost Your Phone&#39;s Speed + Introducing AR Business Cards: Habit Building Techniques | Wisdom on the ABBYY Blog" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
+                        <a href="/leveraging-innovative-analytics-solutions-for-optimized-engagement/" class="w-28 h-28 md:w-32 md:h-32 lg:w-36 lg:h-36 xl:w-48 xl:h-48 max-w-28 max-h-28 md:max-w-32 md:max-h-32 lg:max-w-36 lg:max-h-36 xl:max-w-48 xl:max-h-48 p-2">
+                            <img src="https://thmb.techidaily.com/8e227e065d730938ce0d6ea2261402d78760be14848998b4f825537e8b545d45.jpg" alt="Leveraging Innovative Analytics Solutions for Optimized Engagement" class="relative w-full h-full rounded-full object-cover dark:brightness-75 transition-all ring ring-gray-50" />
                         </a>
                     </div>
                 
                 <div class="flex flex-col gap-5 px-7 pb-7 basis-2/3 lg:basis-3/4 xl:basis-4/5  pt-5">
                     <h3 class="home-article-title">
-                        <a href="/boost-your-phones-speed-plus-introducing-ar-business-cards-habit-building-techniques-wisdom-on-the-abbyy-blog/">
-                            Boost Your Phone&#39;s Speed + Introducing AR Business Cards: Habit Building Techniques | Wisdom on the ABBYY Blog
+                        <a href="/leveraging-innovative-analytics-solutions-for-optimized-engagement/">
+                            Leveraging Innovative Analytics Solutions for Optimized Engagement
                         </a>
                     </h3>
 
                     <div class="home-article-content markdown-body">
                         
-                            Boost Your Phone’s Speed + Introducing AR Business Cards: Habit Building Techniques | Wisdom on the ABBYY BlogBack to ABBYY B...
+                             ## Leveraging Innovative Analytics Solutions for Optimized Engagement Retourner aux expériences clients Healthcare ...
                         
                     </div>
 
                     <div class="home-article-meta-info-container">
     <div class="home-article-meta-info">
         <span><i class="fa-solid fa-calendars"></i>&nbsp;
-            <span class="home-article-date" data-date="Tue Sep 03 2024 22:44:20 GMT+0800">
+            <span class="home-article-date" data-date="Sun Sep 08 2024 23:38:26 GMT+0800">
                 
-                    2024-09-03
+                    2024-09-08
                 
             </span>
         </span>
@@ -1315,7 +1364,7 @@ ABBYY holt Susanne Richter-Will...
         
     </div>
 
-    <a href="/boost-your-phones-speed-plus-introducing-ar-business-cards-habit-building-techniques-wisdom-on-the-abbyy-blog/">Read more<span class="seo-reader-text">Boost Your Phone&#39;s Speed + Introducing AR Business Cards: Habit Building Techniques | Wisdom on the ABBYY Blog</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
+    <a href="/leveraging-innovative-analytics-solutions-for-optimized-engagement/">Read more<span class="seo-reader-text">Leveraging Innovative Analytics Solutions for Optimized Engagement</span>&nbsp;<i class="fa-solid fa-angle-right"></i></a>
 </div>
 
                 </div>

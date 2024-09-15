@@ -1,40 +1,22 @@
 ---
 title: Comment Les Seniors Surpassent-Ils Dans Le Télétravail? Découvrez Nos Résultats D'ABBYY!
-date: 2024-09-08T23:38:25.892Z
-updated: 2024-09-09T23:38:25.892Z
+date: 2024-09-10T00:36:06.871Z
+updated: 2024-09-15T00:09:15.866Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/287414ff43ab53f27880b8114eed3693184381a70cdfc416ba85990af80f04e8.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Comment Les Seniors Surpassent-Ils Dans Le Télétravail? Découvrez Nos Résultats D'ABBYY!
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Télétravail : selon ABBYY les plus de 55 ans se sont mieux adaptés au télétravail
 
 03 février 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Les conclusions inattendues de la nouvelle étude menée par ABBYY démontrent que les employés de plus de 55 ans se sont mieux adaptés que leurs homologues millennials aux nouvelles méthodes de travail liées à la pandémie.
 
 [ABBYY,](https://tools.techidaily.com/abbyy/products/) multinationale spécialisée dans l’intelligence digitale, a interrogé 4 000 professionnels répartis dans 20 secteurs et 4 pays (France, Royaume-Uni, Allemagne et États-Unis) sur la façon dont ils font face à la pandémie d’un point de vue professionnel.
@@ -95,8 +77,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -106,41 +86,27 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-intuitive-guide-how-to-capture-on-vimeo/"><u>[New] 2024 Approved  Intuitive Guide  How to Capture on Vimeo</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-unlocking-full-potential-in-depth-review-of-lgs-monitor-tech/"><u>[New] Unlocking Full Potential  In-Depth Review of LG's Monitor Tech</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-windows-mac-owners-discover-top-8-no-cost-4k-viewers-for-2024/"><u>[New] Windows Mac Owners - Discover Top 8 No-Cost 4K Viewers for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-elevating-your-video-brand-tips-for-great-youtube-banners/"><u>[Updated] In 2024, Elevating Your Video Brand  Tips for Great YouTube Banners</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-next-gen-gaming-horizon-upcoming-bests-in-playstation-vr/"><u>[Updated] In 2024, Next-Gen Gaming Horizon  Upcoming Bests in PlayStation VR</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-record-vlc-webcam-footage-recording-for-2024/"><u>[Updated] Record VLC  Webcam Footage Recording for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-step-by-step-guide-to-making-spectacular-slow-motion-images-for-instagram-for-2024/"><u>[Updated] Step-by-Step Guide to Making Spectacular Slow Motion Images for Instagram for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-syma-x8c-for-beginner-pilots/"><u>[Updated] Syma X8C for Beginner Pilots</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-premium-audio-enhancer-on-android/"><u>2024 Approved  Premium Audio Enhancer on Android</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/sba-ppp-blue-prism85000/"><u>銀行でのSBA PPP ローン自動化：Blue Prismによって85,000以上の雇用が守られ、中小企業の経営安定</u></a></li>
-<li><a href="https://facebook.techidaily.com/dialing-back-time-my-first-day-on-facebook/"><u>Dialing Back Time: My First Day on Facebook</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-best-in-darkroom-editing-software-a-deep-dive-into-lightzone-on-multiple-operating-systems/"><u>Discover the Best in Darkroom Editing Software: A Deep Dive Into LightZone on Multiple Operating Systems</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/frances-top-bank-embraces-the-future-streamlining-operations-through-abbyy-flexicapture-document-automation/"><u>France's Top Bank Embraces the Future: Streamlining Operations Through ABBYY FlexiCapture Document Automation</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/how-mcdonalds-enhances-its-mobile-app-with-advanced-abbyy-ocr-solutions/"><u>How McDonald's Enhances Its Mobile App with Advanced ABBYY OCR Solutions</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-mini-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 mini Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/insta-stories-enhancing-background-blur-technique/"><u>Insta Stories  Enhancing Background Blur Technique</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/kognitive-systeme-in-der-automatisierung-abbyys-losung-fur-das-verstehen-und-interpretieren-digitaler-inhalte/"><u>Kognitive Systeme in Der Automatisierung: ABBYYS Lösung Für Das Verstehen Und Interpretieren Digitaler Inhalte</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/konvertieren-sie-ihre-prozesse-abbyy-vantage-2-und-neue-ki-marketplatz-fuhren-sie-schnell-zur-digitalen-revolution/"><u>Konvertieren Sie Ihre Prozesse: ABBYY Vantage 2 Und Neue KI-Marketplatz Führen Sie Schnell Zur Digitalen Revolution</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/levolution-rapide-des-relations-bancarieres-comment-la-crise-enfonce-le-clavier/"><u>L'Evolution Rapide Des Relations Bancarières: Comment La Crise Enfonce Le Clavier</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/laserfiche-integration-with-abbyys-flexicapture-advanced-document-capture-software-solution/"><u>Laserfiche Integration with ABBYY's FlexiCapture: Advanced Document Capture Software Solution</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-superior-site-performance-and-seo-results/"><u>Leveraging Cookiebot Technology for Superior Site Performance and SEO Results</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/linda-ameur-ascend-as-new-director-general-of-commerce-at-abbyy-france-latest-news/"><u>Linda Ameur Ascend as New Director-General of Commerce at ABBYY France – Latest News</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/masterful-mobile-tools-abbyys-guide-to-enhancing-smartphone-productivity-with-ocr/"><u>Masterful Mobile Tools: ABBYY's Guide to Enhancing Smartphone Productivity with OCR</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/navigating-high-definition-zoom-features/"><u>Navigating High-Definition Zoom Features</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/official-statement-by-ulf-persson-on-covid-19-as-ceo-of-abbyy-group-insights-and-updates/"><u>Official Statement by Ulf Persson on COVID-19 as CEO of ABBYY Group: Insights and Updates</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimizing-business-efficiency-and-cybersecurity-with-advanced-process-analytics/"><u>Optimizing Business Efficiency and Cybersecurity with Advanced Process Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/pioneering-a-future-with-secure-ai-abbyys-global-campaign-for-responsible-innovation/"><u>Pioneering a Future with Secure AI: ABBYY's Global Campaign for Responsible Innovation</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionize-cross-border-billing-enhanced-efficiency-with-abbyys-smart-ai-technology/"><u>Revolutionize Cross-Border Billing: Enhanced Efficiency with ABBYY's Smart AI Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/rpaai-ocr49000/"><u>RPAと融合したAI OCRテクノロジーで、年間約4万9000時間を省き業務効率革新</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/seamless-conversion-with-the-cookiebot-platform-powering-your-sites-performance/"><u>Seamless Conversion with the Cookiebot Platform Powering Your Site's Performance</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/simplify-paperwork-automation-master-the-art-of-no-code-document-revolution/"><u>Simplify Paperwork Automation: Master the Art of No-Code Document Revolution</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/smart-savings-for-screen-enthusiasts-top-picks-in-affordable-home-theaters/"><u>Smart Savings for Screen Enthusiasts: Top Picks in Affordable Home Theaters</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-motive-understanding-why-chatgpt-is-a-prime-target-for-cybercriminals/"><u>The Motive: Understanding Why ChatGPT Is a Prime Target for Cybercriminals</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/unleashing-growth-potential-with-the-power-of-cookiebot-technology-for-sites/"><u>Unleashing Growth Potential with the Power of Cookiebot Technology for Sites</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/unlock-growth-potential-with-cookiebots-advanced-user-tracking-solutions/"><u>Unlock Growth Potential with Cookiebot's Advanced User Tracking Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/website-optimization-with-cookiebot-integration/"><u>Website Optimization with Cookiebot Integration</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-when-gionee-f3-pro-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Gionee F3 Pro Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-file-download-voice-track-analysis/"><u>[New] In 2024, File Download Voice Track Analysis</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-increase-engagement-essential-tools-for-effective-youtube-keywords/"><u>2024 Approved Increase Engagement Essential Tools for Effective YouTube Keywords</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-the-art-of-iphone-macro-and-micro-imaging/"><u>2024 Approved Mastering the Art of iPhone Macro & Micro Imaging</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-techniques-for-accurate-ps3-playback-rendering/"><u>2024 Approved Techniques for Accurate PS3 Playback Rendering</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-legal-evolution-empowering-law-firms-with-digitization-and-process-automation/"><u>ABBYY Legal Evolution - Empowering Law Firms with Digitization & Process Automation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-mobile-web-capture-sdk-innovatives-losungsangebot-fur-eine-optimierte-einarbeitung-auf-mobilen-endgeraten/"><u>Abbyy Mobile Web Capture SDK: Innovatives Lösungsangebot Für Eine Optimierte Einarbeitung Auf Mobilen Endgeräten</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/advanced-analytics-through-automated-data-collection-the-cookiebot-edge/"><u>Advanced Analytics Through Automated Data Collection: The Cookiebot Edge</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/ai/"><u>AI駆動知覚学習: 高度なコンテンツ分析が求められる時代</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/arsenal-womens-fc-champions-abbyy-as-top-tier-cognitive-processing-partner/"><u>Arsenal Womens FC Champions ABBYY as Top-Tier Cognitive Processing Partner</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/convert-iphone-photos-of-documents-into-editable-text-with-scan-and-ocr-finereader-app/"><u>Convert iPhone Photos of Documents Into Editable Text with Scan & OCR - FineReader App</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/honor-x50-gt-music-recovery-recover-deleted-music-from-honor-x50-gt-by-fonelab-android-recover-music/"><u>Honor X50 GT Music Recovery - Recover Deleted Music from Honor X50 GT</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-cutting-down-high-bitrate-obs-streams/"><u>In 2024, Cutting Down High-Bitrate OBS Streams</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/navigating-through-t-mobiles-intra-network-roaming-guidelines/"><u>Navigating Through T-Mobile's Intra-Network Roaming Guidelines</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/restoring-power-on-your-macbook-pro-a-comprehensive-walkthrough/"><u>Restoring Power on Your MacBook Pro – A Comprehensive Walkthrough</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-marketers-best-friend-20-words-that-work-wonders-for-2024/"><u>The Marketer's Best Friend - 20 Words That Work Wonders for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

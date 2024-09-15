@@ -1,46 +1,22 @@
 ---
 title: Cookiebot-Enabled Customized User Experience
-date: 2024-09-08T23:38:29.277Z
-updated: 2024-09-09T23:38:29.277Z
+date: 2024-09-12T16:26:25.410Z
+updated: 2024-09-14T21:12:08.958Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f07bcde69983933cb76ff9d178455e2b69ef74b8fc7b5950817350ad54cf2512.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Cookiebot-Enabled Customized User Experience
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## ABBYY to showcase powerful AI for documents at AI Summit London
 
 June 11, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY®, a global provider of content intelligent solutions and services, will join the world’s foremost innovators at The AI Summit London on 13th and 14th June. ABBYY, a Platinum Sponsor of the conference, will showcase its expertise in Artificial Intelligence (AI), innovations in AI-powered content intelligence and digital transformation alongside Microsoft, Facebook, Amazon, Google, Accenture and IBM, to help participants gain a practical understanding of AI, its use cases and impact on content-centric business processes
 
 During the keynote at 2:25pm on the 14th June, ABBYY Chief Innovation Officer Anthony Macciola will address the challenge of getting valuable insights from unstructured content to gain a competitive edge. He will discuss trends in Robotic Process Automation and talk about how content intelligence can make robots smarter. “AI improves the way enterprises and organisations understand their customers, their desires, and goals. Content Intelligence enables real-time understanding of content and communications, providing faster, more convenient customer service and efficient processing of information. Resolving customer service issues before they arise could significantly lower customer abandonment rates,” commented Anthony Macciola, Chief Innovation Officer at ABBYY Global.
@@ -77,8 +53,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -88,44 +62,30 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-divide-and-conquer-adding-chapters-to-vimeo/"><u>[New] 2024 Approved  Divide and Conquer  Adding Chapters to Vimeo</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-optimize-video-quality-with-expertise-in-studio-editor-use/"><u>[New] 2024 Approved  Optimize Video Quality with Expertise in Studio Editor Use</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-brighten-up-your-visuals-essential-color-correction-tutorials/"><u>[New] Brighten Up Your Visuals  Essential Color Correction Tutorials</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-initiate-an-impactful-live-stream-on-facebook-today/"><u>[New] Initiate an Impactful Live Stream on Facebook Today</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/resolved-printer-error-after-wake-from-sleep-in-windows-7/"><u>[Resolved] Printer Error After Wake From Sleep in Windows 7</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-journeying-through-yesteryears-facebook-posts-on-mobilelaptop/"><u>[Updated] 2024 Approved  Journeying Through Yesteryear's Facebook Posts on Mobile/Laptop</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-how-to-chat-on-google-meet-complete-guide/"><u>[Updated] How to Chat on Google Meet [Complete Guide]</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-leveraging-the-power-of-images-in-your-instagram-video-plans-for-2024/"><u>[Updated] Leveraging the Power of Images in Your Instagram Video Plans for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-the-leading-8-linux-programs-for-screenshots/"><u>[Updated] The Leading 8 Linux Programs for Screenshots</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-resolving-face-swap-glitches-in-facebook-chat/"><u>2024 Approved  Resolving Face Swap Glitches in Facebook Chat</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-vivo-v30-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Vivo V30 | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/lating-content-the-art-of-playlist-sharing/"><u>Circulating Content  The Art of Playlist Sharing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-simplifying-media-sharing-how-to-enable-autoplay-in-facebook-video-spaces/"><u>[New] Simplifying Media Sharing How to Enable Autoplay in Facebook Video Spaces</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-top-10-ultra-hd-capture-tools-for-screen-recording/"><u>[Updated] 2024 Approved Top 10 Ultra-HD Capture Tools for Screen Recording</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-harvest-hits-roundup-next-gen-farming-game-picks/"><u>[Updated] Harvest Hits Roundup Next-Gen Farming Game Picks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-seamless-video-transfer-from-youtube-to-instagram/"><u>[Updated] Seamless Video Transfer From YouTube to Instagram</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-new-era-for-android-time-lapsing-trends-and-techniques/"><u>A New Era for Android Time-Lapsing Trends & Techniques</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/embrace-smart-efficiency-the-power-of-intelligent-process-automation-awaits/"><u>Embrace Smart Efficiency – The Power of Intelligent Process Automation Awaits!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-online-insights-effortlessly-harnessing-the-power-of-cookiebot-technology/"><u>Enhance Online Insights Effortlessly: Harnessing the Power of Cookiebot Technology</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/enhance-user-experience-with-our-cookiebot-solutions/"><u>Enhance User Experience with Our Cookiebot Solutions!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-performance-through-advanced-cookiebot-solutions/"><u>Enhanced Performance Through Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-performance-using-cookiebot-solutions/"><u>Enhanced Performance Using Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-traffic-growth-with-cookiebot-technology/"><u>Enhanced Traffic Growth with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-web-analytics-with-the-power-of-cookiebot-technology/"><u>Enhanced Web Analytics with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-web-traffic-with-automated-tracking-the-power-of-cookiebot/"><u>Enhanced Web Traffic with Automated Tracking: The Power of Cookiebot</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/expanding-horizons-in-the-world-of-digital-intelligence-with-roboyo-and-abbyy/"><u>Expanding Horizons in the World of Digital Intelligence with Roboyo and ABBYY</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/exploring-abbyy-cloud-revolutionizing-scanning-ocr-and-data-management-services/"><u>Exploring Abbyy Cloud: Revolutionizing Scanning, OCR & Data Management Services</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/fast-track-your-robotic-automation-projects-using-abbyys-advanced-process-intelligence-framework-for-enhanced-productivity/"><u>Fast-Track Your Robotic Automation Projects Using ABBYY's Advanced Process Intelligence Framework for Enhanced Productivity</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixes-and-solutions-why-doesnt-resident-evil-5-start-up-on-my-pc/"><u>Fixes and Solutions: Why Doesn't Resident Evil 5 Start Up on My PC?</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/global-research-on-customer-onboarding-processes-by-abbyy/"><u>Global Research on Customer Onboarding Processes by ABBYY</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/halve-your-bill-payment-workload-with-norcos-innovative-solutions/"><u>Halve Your Bill Payment Workload with Norco's Innovative Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harness-the-power-of-cookiebot-for-enhanced-site-traffic-and-conversion-rates/"><u>Harness the Power of Cookiebot for Enhanced Site Traffic & Conversion Rates</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harness-the-power-of-cookiebot-next-level-analytics-and-personalization-tools-at-hand/"><u>Harness the Power of Cookiebot: Next-Level Analytics and Personalization Tools at Hand</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harnessing-the-power-of-cookiebot-for-superior-online-traffic-insights/"><u>Harnessing the Power of Cookiebot for Superior Online Traffic Insights</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-itel-p55-5g-frp-by-drfone-android/"><u>How Can We Bypass Itel P55 5G FRP?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-do-i-sign-a-excel-2000-files-free-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How do i sign a Excel 2000 files free</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-transforming-team-meeting-aesthetics-the-prepost-customization-angle/"><u>In 2024, Transforming Team Meeting Aesthetics  The Pre/Post Customization Angle</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/innovating-supply-chains-leveraging-document-management-in-the-age-of-digital-evolution/"><u>Innovating Supply Chains: Leveraging Document Management in the Age of Digital Evolution</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/introducing-our-latest-innovations-digital-cookbook-solutions-and-image-transformation-explore-the-abbyy-universe/"><u>Introducing Our Latest Innovations: Digital Cookbook Solutions & Image Transformation - Explore the ABBYY Universe</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leverage-advanced-analytics-with-our-cookiebot-integration-services-for-website-optimization/"><u>Leverage Advanced Analytics with Our Cookiebot Integration Services for Website Optimization</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mastering-data-with-abbyy-and-arsenal-women-cutting-edge-ai-insights/"><u>Mastering Data with ABBYY & Arsenal Women: Cutting-Edge AI Insights</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mastering-networking-with-bcr-for-ios-nv-10-unveiling-latest-features-by-abbyy-exclusive-tips-from-our-companys-blog/"><u>Mastering Networking with BCR for iOS Nv 10: Unveiling Latest Features by ABBYY | Exclusive Tips From Our Company's Blog</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimized-by-cookiebot-enhanced-sales-funnel-management-and-analytics/"><u>Optimized by Cookiebot: Enhanced Sales Funnel Management and Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/paragon-customer-communications-advances-with-abbyys-digital-intelligence-for-comprehensive-digital-overhaul/"><u>Paragon Customer Communications Advances with ABBYY's Digital Intelligence for Comprehensive Digital Overhaul</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionize-your-data-collection-state-of-the-art-tools-powered-by-cookiebot/"><u>Revolutionize Your Data Collection: State-of-the-Art Tools Powered by Cookiebot</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-mobile-tech-music-streaming-and-e-signatures-with-smartwatches-insights-from-the-abbyy-blog/"><u>Revolutionizing Mobile Tech: Music Streaming & E-Signatures with Smartwatches – Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-google-pixel-8-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Google Pixel 8? Fixed | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-samsung-galaxy-s24-ultra-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Samsung Galaxy S24 Ultra Safely | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-background-noise-be-gone-mastering-audio-cleanup-in-final-cut-pro-x-for-2024/"><u>New Background Noise Be Gone Mastering Audio Cleanup in Final Cut Pro X for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/non-stop-play-maximum-comfort-a-deep-dive-into-the-mavix-m9-gaming-chair/"><u>Non-Stop Play, Maximum Comfort: A Deep Dive Into the MAVIX M9 Gaming Chair</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/round-the-clock-insight-detailed-look-at-google-podcast-for-2024/"><u>Round-the-Clock Insight Detailed Look at Google Podcast for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

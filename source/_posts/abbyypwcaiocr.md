@@ -1,7 +1,7 @@
 ---
 title: ABBYYとPwCコンサルティングがAI・OCR技術による新しいパートナーシップを結ぶ
-date: 2024-09-13T16:28:34.779Z
-updated: 2024-09-14T22:05:40.266Z
+date: 2024-09-14T17:06:45.855Z
+updated: 2024-09-18T16:19:55.709Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a88766153a92e1f9e8401a4428c9fb.jpg
@@ -67,27 +67,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-scaling-up-your-pathway-to-high-quality-facebook-live-for-2024/"><u>[New] Scaling Up Your Pathway to High-Quality Facebook Live for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-ultimate-guide-choosing-the-best-video-grabber-for-windows-10-for-2024/"><u>[New] Ultimate Guide Choosing the Best Video Grabber for Windows 10 for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-step-into-simplicity-a-tailored-approach-to-creating-shorts-thumbnails-for-2024/"><u>[Updated] Step Into Simplicity A Tailored Approach to Creating Shorts Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-guide-to-channel-description-perfection/"><u>2024 Approved The Ultimate Guide to Channel Description Perfection</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-mastering-authenticity-checks-on-instagram/"><u>In 2024, Mastering Authenticity Checks on Instagram</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-kids-app-named-superlative-google-play-best-of-2017/"><u>Mondly Kids App Named Superlative Google Play Best of 2017</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimized-with-cutting-edge-automated-tracking-the-power-of-cookiebot-technology/"><u>Optimized with Cutting-Edge Automated Tracking: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimizing-business-efficiency-leveraging-data-driven-insights-from-process-and-task-analysis-join-the-upcoming-abbyy-expert-session/"><u>Optimizing Business Efficiency: Leveraging Data-Driven Insights From Process & Task Analysis - Join the Upcoming ABBYY Expert Session</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimizing-web-pages-for-maximum-search-engine-visibility/"><u>Optimizing Web Pages for Maximum Search Engine Visibility</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/preparing-your-enterprise-for-cloud-transition-insights-from-the-abbyy-perspective/"><u>Preparing Your Enterprise for Cloud Transition: Insights From the ABBYY Perspective</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/professional-photographers-pick-of-edits/"><u>Professional Photographers' Pick of Edits</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-accounts-payable-the-strategic-alliance-between-siemens-and-abbyy-in-process-automation/"><u>Revolutionizing Accounts Payable: The Strategic Alliance Between Siemens & ABBYY in Process Automation</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/sysbus-verstarkung-der-digitalen-fahigkeiten-ihrer-teammitglieder/"><u>Sysbus - Verstärkung Der Digitalen Fähigkeiten Ihrer Teammitglieder</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/the-limits-of-identity-checks-in-fraud-prevention-a-deeper-look-into-effective-strategies/"><u>The Limits of Identity Checks in Fraud Prevention - A Deeper Look Into Effective Strategies</u></a></li>
-<li><a href="https://techtrends.techidaily.com/whatsapp-vs-signal-a-comprehensive-comparison/"><u>WhatsApp vs Signal: A Comprehensive Comparison</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/fast-download-compatible-acer-touchpad-driver-version-for-seamless-use-on-windows-11-systems/"><u>[Fast Download] Compatible Acer Touchpad Driver Version for Seamless Use on Windows 11 Systems</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-the-ultimate-checklist-for-movie-maker-videos-on-vimeo/"><u>[New] 2024 Approved The Ultimate Checklist for Movie Maker Videos on Vimeo</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-custom-youtube-shorts-image-credits-with-ease/"><u>[New] In 2024, Mastering Custom YouTube Shorts Image Credits with Ease</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-boost-your-meeting-management-syncing-zoom-with-gmail-emails/"><u>[Updated] 2024 Approved Boost Your Meeting Management Syncing Zoom with Gmail Emails</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-artful-stop-motion-animation-the-best-15-films/"><u>[Updated] Artful Stop-Motion Animation - The Best 15 Films</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-convertir-nsv-a-avi-online-de-forma-gratuita-con-herramientas-de-movavi/"><u>Cómo Convertir NSV a AVI Online De Forma Gratuita Con Herramientas De Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converter-de-imagens-gratuito-transformando-arquivos-tiff-em-bmp-com-o-movavi/"><u>Converter De Imagens Gratuito: Transformando Arquivos TIFF Em BMP Com O Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converti-file-ts-in-mp4-gratuitamente-online-con-movavi/"><u>Converti File TS in MP4 Gratuitamente Online Con Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-conversion-change-ts-files-into-flv-format-with-movavi-tools/"><u>Free Online Conversion: Change .TS Files Into FLV Format with Movavi Tools</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/how-to-fix-and-stretch-videos-to-perfectly-fit-your-screen-the-ultimate-4-techniques/"><u>How to Fix and Stretch Videos to Perfectly Fit Your Screen: The Ultimate 4 Techniques</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-asus-rog-phone-7-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Asus ROG Phone 7 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-new-era-of-conversational-agents-bard-vs-bing-chatbot/"><u>The New Era of Conversational Agents: Bard Vs. Bing Chatbot</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/transform-your-videos-effortlessly-convert-flv-to-swf-using-moveaveys-web-tool-at-no-cost/"><u>Transform Your Videos Effortlessly: Convert FLV to SWF Using Moveavey's Web Tool at No Cost</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

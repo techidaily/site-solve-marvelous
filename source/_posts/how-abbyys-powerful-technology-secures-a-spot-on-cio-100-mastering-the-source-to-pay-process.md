@@ -1,7 +1,7 @@
 ---
 title: "How ABBYY's Powerful Technology Secures a Spot on CIO 100: Mastering the Source-to-Pay Process"
-date: 2024-09-08T16:00:13.720Z
-updated: 2024-09-14T19:08:54.339Z
+date: 2024-09-15T19:05:56.471Z
+updated: 2024-09-18T21:10:29.004Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e99583f6b5b06e719853b0ad4d8e79890585ba4f6bebb22736b51161b0bbe49e.jpg
@@ -50,10 +50,10 @@ ABBYY’s [intelligent process automation platform](https://tools.techidaily.com
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -119,18 +119,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-capturing-excellence-the-best-camera-lenses/"><u>[New] 2024 Approved Capturing Excellence The Best Camera Lenses</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-analyzing-lack-of-interaction-is-it-a-block/"><u>[New] Analyzing Lack of Interaction Is It a Block?</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-ioss-choice-of-top-ps2-game-simulation-software/"><u>[Updated] IOS's Choice of Top PS2 Game Simulation Software</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-making-your-channels-subscribe-button-pop/"><u>[Updated] Making Your Channel's Subscribe Button Pop</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-little-legends-top-gaming-adventures/"><u>2024 Approved Little Legends Top Gaming Adventures</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-top-scripts-across-eight-film-categories/"><u>2024 Approved Top Scripts Across Eight Film Categories</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-the-art-of-screen-shots-on-sonys-console-ps4-edition/"><u>Mastering the Art of Screen Shots on Sony's Console – PS4 Edition</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimize-with-cookiebot-next-level-analytics-and-personalization-power/"><u>Optimize With Cookiebot: Next-Level Analytics and Personalization Power</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimize-your-sites-analytics-the-advanced-features-of-cookiebot-solutions/"><u>Optimize Your Site's Analytics: The Advanced Features of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimized-webpage-strategies-enhancing-your-online-presence/"><u>Optimized Webpage Strategies: Enhancing Your Online Presence</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimizing-with-cookiebot-boosting-your-websites-potential/"><u>Optimizing with Cookiebot: Boosting Your Website's Potential</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionize-automation-through-informed-decisions-discover-how-with-process-and-task-mining-at-abbyys-special-webinar/"><u>Revolutionize Automation Through Informed Decisions: Discover How with Process and Task Mining at ABBYY's Special Webinar</u></a></li>
-<li><a href="https://games-able.techidaily.com/unleashing-stories-gaming-and-chatgpt/"><u>Unleashing Stories: Gaming and ChatGPT</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-dimensional-doors-top-10-sci-fi-films-that-open-new-worlds/"><u>2024 Approved Dimensional Doors Top 10 Sci-Fi Films that Open New Worlds</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-seamless-screenshot-synergy-for-pc-users/"><u>2024 Approved Seamless Screenshot Synergy for PC Users</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/analyzing-the-need-for-verified-instagramselfies/"><u>Analyzing the Need for Verified Instagramselfies</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-convertir-nsv-a-avi-online-de-forma-gratuita-con-herramientas-de-movavi/"><u>Cómo Convertir NSV a AVI Online De Forma Gratuita Con Herramientas De Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converti-file-ts-in-mp4-gratuitamente-online-con-movavi/"><u>Converti File TS in MP4 Gratuitamente Online Con Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-conversion-change-ts-files-into-flv-format-with-movavi-tools/"><u>Free Online Conversion: Change .TS Files Into FLV Format with Movavi Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/mental-codex-for-online-video-communities-for-2024/"><u>Fundamental Codex for Online Video Communities for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/how-to-fix-and-stretch-videos-to-perfectly-fit-your-screen-the-ultimate-4-techniques/"><u>How to Fix and Stretch Videos to Perfectly Fit Your Screen: The Ultimate 4 Techniques</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Itel A60s? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722898124960-teen-flick-treasures-amazing-titles-available-now-on-netflix/"><u>Teen Flick Treasures: Amazing Titles Available Now on Netflix</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/trasforma-pbm-in-formato-bmp-online-gratuitamente-il-guida-completa-di-movavi/"><u>Trasforma PBM in Formato BMP Online Gratuitamente: Il Guida Completa Di Movavi!</u></a></li>
 </ul></div>
 

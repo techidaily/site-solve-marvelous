@@ -1,7 +1,7 @@
 ---
 title: Gartner's 2023 Magic Quadrant Acknowledges ABBYY as the Preeminent Leader in Process Mining Technology
-date: 2024-09-09T17:07:05.806Z
-updated: 2024-09-14T18:42:29.158Z
+date: 2024-09-16T20:44:10.922Z
+updated: 2024-09-19T01:22:32.628Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/10f40441e17c1fa8de82fe459b0ca66adaa7f77ee4510f8621b2c17f71bab5a7.jpg
@@ -79,28 +79,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-cutting-edge-creativity-on-tiktok-mastering-video-designs-in-minutes/"><u>[New] Cutting-Edge Creativity on TikTok Mastering Video Designs in Minutes</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-protectively-download-youtube-audio-without-fear/"><u>[Updated] In 2024, How to Protectively Download YouTube Audio Without Fear</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-intense-review-the-gecata-game-watcher/"><u>[Updated] In 2024, Intense Review The Gecata Game Watcher</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-tv-off-a-step-by-step-guide-for-2024/"><u>[Updated] Instagram TV Off A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/bikers-vs-zombies-an-exciting-journey-in-days-gone/"><u>Bikers Vs. Zombies - An Exciting Journey in Days Gone!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-advanced-web-analytics-solutions/"><u>Leveraging Cookiebot Technology for Advanced Web Analytics Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/live-datenerfassung-mit-abbyy-ocr-sdk-instantane-erkennung-von-text-im-feld/"><u>Live-Datenerfassung Mit ABBYY OCR SDK - Instantane Erkennung Von Text Im Feld</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/maximizing-online-presence-the-art-of-effective-web-pages-and-seo-techniques/"><u>Maximizing Online Presence: The Art of Effective Web Pages and SEO Techniques</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/nelsonhalls-2020-technology-radar-abbyy-recognized-as-front-runner-in-process-mining-and-data-analysis-techniques/"><u>NelsonHall's 2020 Technology Radar: ABBYY Recognized as Front-Runner in Process Mining & Data Analysis Techniques</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1723007675625-trouble-with-game-launching-heres-how-to-validate-and-fix-it/"><u>Trouble with Game Launching? Here's How to Validate and Fix It</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-funland-for-kids-a-world-of-laughter-and-games/"><u>[Updated] 2024 Approved Funland For Kids A World of Laughter and Games</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-step-by-step-for-entering-google-meet-via-devices/"><u>[Updated] 2024 Approved Step-by-Step for Entering Google Meet via Devices</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726221831239-mp4mp3-movavi/"><u>線上將MP4格式自由改造成MP3 - 拓展音樂經驗的 Movavi方法</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converter-de-imagens-gratuito-transformando-arquivos-tiff-em-bmp-com-o-movavi/"><u>Converter De Imagens Gratuito: Transformando Arquivos TIFF Em BMP Com O Movavi</u></a></li>
+<li><a href="https://win-able.techidaily.com/effective-solutions-resolving-non-loading-webpages-on-chrome-browser/"><u>Effective Solutions: Resolving Non-Loading Webpages on Chrome Browser</u></a></li>
+<li><a href="https://win-blog.techidaily.com/enhancing-in-game-performance-a-guide-to-addressing-counter-strike-2-fps-drops-on-pc/"><u>Enhancing In-Game Performance: A Guide to Addressing Counter-Strike 2 FPS Drops on PC</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-apple-iphone-7-backup-password-heres-what-to-do-by-drfone-ios/"><u>Forgot Apple iPhone 7 Backup Password? Heres What to Do</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/how-to-change-your-voice-in-a-song-lyric-video-tips-for-perfect-audio-effects-with-voice-modulation-software/"><u>How To Change Your Voice In A Song Lyric Video: Tips for Perfect Audio Effects with Voice Modulation Software</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-restore-your-kotion-each-g2000-microphones-audio-input-functionality/"><u>How to Restore Your Kotion EACH-G2000 Microphone's Audio Input Functionality</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/rapida-conversione-da-file-raw-a-jpeg-il-migliore-trasformatore-ottimizzato-per-seo/"><u>Rapida Conversione Da FILE RAW a JPEG: Il Migliore Trasformatore Ottimizzato per SEO</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-tecno-pova-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-10-editeurs-de-pdf-gratuits-pour-windows-votre-guide-ultime-pour-maitriser-la-gestion-des-fichiers/"><u>Top 10 Éditeurs De PDF Gratuits Pour Windows : Votre Guide Ultime Pour Maitriser La Gestion Des Fichiers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-honor-magic5-ultimate-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Honor Magic5 Ultimate Users</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

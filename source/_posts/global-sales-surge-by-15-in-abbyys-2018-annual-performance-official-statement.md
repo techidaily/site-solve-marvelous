@@ -1,7 +1,7 @@
 ---
 title: Global Sales Surge by 15%% in ABBYY's 2018 Annual Performance - Official Statement
-date: 2024-09-07T16:16:03.942Z
-updated: 2024-09-14T16:29:40.659Z
+date: 2024-09-13T20:39:15.907Z
+updated: 2024-09-18T18:16:03.393Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/33904527a6e1718a50027f53fe767c2c1eedacdbdef4cb5558c43f077a848c48.jpg
@@ -64,25 +64,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-swift-ways-to-reorder-youtube-watchlist-alphabetically/"><u>[New] 2024 Approved Swift Ways to Reorder YouTube Watchlist Alphabetically</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-best-mirrorless-cameras-for-vlogging/"><u>[New] 8 Best Mirrorless Cameras for Vlogging</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-capturing-screens-seamlessly-with-ezvid-video-maker/"><u>[New] In 2024, Capturing Screens Seamlessly with Ezvid Video Maker</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-boosting-engagement-tactics-for-great-instagram-reels/"><u>2024 Approved Boosting Engagement Tactics for Great Instagram Reels</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/discover-the-exhilarating-innovations-the-7-key-features-launched-for-bard-ai-during-googles-io-event-202amo/"><u>Discover the Exhilarating Innovations: The 7 Key Features Launched for BARD AI During Google's I/O Event 202Amo</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-samsung-galaxy-s24plus-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Samsung Galaxy S24+ Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Sony Xperia 10 V? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimized-by-cookiebot-enhanced-sales-funnel-management-and-analytics/"><u>Optimized by Cookiebot: Enhanced Sales Funnel Management and Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/paragon-customer-communications-advances-with-abbyys-digital-intelligence-for-comprehensive-digital-overhaul/"><u>Paragon Customer Communications Advances with ABBYY's Digital Intelligence for Comprehensive Digital Overhaul</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/quick-glance-at-stars-contribution-for-2024/"><u>Quick Glance at Star's Contribution for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionize-your-data-collection-state-of-the-art-tools-powered-by-cookiebot/"><u>Revolutionize Your Data Collection: State-of-the-Art Tools Powered by Cookiebot</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-mobile-tech-music-streaming-and-e-signatures-with-smartwatches-insights-from-the-abbyy-blog/"><u>Revolutionizing Mobile Tech: Music Streaming & E-Signatures with Smartwatches – Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-nokia-c12-pro-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Nokia C12 Pro Screen | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-prime-flood-and-flow-video-game-reviews/"><u>[New] In 2024, Prime Flood & Flow Video Game Reviews</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1-mastering-color-grading-techniques-in-movavi-video-editing-software/"><u>1. Mastering Color Grading Techniques in Movavi Video Editing Software</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/advanced-tech-insights-a-deep-dive-by-tomcuits/"><u>Advanced Tech Insights: A Deep-Dive by Tom'cuits</u></a></li>
+<li><a href="https://games-able.techidaily.com/budget-savvy-whitescape-choices-the-best-systems-in-2-writes/"><u>Budget-Savvy Whitescape Choices: The Best Systems in 2 Writes</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-oppo-reno-11-5g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Oppo Reno 11 5G Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-audio-transformer-compatible-with-windows-and-macos/"><u>Free Online Audio Transformer: Compatible with Windows and macOS</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-oppo-a78-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Oppo A78 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Realme C67 4G? | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavis-gratuite-webvorm-reconversie-tool-voor-m1v-naar-avi-fichieren-beste-ontwikkelingen/"><u>Movavi's Gratuite Webvorm Reconversie Tool Voor M1V Naar Avi Fichieren - Beste Ontwikkelingen</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-impact-of-ceo-change-at-openai-understanding-the-future-for-chatgpt-post-sam-altman/"><u>The Impact of CEO Change at OpenAI: Understanding the Future for ChatGPT Post-Sam Altman</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-next-evolution-in-wearables-apple-watch-series-8s-release-info-specifications-and-cost-breakdown/"><u>The Next Evolution in Wearables: Apple Watch Series 8'S Release Info, Specifications & Cost Breakdown</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/will-your-tv-screen-showcase-fb-feeds-soon-in-2024/"><u>Will Your TV Screen Showcase FB Feeds Soon, In 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

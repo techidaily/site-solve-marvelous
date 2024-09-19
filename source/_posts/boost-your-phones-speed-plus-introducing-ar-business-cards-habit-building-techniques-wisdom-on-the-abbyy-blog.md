@@ -1,7 +1,7 @@
 ---
 title: "Boost Your Phone's Speed + Introducing AR Business Cards: Habit Building Techniques | Wisdom on the ABBYY Blog"
-date: 2024-09-10T21:36:03.420Z
-updated: 2024-09-14T20:09:26.804Z
+date: 2024-09-14T16:26:28.652Z
+updated: 2024-09-18T18:19:05.652Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571566316abe24ad6c80cbdaa7.jpeg
@@ -67,10 +67,10 @@ Did you know that [Business Card Reader](http://qrs.ly/ip56xfe)is capable of cre
 Note that this feature is only available in iOS 11 for iPhone SE, 6s, and newer.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **App of the Week: Loop**
@@ -80,10 +80,10 @@ Do you promise yourself to start a new life on Monday but never actually do? Try
 ![App Loop habit tracker control time](https://static1.abbyy.com/abbyycommedia/26278/prilozhenie-nedeli.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In addition to a convenient list of habits themselves, the app helps to calculate the “power” of your habits. Each repetition results in the stronger power and if you miss a day the power gets weaker. And a nice feature is that you can add a notification to each habit, so you don’t miss a day. The app enables you to mark as completed, skip or snooze the repetition of the action to consolidate the habit right from the notification.
@@ -159,16 +159,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-the-non-indexable-world-of-youtube-a-compreayer-guide-to-unlisted-videos/"><u>[New] 2024 Approved The Non-Indexable World of YouTube A Compreayer Guide to ‘Unlisted’ Videos</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-step-into-the-future-of-video-creation-with-animated-subscribe-buttons-in-filmora/"><u>[Updated] 2024 Approved Step Into the Future of Video Creation with Animated Subscribe Buttons in Filmora</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-grassroot-game-gear-free-film-tips-for-fans/"><u>[Updated] In 2024, Grassroot Game Gear - Free Film Tips for Fans</u></a></li>
-<li><a href="https://facebook.techidaily.com/adapting-with-ease-the-persistent-benefits-of-facebooks-innovations/"><u>Adapting with Ease: The Persistent Benefits of Facebook's Innovations</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-maximizing-audience-reach-sharing-twitch-live/"><u>In 2024, Maximizing Audience Reach Sharing Twitch Live</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimize-with-cookiebot-boosting-traffic-and-conversions-on-your-website/"><u>Optimize with Cookiebot: Boosting Traffic and Conversions on Your Website</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/personalized-engagement-with-our-services-powered-by-the-advanced-technology-of-cookiebot/"><u>Personalized Engagement with Our Services, Powered by the Advanced Technology of Cookiebot</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/protection-renforcee-pour-votre-gestion-documentaire-grace-a-tangro-avec-technologie-abbyy/"><u>Protection Renforcée Pour Votre Gestion Documentaire Grâce À Tangro® Avec Technologie ABBYY</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-efficiency-unlocking-the-power-of-automation-for-uk-companpsies-findings-by-abbyy-analysis/"><u>Revolutionizing Efficiency: Unlocking the Power of Automation for UK Companpsies - Findings by ABBYY Analysis</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/showcasing-intuitive-ai-solutions-for-enhanced-accounts-payable-efficiency/"><u>Showcasing Intuitive AI Solutions for Enhanced Accounts Payable Efficiency</u></a></li>
-<li><a href="https://review-topics.techidaily.com/toms-electronic-emporium-a-deep-dive-into-cutting-edge-hardware/"><u>Tom's Electronic Emporium: A Deep Dive Into Cutting-Edge Hardware</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-expert-insights-top-insta-management-tools-reviewed/"><u>2024 Approved Expert Insights Top Insta Management Tools Reviewed</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-preventing-disorientation-in-virtual-environments/"><u>2024 Approved Preventing Disorientation in Virtual Environments</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-guide-to-downloading-and-installing-hp-officejet-pro-8600-windows-drivers/"><u>Easy Guide to Downloading and Installing HP Officejet Pro 8600 Windows Drivers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-selection-of-tools-for-image-to-video-conversion-for-2024/"><u>Expert Selection of Tools for Image-to-Video Conversion for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-swf-to-mkv-converter-movavi-video-editor/"><u>Free Online Swf to Mkv Converter - Movavi Video Editor</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gratuit-gebaseerd-webm-inpakt-movavi-naar-mpeg-converseren-online/"><u>Gratuit Gebaseerd Webm-Inpakt Movavi Naar MPEG - Converseren Online</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-iphone-8-plus-storage-not-loadingshowing-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix iPhone 8 Plus Storage Not Loading/Showing | Stellar</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-stop-receiving-unwanted-text-messages-on-iphones/"><u>How To: Stop Receiving Unwanted Text Messages on iPhones</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-xiaomi-14-pro-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Xiaomi 14 Pro FRP Without Computer</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/online-vrijetijdige-converteren-van-trp-naar-mpg-met-movavi/"><u>Online Vrijetijdige Converteren Van TRP Naar MPG Met MOVAVI</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformation-facile-et-gratuite-de-fichiers-mka-en-wav-en-ligne-decouvrez-la-solution-de-movavi/"><u>Transformation Facile Et Gratuite De Fichiers MKA en WAV en Ligne - Découvrez La Solution De Movavi</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unveiling-metaverse-marketing-mysteries/"><u>Unveiling Metaverse Marketing Mysteries</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-vn-video-editor-pro-apk-we-put-its-editing-capabilities-to-the-test/"><u>Updated VN Video Editor Pro Apk We Put Its Editing Capabilities to the Test</u></a></li>
 </ul></div>
 

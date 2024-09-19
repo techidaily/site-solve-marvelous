@@ -1,7 +1,7 @@
 ---
 title: ABBYY Appoints Torsten Malchow as New VP and Global Enterprise Sales Leader
-date: 2024-09-12T23:45:52.230Z
-updated: 2024-09-14T19:11:06.345Z
+date: 2024-09-15T01:36:31.866Z
+updated: 2024-09-18T23:17:41.789Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a50d24fd1a27318344d95b256.jpg
@@ -79,25 +79,21 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-chart-toppers-unveiled-top-youtube-stars-and-their-subs/"><u>[New] In 2024, Chart-Toppers Unveiled Top YouTube Stars and Their Subs</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-navigating-fb-discovering-shared-video-content/"><u>[New] In 2024, Navigating FB Discovering Shared Video Content</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-optimizing-your-music-library-transitioning-from-spotify-to-youtube-music/"><u>[Updated] 2024 Approved Optimizing Your Music Library Transitioning From Spotify To YouTube Music</u></a></li>
-<li><a href="https://win11.techidaily.com/bypass-login-obstacles-in-microsoft-store-quickly/"><u>Bypass Login Obstacles in Microsoft Store Quickly</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/flexicapture-von-abbyy-effiziente-losung-fur-den-abruf-und-die-bearbeitung-digitaler-fahrzeugunterlagen-mit-der-software-gas-geben/"><u>FlexiCapture Von ABBYY: Effiziente Lösung Für Den Abruf Und Die Bearbeitung Digitaler Fahrzeugunterlagen Mit Der Software Gas Geben</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gartners-2023-magic-quadrant-acknowledges-abbyy-as-the-preeminent-leader-in-process-mining-technology/"><u>Gartner's 2023 Magic Quadrant Acknowledges ABBYY as the Preeminent Leader in Process Mining Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/how-abbyys-powerful-technology-secures-a-spot-on-cio-100-mastering-the-source-to-pay-process/"><u>How ABBYY's Powerful Technology Secures a Spot on CIO 100: Mastering the Source-to-Pay Process</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-from-the-apple-iphone-15-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock From the Apple iPhone 15 Without Previous Owner?</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-phantom-slow-motion-masterclass/"><u>In 2024, Phantom Slow Motion Masterclass</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/innovative-strategies-for-advancing-process-enhancement-amidst-covid-19-and-future-challenges/"><u>Innovative Strategies for Advancing Process Enhancement Amidst COVID-19 & Future Challenges</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/la-charge-innovante-de-labbyy-sdk-une-integration-fluide-pour-le-recuperation-en-temps-reel-des-informations/"><u>La Charge Innovante De L'ABBYY SDK: Une Intégration Fluide Pour Le Récupération en Temps Réel Des Informations</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-tailored-content-delivery-and-seo-success/"><u>Leveraging Cookiebot Technology for Tailored Content Delivery and SEO Success</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-honor-magic-6-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Honor Magic 6 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-chuckle-cache-unearthing-humor-in-twitters-feeds/"><u>[New] 2024 Approved Chuckle Cache Unearthing Humor in Twitters Feeds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-keep-watching-youtube-on-the-go-with-iphoneandroid/"><u>[New] Keep Watching YouTube On-the-Go with iPhone/Android</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-charting-your-youtube-trajectory-essential-tools-from-social-blade/"><u>[Updated] 2024 Approved Charting Your YouTube Trajectory Essential Tools From Social Blade</u></a></li>
+<li><a href="https://apple-account.techidaily.com/a-step-by-step-guide-to-finding-your-apple-id-on-your-iphone-6s-plus-by-drfone-ios/"><u>A Step-by-Step Guide to Finding Your Apple ID On Your iPhone 6s Plus</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-cambiar-tu-video-de-formato-asf-a-mov-sin-coste-con-herramientas-en-linea-tutorial-con-movavi/"><u>Cómo Cambiar Tu Vídeo De Formato ASF a MOV Sin Coste Con Herramientas en Línea: Tutorial Con Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converti-video-flv-in-formato-aiff-liberamente-conversiononline/"><u>Converti Video FLV in Formato AIFF Liberamente - ConversionOnline</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/flvavi/"><u>FLVとAVIファイルの免責コースで簡単な変換 - ムーバヴィ</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-lock-your-samsung-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Samsung Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://extra-support.techidaily.com/startups-and-crypto-learn-nfts-with-no-hassle-for-2024/"><u>Startups & Crypto Learn NFTs with No Hassle for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

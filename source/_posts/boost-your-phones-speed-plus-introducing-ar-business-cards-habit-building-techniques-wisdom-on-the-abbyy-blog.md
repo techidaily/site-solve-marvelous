@@ -1,7 +1,7 @@
 ---
 title: "Boost Your Phone's Speed + Introducing AR Business Cards: Habit Building Techniques | Wisdom on the ABBYY Blog"
-date: 2024-09-14T16:26:28.652Z
-updated: 2024-09-18T18:19:05.652Z
+date: 2024-09-20T17:11:46.189Z
+updated: 2024-09-23T16:17:37.967Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571566316abe24ad6c80cbdaa7.jpeg
@@ -41,6 +41,13 @@ The device is still slow? Try **cleaning up cache in Safari**. The browser store
 
 Would you care to make it even faster? Well, there’s only one option left then. The method of last resort here is to **restore a backup** that was made in the past—back when your device worked perfectly fast. If you do not remember how to restore the back up, consult with [one of our previous issues](https://tools.techidaily.com/abbyy/products/). If you are disinclined to read the whole article, here’s how you do it in brief: connect your iPhone to your laptop, launch iTunes, select the copy that you wish to restore, and install it back on your device.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Android Tip: Speeding up Your Android Device**
 
 Much to our regret, performance of Android devices also declines with time. It inevitably happens with all intelligent top-notch phones. But don’t be sad, we discovered a couple of effective tips to speed up your smartphone. Read on.
@@ -49,11 +56,25 @@ For openers, check whether your phone runs the **latest operating system**. User
 
 ![Android Speed up Android Device](https://static1.abbyy.com/abbyycommedia/26277/whatsapp-image-2018-05-28-at-162014-576x1024.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your software is fine, try **transferring data from** **your phone to an SD card**. To do this, open **Settings** \> **Memory** and migrate all your apps and media files to an external memory device. You can also try clearing app cache — this might also speed up your phone a tad.
 
 Constant **synchronization with services, background app refresh** — all of this affects both your battery life and system performance. If you want to get rid of this annoyance, simply jump to **Settings** \> **Accounts** and disable unnecessary features.
 
 And the last thing that slows your phone down is **unused apps**. Most apps feature services that are launched together with the phone and access its memory. If you believe your phone has more important tasks to accomplish, close them down. Go to **Settings** \> **Apps** \> **Active** services and disable the services that steal from your phone’s memory. But be careful! You must keep system utilities running, otherwise your phone may stop working.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **ABBYY Tip: Creating Business Cards out of Thin Air**
 
@@ -66,25 +87,11 @@ Did you know that [Business Card Reader](http://qrs.ly/ip56xfe)is capable of cre
 
 Note that this feature is only available in iOS 11 for iPhone SE, 6s, and newer.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **App of the Week: Loop**
 
 Do you promise yourself to start a new life on Monday but never actually do? Try [Loop](https://play.google.com/store/apps/details?id=org.isoron.uhabits&hl=en) — an app that helps to develop and maintain habits. Detailed diagrams and statistics show what habits have already been consolidated and what must still be worked on.
 
 ![App Loop habit tracker control time](https://static1.abbyy.com/abbyycommedia/26278/prilozhenie-nedeli.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In addition to a convenient list of habits themselves, the app helps to calculate the “power” of your habits. Each repetition results in the stronger power and if you miss a day the power gets weaker. And a nice feature is that you can add a notification to each habit, so you don’t miss a day. The app enables you to mark as completed, skip or snooze the repetition of the action to consolidate the habit right from the notification.
 
@@ -95,6 +102,13 @@ That is all from us for today! See you next Monday.
 P.S. The previous issue is available [here](https://tools.techidaily.com/abbyy/products/).
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -159,18 +173,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-expert-insights-top-insta-management-tools-reviewed/"><u>2024 Approved Expert Insights Top Insta Management Tools Reviewed</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-preventing-disorientation-in-virtual-environments/"><u>2024 Approved Preventing Disorientation in Virtual Environments</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-guide-to-downloading-and-installing-hp-officejet-pro-8600-windows-drivers/"><u>Easy Guide to Downloading and Installing HP Officejet Pro 8600 Windows Drivers</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/expert-selection-of-tools-for-image-to-video-conversion-for-2024/"><u>Expert Selection of Tools for Image-to-Video Conversion for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-online-swf-to-mkv-converter-movavi-video-editor/"><u>Free Online Swf to Mkv Converter - Movavi Video Editor</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratuit-gebaseerd-webm-inpakt-movavi-naar-mpeg-converseren-online/"><u>Gratuit Gebaseerd Webm-Inpakt Movavi Naar MPEG - Converseren Online</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-iphone-8-plus-storage-not-loadingshowing-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix iPhone 8 Plus Storage Not Loading/Showing | Stellar</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-stop-receiving-unwanted-text-messages-on-iphones/"><u>How To: Stop Receiving Unwanted Text Messages on iPhones</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-xiaomi-14-pro-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Xiaomi 14 Pro FRP Without Computer</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-vrijetijdige-converteren-van-trp-naar-mpg-met-movavi/"><u>Online Vrijetijdige Converteren Van TRP Naar MPG Met MOVAVI</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transformation-facile-et-gratuite-de-fichiers-mka-en-wav-en-ligne-decouvrez-la-solution-de-movavi/"><u>Transformation Facile Et Gratuite De Fichiers MKA en WAV en Ligne - Découvrez La Solution De Movavi</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unveiling-metaverse-marketing-mysteries/"><u>Unveiling Metaverse Marketing Mysteries</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-vn-video-editor-pro-apk-we-put-its-editing-capabilities-to-the-test/"><u>Updated VN Video Editor Pro Apk We Put Its Editing Capabilities to the Test</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-decoding-the-art-of-iphones-and-podcasts-downloading/"><u>[New] 2024 Approved Decoding the Art of iPhones and Podcasts Downloading</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-smooth-strategies-for-uncluttered-google-meet-sessions/"><u>[New] 2024 Approved Smooth Strategies for Uncluttered Google Meet Sessions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/avi82024/"><u>今年注目! ベスト無料AVIプレーヤー8つ選びたします【2024版】</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/conversione-video-senza-costi-da-h264-a-wav-via-web-utilizzando-movavi/"><u>Conversione Video Senza Costi: Da H.264 A WAV via Web, Utilizzando Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guia-gratuita-para-la-conversion-de-archivos-nsv-a-avi-por-internet-utilizar-movavi-sin-costo/"><u>Guía Gratuita Para La Conversión De Archivos NSV a AVI Por Internet - Utilizar Movavi Sin Costo</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-vivo-y100mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Vivo Y100Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-synching-release-timings-to-audience-trends/"><u>In 2024, Synching Release Timings to Audience Trends</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-vivo-y78plus-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Vivo Y78+ FRP Without Computer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ring-the-art-of-crafting-engaging-youtube-screen-closures/"><u>Mastering the Art of Crafting Engaging YouTube Screen Closures</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavi-video-composer-fast-and-effortless-editing-software/"><u>Movavi Video Composer: Fast & Effortless Editing Software</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/starting-with-av1-an-essential-overview/"><u>Starting with AV1 An Essential Overview</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-ranked-processors-for-professional-video-editing-expert-picks/"><u>Top-Ranked Processors for Professional Video Editing: Expert Picks</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformez-vos-fichiers-wtv-en-wmv-gratuitement-sur-internet-utilisation-simple-de-movavi/"><u>Transformez Vos Fichiers WTV en WMV Gratuitement Sur Internet - Utilisation Simple De Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/vullen-sie-ihre-ts-afbeeldingen-gratis-in-mp4-konverteren-via-de-gebruikelijke-movavi-online-tool/"><u>Vullen Sie Ihre .TS-afbeeldingen Gratis in MP4 Konverteren via De Gebruikelijke Movavi Online-Tool</u></a></li>
 </ul></div>
 

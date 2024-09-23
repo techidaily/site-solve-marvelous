@@ -1,7 +1,7 @@
 ---
 title: Global Sales Surge by 15%% in ABBYY's 2018 Annual Performance - Official Statement
-date: 2024-09-13T20:39:15.907Z
-updated: 2024-09-18T18:16:03.393Z
+date: 2024-09-20T16:05:43.706Z
+updated: 2024-09-23T18:04:19.020Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/33904527a6e1718a50027f53fe767c2c1eedacdbdef4cb5558c43f077a848c48.jpg
@@ -64,24 +64,29 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-prime-flood-and-flow-video-game-reviews/"><u>[New] In 2024, Prime Flood & Flow Video Game Reviews</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-free-youtube-end-screen-resources-enhance-video-impact/"><u>[Updated] In 2024, Free YouTube End Screen Resources - Enhance Video Impact</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-metaphysical-realms-of-the-metaverse-quotations-style/"><u>[Updated] Metaphysical Realms of the Metaverse, Quotations Style</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/1-mastering-color-grading-techniques-in-movavi-video-editing-software/"><u>1. Mastering Color Grading Techniques in Movavi Video Editing Software</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/advanced-tech-insights-a-deep-dive-by-tomcuits/"><u>Advanced Tech Insights: A Deep-Dive by Tom'cuits</u></a></li>
-<li><a href="https://games-able.techidaily.com/budget-savvy-whitescape-choices-the-best-systems-in-2-writes/"><u>Budget-Savvy Whitescape Choices: The Best Systems in 2 Writes</u></a></li>
-<li><a href="https://techidaily.com/different-methods-for-resetting-oppo-reno-11-5g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Oppo Reno 11 5G Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/5-ways-to-rewind-a-twitch-live-stream/"><u>5 Ways to Rewind A Twitch Live Stream</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726226530662-mkv-wav-movavi/"><u>網路上自由改建 MKV成 WAV - 使用Movavi音頻編輯器</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/facil-e-gratuit-mudando-mp4-em-ogv-direto-no-movavi-sem-custo-algum/"><u>Fácil E Gratuit@! Mudando MP4 Em OGV Direto No Movavi Sem Custo Algum</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/free-online-audio-transformer-compatible-with-windows-and-macos/"><u>Free Online Audio Transformer: Compatible with Windows and macOS</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-oppo-a78-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Oppo A78 Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Realme C67 4G? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-idea-to-hit-solo-podcast-production-tactics-for-2024/"><u>From Idea to Hit Solo Podcast Production Tactics for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gratuiti-download-e-conversione-da-mp4-a-m4b-con-movavi-il-tuo-passaggio-online-per-i-podcast-e-gli-audio-libri/"><u>Gratuiti Download E Conversione Da MP4 a M4B Con Movavi – Il Tuo Passaggio Online per I Podcast E Gli Audio Libri</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-lava-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Lava Devices</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-capture-screens-in-windows-8-4-methods/"><u>In 2024, Capture Screens in Windows 8 4 Methods</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-no-cost-nintendo-switch-virtual-games/"><u>In 2024, No-Cost Nintendo Switch Virtual Games</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-vivo-s18-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Vivo S18 | Dr.fone</u></a></li>
 <li><a href="https://solve-marvelous.techidaily.com/movavis-gratuite-webvorm-reconversie-tool-voor-m1v-naar-avi-fichieren-beste-ontwikkelingen/"><u>Movavi's Gratuite Webvorm Reconversie Tool Voor M1V Naar Avi Fichieren - Beste Ontwikkelingen</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-impact-of-ceo-change-at-openai-understanding-the-future-for-chatgpt-post-sam-altman/"><u>The Impact of CEO Change at OpenAI: Understanding the Future for ChatGPT Post-Sam Altman</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-next-evolution-in-wearables-apple-watch-series-8s-release-info-specifications-and-cost-breakdown/"><u>The Next Evolution in Wearables: Apple Watch Series 8'S Release Info, Specifications & Cost Breakdown</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/will-your-tv-screen-showcase-fb-feeds-soon-in-2024/"><u>Will Your TV Screen Showcase FB Feeds Soon, In 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/online-veilig-mgk-naar-mp4-omzetten-kostenloos-diensten-von-movavi-bereikbaar/"><u>Online Veilig MGK Naar MP4 Omzetten - Kostenloos Diensten Von Movavi Bereikbaar</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-infinix-note-30i-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Infinix Note 30i</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-5-methods-for-capturing-computer-sound-insights-from-movavi/"><u>Top 5 Methods for Capturing Computer Sound: Insights From Movavi</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Optimized Data Collection & Consent Management"
-date: 2024-09-18T03:53:37.824Z
-updated: 2024-09-18T17:07:09.864Z
+date: 2024-09-19T16:43:02.274Z
+updated: 2024-09-23T18:26:11.991Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b3a280654f3cc4ecaa0af8b47827af91d1bc68ec573b9890cc259b048e11faa1.jpg
@@ -19,11 +19,25 @@ Other | Accounts Payable Automation
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Scena automates supplier invoice & credit note processing with ABBYY and Engeneum, saving 60% of processing time with an automated seamless connection to Sage™
 
 Other | Accounts Payable Automation 
 
 ![Sumitomo Warehouse Co. Ltd. & ABBYY](https://static4.abbyy.com/abbyycommedia/31985/02-scena-cover-556x303.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Customer Overview
 
@@ -90,6 +104,13 @@ The solution let’s Scena:
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY solutions for accounts payable automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Solutions for Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) 
@@ -97,6 +118,13 @@ The solution let’s Scena:
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static4.abbyy.com/abbyycommedia/31986/02d-scena-cover-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") [PDF Version](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Read the document](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") 
 
@@ -121,24 +149,18 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-master-your-live-video-setting-up-dslr-on-laptop-or-desktop/"><u>[New] In 2024, Master Your Live Video Setting Up DSLR on Laptop or Desktop</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-transform-ideas-into-engaging-movies-using-youtube-editor/"><u>[New] Transform Ideas Into Engaging Movies Using YouTube Editor</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-resolve-google-chrome-video-troubles-fb/"><u>[Updated] In 2024, Resolve Google Chrome Video Troubles (FB)</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-enhancing-social-engagement-with-zoom-fb-live-streams/"><u>2024 Approved Enhancing Social Engagement with Zoom-FB Live Streams</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-online-converter-from-rw2-to-jpeg-easy-by-movavi/"><u>Free Online Converter From RW2 to JPEG - Easy by Movavi</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-call-logs-from-s18e-by-fonelab-android-recover-call-logs/"><u>How to rescue lost call logs from S18e</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-repeat-revelry-twice-the-joy-with-televised-video-repetition/"><u>In 2024, Repeat Revelry Twice the Joy with Televised Video Repetition</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-raw-to-jpg-transformation-for-free-with-movavi-photo-editor/"><u>Online RAW-to-JPG Transformation for Free with Movavi Photo Editor</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/schlusselkompetenzen-in-der-videobearbeitung-mit-movavi-kompetente-handhabungsanleitungen-stap-fur-stap-lernen-sie-schritt-fur-schritt/"><u>Schlüsselkompetenzen in Der Videobearbeitung Mit Movavi: Kompetente Handhabungsanleitungen Stap-Für-Stap - Lernen Sie Schritt Für Schritt</u></a></li>
-<li><a href="https://media-tips.techidaily.com/step-by-step-tutorial-on-resizing-and-converting-avi-videos-to-asf/"><u>Step-by-Step Tutorial on Resizing and Converting AVI Videos to ASF</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/watch-all-the-star-trek-movies-in-correct-order-your-complete-roadmap/"><u>Watch All the Star Trek Movies in Correct Order - Your Complete Roadmap</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/what-is-apple-m1-chip/"><u>What Is Apple M1 Chip?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-pro-level-phone-and-camera-gimbal-tracking-systems/"><u>[New] Pro-Level Phone & Camera Gimbal Tracking Systems</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-streamline-operations-ranking-the-top-8-facebook-task-managers/"><u>[Updated] Streamline Operations Ranking the Top 8 Facebook Task Managers</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726226880430-wav-m4a-movavi/"><u>線上無償 WAV 到 M4A 轉換服務：Movavi 音頻編碼工具</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/downloadable-mkaaac-video-transcoder-tool-by-movavi-no-cost-use-anywhere/"><u>Downloadable MKA/AAC Video Transcoder Tool by Movavi - No Cost, Use Anywhere!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guia-para-convertir-archivos-de-audio-wav-a-mp3-sin-costo-alguno-mediante-movavi/"><u>Guía Para Convertir Archivos De Audio WAV a MP3 Sin Costo Alguno Mediante Movavi</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-motorola-moto-g84-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Motorola Moto G84 5G Phones with/without a PC</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-copy-contacts-from-apple-iphone-14-to-sim-drfone-by-drfone-transfer-from-ios/"><u>How to Copy Contacts from Apple iPhone 14 to SIM? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-essentials-of-monetization-youtube-policy-update/"><u>In 2024, The Essentials of Monetization YouTube Policy Update</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/switch-audio-formats-effortlessly-convert-ogg-to-wmv-for-free-using-the-best-online-tools/"><u>Switch Audio Formats Effortlessly - Convert OGG to WMV for Free Using the Best Online Tools</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/telechargez-et-convertissez-votre-fichier-voc-en-wmv-pour-gratuit-conversion-video-rapide-en-ligne-a-laide-de-movavi/"><u>Téléchargez Et Convertissez Votre Fichier VOC en WMV Pour Gratuit – Conversion Vidéo Rapide en Ligne À L'aide De Movavi</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-to-motorola-moto-g14-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Motorola Moto G14 Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformez-vos-fichiers-swf-en-avi-sans-frais-grace-au-convertisseur-en-ligne-movavi-solution-optimisee-seo/"><u>Transformez Vos Fichiers SWF en AVI Sans Frais Grâce Au Convertisseur en Ligne Movavi - Solution Optimisée SEO</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-cast-any-video-a-step-by-step-guide-to-chromecast-compatibility/"><u>Updated Cast Any Video A Step-by-Step Guide to Chromecast Compatibility</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

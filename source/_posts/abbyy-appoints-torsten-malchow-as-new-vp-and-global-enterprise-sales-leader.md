@@ -1,7 +1,7 @@
 ---
 title: ABBYY Appoints Torsten Malchow as New VP and Global Enterprise Sales Leader
-date: 2024-09-15T01:36:31.866Z
-updated: 2024-09-18T23:17:41.789Z
+date: 2024-09-19T18:04:32.751Z
+updated: 2024-09-23T18:32:46.850Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a50d24fd1a27318344d95b256.jpg
@@ -79,21 +79,27 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-chuckle-cache-unearthing-humor-in-twitters-feeds/"><u>[New] 2024 Approved Chuckle Cache Unearthing Humor in Twitters Feeds</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-keep-watching-youtube-on-the-go-with-iphoneandroid/"><u>[New] Keep Watching YouTube On-the-Go with iPhone/Android</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-charting-your-youtube-trajectory-essential-tools-from-social-blade/"><u>[Updated] 2024 Approved Charting Your YouTube Trajectory Essential Tools From Social Blade</u></a></li>
-<li><a href="https://apple-account.techidaily.com/a-step-by-step-guide-to-finding-your-apple-id-on-your-iphone-6s-plus-by-drfone-ios/"><u>A Step-by-Step Guide to Finding Your Apple ID On Your iPhone 6s Plus</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-cambiar-tu-video-de-formato-asf-a-mov-sin-coste-con-herramientas-en-linea-tutorial-con-movavi/"><u>Cómo Cambiar Tu Vídeo De Formato ASF a MOV Sin Coste Con Herramientas en Línea: Tutorial Con Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/converti-video-flv-in-formato-aiff-liberamente-conversiononline/"><u>Converti Video FLV in Formato AIFF Liberamente - ConversionOnline</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/flvavi/"><u>FLVとAVIファイルの免責コースで簡単な変換 - ムーバヴィ</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-lock-your-samsung-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Samsung Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://extra-support.techidaily.com/startups-and-crypto-learn-nfts-with-no-hassle-for-2024/"><u>Startups & Crypto Learn NFTs with No Hassle for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/textcoefficient-of-kinetic-friction-fracv2-u22s-cdot-g/"><u> [ Text{coefficient of Kinetic Friction} = Frac{(v^2 - U^2)}{(2s Cdot G)} </u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enhancing-video-success-top-8-yt-thumbnail-strategies/"><u>[New] 2024 Approved Enhancing Video Success Top 8 YT Thumbnail Strategies</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-hit-the-jackpot-of-humor-craft-top-tier-youtube-reaction-videos-3-techniques/"><u>[New] Hit the Jackpot of Humor – Craft Top-Tier YouTube Reaction Videos (3 Techniques)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-subtly-lowering-volume-alives-guide-for-2024/"><u>[New] Subtly Lowering Volume Alive’s Guide for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/captivating-images-with-intentional-leading-lines-iphone-for-2024/"><u>Captivating Images with Intentional Leading Lines (iPhone) for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-desfondar-fotografias-gratuitamente-usando-software-virtual/"><u>Cómo Desfondar Fotografías Gratuitamente Usando Software Virtual</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/download-movavis-xrecorder-now-premium-free-pc-recording-tool-with-advanced-features/"><u>Download Movavi's XRecorder Now: Premium, FREE PC Recording Tool with Advanced Features</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gratuitamente-converte-i-file-nsv-a-formato-wmv-con-movavi-fai-trasformare-le-tue-video/"><u>Gratuitamente Converte I File NSV a Formato WMV Con Movavi - Fai Trasformare Le Tue Video</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-hds-radiance-reviewed-does-it-merit-the-hdr-label/"><u>In 2024, HD's Radiance Reviewed Does It Merit the HDR Label?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-perfect-pitch-perfection-the-top-7-apps-to-change-your-voice-online/"><u>In 2024, Perfect Pitch Perfection The Top 7 Apps to Change Your Voice Online</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Meizu 21? | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/los-15-mejores-videoplayer-para-ver-mp4-sin-costo-en-pcs-con-windows-10-y-computadoras-mac-gratis/"><u>Los 15 Mejores Videoplayer Para Ver MP4 Sin Costo en PCs Con Windows 10 Y Computadoras Mac - Gratis</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/movavis-online-mp3-to-m4r-service-convert-your-songs-free/"><u>Movavi's Online MP3-to-M4R Service - Convert Your Songs Free!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/sviluppatore-audio-avanzato-software-editoriale-music-per-modifiche-sonore-soluzioni-movavi/"><u>Sviluppatore Audio Avanzato: Software Editoriale Music per Modifiche Sonore - Soluzioni Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/veiling-uw-skype-gesprek-efficient-en-gemakkelijk-onderdelen-informatieverwerkende-voertuigen/"><u>Veiling Uw Skype Gesprek - Efficiënt en Gemakkelijk Onderdelen Informatieverwerkende Voertuigen</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

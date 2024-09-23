@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Workforce Insights: Unearthing the Unique Passions that Fuel Our Dynamic Skill Set"
-date: 2024-09-11T19:39:02.188Z
-updated: 2024-09-18T21:21:40.614Z
+date: 2024-09-22T18:01:10.284Z
+updated: 2024-09-23T18:22:42.715Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5b41f1296863a8cc22d3a2c3dbb979d19c4362b2b1c96fbfb8d71b7193c17bd8.jpg
@@ -21,6 +21,13 @@ In this edition of our "Beyond the Job Title" interview series, we sat down with
 ### Elizaveta (Liza) Lagireva, Talent Acquisition Partner, Serbia 
 
 ![elizaveta-lagireva](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-unique-passions-of-abbyy/elizaveta_lagireva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza’s love for chess began in childhood when her father introduced her to the game. For her, chess is more than a game—it's a mental challenge that she embraces both competitively and leisurely, and which helps her recharge and stay focused at work. 
 
@@ -44,6 +51,13 @@ Liza finds solace in blitz games during breaks, describing them as a mental rech
 
 ![abbyy-greta-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-unique-passions-of-abbyy/dmitry_golivets.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Dmitry Golivets’ passion for Historical Medieval Battles (Buhurt) stems from his lifelong fascination with medieval history and combat sports. He sees this unique hobby as a physical and mental challenge that complements his professional responsibilities. 
 
 ##### What made you choose Buhurt, or Historical Medieval Battles, and how did it all start? 
@@ -58,9 +72,23 @@ Dmitry navigates the challenges of balancing his rigorous training schedule with
 
 Dmitry emphasized teamwork and resilience as key takeaways from Buhurt, essential for collaborative success and personal growth at ABBYY. "Medieval combat is the ultimate metaphor for teamwork. You must do your absolute best every single round or your teammates are going to feel the consequences of your failure on their skin, literally. Another aspect is the concept of going the extra mile. The first thing you realize when you put that armor on is that you are fighting against your own brain telling you to quit—the weight, the discomfort of movement, the lack of oxygen inside a helmet. And on top of that comes your opponent trying to take you down. Nobody gets to the finish line without falling. Picking yourself up and taking every fall as an opportunity to work on your mistakes is another great lesson of this sport." 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Tetiana Riznyk, Payroll and Benefits Administrator, Ukraine 
 
 ![tetiana-ryznik-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-unique-passions-of-abbyy/tetiana_riznyk.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 For Tetiana Riznyk, pysanka (Ukrainian Easter eggs painting) is more than a creative outlet; it’s a cultural tradition that connects her deeply to her heritage and brings joy through artistic expression. 
 
@@ -80,23 +108,9 @@ Tetiana’s patience and focus during the intricate process of creating pysanka 
 
 This meditative practice not only enhances her artistic skills but also fosters a sense of well-being and satisfaction, contributing positively to her ability to bring her best self to work at ABBYY. 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Sergey Kaginyan, Website Marketing Project Manager, Cyprus 
 
 ![sergey-abbyy-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-unique-passions-of-abbyy/sergey_kaginyan.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Sergey Kaginyan’s passion for motorcycles is more than just a hobby; it’s a way of life that fuels his personal and professional growth. 
 
@@ -184,20 +198,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-dual-life-of-a-professional-youtuber-and-employee/"><u>[New] 2024 Approved The Dual Life of a Professional YouTuber & Employee</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-fix-facebook-media-failure-on-devices-for-2024/"><u>[New] Fix Facebook Media Failure on Devices for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-guide-to-4k-blade-camera-imaging/"><u>[New] The Ultimate Guide to 4K Blade Camera Imaging</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-become-a-streaming-sensation-on-twitter-platform-for-2024/"><u>[Updated] Become a Streaming Sensation on Twitter Platform for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/6acc57sa5ywn6lk75zyo57q6keg6akr5ymq6l6r5bel5yw35rif5y2v77ya5bc95bplusr5lyy5yyw5oko55qe5b2x54mh5l2t6aqm/"><u>頂級免費在线视频剪辑工具清单：尽快优化您的影片体验</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/aide-a-la-conversion-en-ligne-changer-votre-fichier-ogg-en-aiff-sans-frais-solution-de-movavi/"><u>Aide À La Conversion en Ligne : Changer Votre Fichier Ogg en Aiff Sans Frais, Solution De Movavi</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/best-vimeo-video-downloaders/"><u>Best Vimeo Video Downloaders</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/conversione-gratuita-da-wav-a-3gp-on-line-con-lutilita-convertitore-multimediale-di-movavi-percorso-facile-e-rapido/"><u>Conversione Gratuita Da WAV a 3GP On-Line Con L'utilità Convertitore Multimediale Di Movavi – Percorso Facile E Rapido</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/descargar-y-convertir-videos-de-ogv-a-formato-mpeg-completamente-libres-desde-la-web/"><u>Descargar Y Convertir Videos De OGV a Formato MPEG Completamente Libres Desde La Web</u></a></li>
-<li><a href="https://win-answers.techidaily.com/effective-solutions-for-the-persistent-black-screen-problem-in-rainbow-six-siege-pc/"><u>Effective Solutions for the Persistent Black Screen Problem in Rainbow Six Siege (PC)</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/eficientes-metodos-para-hacer-selecciones-de-captura-en-windows-10/"><u>Eficientes Métodos Para Hacer Selecciones De Captura en Windows 10.</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/how-to-record-and-edit-video-using-the-adobe-connect/"><u>How to Record and Edit Video Using the Adobe Connect</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-samsung-galaxy-f04-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Samsung Galaxy F04</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/tudo-sobre-o-cortador-de-mp3-da-movavi-funcionamento-download-e-tecnicas-de-baixar-com-maior-sucesso/"><u>Tudo Sobre O Cortador De Mp3 Da Movavi: Funcionamento, Download E Técnicas De Baixar Com Maior Sucesso</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/which-ones-right-for-you-obs-or-twitch-studio-reviewed-for-2024/"><u>Which One's Right for You? - OBS or Twitch Studio Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevating-video-experience-best-youtube-to-avi-companions/"><u>[New] In 2024, Elevating Video Experience Best YouTube-to-AVI Companions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-sensory-storytelling-crafting-engaging-food-videos/"><u>[New] Sensory Storytelling Crafting Engaging Food Videos</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726226880430-wav-m4a-movavi/"><u>線上無償 WAV 到 M4A 轉換服務：Movavi 音頻編碼工具</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/a-comprehensive-walkthrough-to-adjusting-posts-on-instagram/"><u>A Comprehensive Walkthrough to Adjusting Posts on Instagram</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-update-surface-drivers-made-simple-step-by-step-guide/"><u>Download & Update Surface Drivers Made Simple: Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guia-para-convertir-archivos-de-audio-wav-a-mp3-sin-costo-alguno-mediante-movavi/"><u>Guía Para Convertir Archivos De Audio WAV a MP3 Sin Costo Alguno Mediante Movavi</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-tecno-pova-5-pro-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Tecno Pova 5 Pro Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-realme-11-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Realme 11 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/switch-audio-formats-effortlessly-convert-ogg-to-wmv-for-free-using-the-best-online-tools/"><u>Switch Audio Formats Effortlessly - Convert OGG to WMV for Free Using the Best Online Tools</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723125165974-the-thrifty-beginner-4k-resin-revolution-unleash-your-creativity-with-a-staggering-44-off-this-black-friday/"><u>The 'Thrifty Beginner 4K Resin' Revolution: Unleash Your Creativity with a Staggering 44% Off This Black Friday</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-oneplus-nord-n30-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track OnePlus Nord N30 5G Location | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformez-vos-fichiers-swf-en-avi-sans-frais-grace-au-convertisseur-en-ligne-movavi-solution-optimisee-seo/"><u>Transformez Vos Fichiers SWF en AVI Sans Frais Grâce Au Convertisseur en Ligne Movavi - Solution Optimisée SEO</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-google-plays-hidden-gems-underrated-but-amazing-apps/"><u>Updated In 2024, Google Plays Hidden Gems Underrated but Amazing Apps</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/vyber-bezcenne-vystrihovaci-zelezo-za-2024-aktualizacni-akt-poznamky-movavi-bezcennych-topu-14-nastroju/"><u>Vyber Bezcenné Vystřihovací Železo Za 2024 [Aktualizační Akt] – Poznámky Movavi Bezcenných Topu 14 Nástrojů</u></a></li>
 </ul></div>
 

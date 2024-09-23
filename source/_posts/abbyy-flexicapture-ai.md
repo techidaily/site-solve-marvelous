@@ -1,7 +1,7 @@
 ---
 title: ABBYY FlexiCapture - AI駆使した最先端の帳票自動認識プラットフォームについて学ぶ
-date: 2024-09-17T19:05:44.295Z
-updated: 2024-09-18T19:34:05.876Z
+date: 2024-09-22T19:12:56.958Z
+updated: 2024-09-23T18:02:02.160Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/670a3d23e314a574aa8e5af4448af6d1aaae629960eef8dd3da5be3e28617436.jpg
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/670a3d23e314a574aa8e5af4448af6d1aaae62996
 
 #### 4\. 外部接続・連携
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. スケーラビリティ・アベイラビリティ
 
 ABBYY FlexiCaptureは、最大で以下のような構成を組むことが可能となっており、高トランザクション、高可用性対応が可能な帳票処理ソリューションです。
@@ -52,6 +59,13 @@ ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件�
 **\- 通信レベル**
 
 ![secure FlexiCapture platofrm](https://static1.abbyy.com/abbyycommedia/29915/image-3.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **\- データレベル**
 
@@ -83,13 +97,6 @@ ABBYY FlexiCaptureは、ビジネスにおける様々な業務フローに合�
 
 ![FlexiCapture Sample Invoice ブロパティ](https://static1.abbyy.com/abbyycommedia/29919/image-7.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. 外部接続・連携
 
 ABBYY FlexiCaptureは、コネクタやAPIを介して様々な外部システム・アプリケーションとの接続・連携が可能です。以下、いくつかの例を紹介します。
@@ -101,10 +108,10 @@ ABBYY FlexiCaptureは、コネクタやAPIを介して様々な外部システ�
 ![RPA FlexiCapture](https://static1.abbyy.com/abbyycommedia/29926/flexicapture-rpa-scheme-jp-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 各種事例については、以下リンクをご参照ください。
@@ -127,13 +134,20 @@ ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせ�
 
 ![ABBYY logo circle](https://static5.abbyy.com/abbyycommedia/29971/abbyy-logo-2021-blog-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ABBYY Japan エンジニアリングチーム
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -199,21 +213,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-how-to-seamlessly-convert-and-download-pinterest-videos-as-mp3/"><u>[New] 2024 Approved How to Seamlessly Convert and Download Pinterest Videos as MP3</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-instagram-stories-tempo-tactics-speeding-up-or-slowing-down-for-2024/"><u>[New] Instagram Stories Tempo Tactics – Speeding Up or Slowing Down for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-constructing-captivating-youtube-music-selections/"><u>[Updated] 2024 Approved Constructing Captivating YouTube Music Selections</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-charting-out-youtubes-financial-strategy-for-nurturing-short-videos/"><u>2024 Approved Charting Out YouTube's Financial Strategy for Nurturing Short Videos</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-step-by-step-guide-to-earning-on-reddit-no-skills-required/"><u>2024 Approved Step-by-Step Guide to Earning on Reddit - No Skills Required</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/m1vavi-movavi/"><u>網路上無需支付: M1V到AVI格式自動轉換 - 使用Movavi工具</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726220504391-mp4avi-movavi/"><u>無料でMP4をAVIに変換する - Movaviの簡単なガイドブック</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-convertir-archivos-flv-en-formato-swf-online-sin-coste/"><u>Cómo Convertir Archivos FLV en Formato SWF Online Sin Coste</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-convertir-rapidamente-tu-video-swf-al-formato-mov-sin-costo-con-movavi/"><u>Cómo Convertir Rápidamente Tu Vídeo SWF Al Formato MOV Sin Costo Con Movavi</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/get-your-free-copy-of-winx-comprehensive-tools-for-dvd-ripping-and-high-definition-video-conversion/"><u>Get Your Free Copy of WinX: Comprehensive Tools for DVD Ripping & High-Definition Video Conversion</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-oppo-a1x-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Oppo A1x 5G Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/movavi-convert-apes-to-aiff-online-free-converter-easy-audio-format-transformation/"><u>Movavi Convert APES to AIFF Online Free Converter - Easy Audio Format Transformation</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/opgeluchtende-loodsen-omzettingen-ogg-naar-mp4v-vrij-en-tafeleigend-via-movavi/"><u>Opgeluchtende Loodsen Omzettingen Ogg Naar Mp4v - Vrij en Tafeleigend via Movavi</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/revolutionary-iphone-techniques-for-photo-collage-connoisseurs/"><u>Revolutionary iPhone Techniques for Photo Collage Connoisseurs</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/trasforma-immagini-tiff-in-jpg-di-fronte-a-computer-gratuitamente-utilizzando-movavi/"><u>Trasforma Immagini TIFF in JPG Di Fronte a Computer Gratuitamente Utilizzando Movavi</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/unveiling-the-art-of-itunes-video-capture/"><u>Unveiling the Art of iTunes Video Capture</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-eliminating-noise-methods-for-soundless-recording-for-2024/"><u>[New] Eliminating Noise Methods for Soundless Recording for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/conversao-e-transformacao-ao-vivo-em-flac-de-dts-sem-cobranca-site-gratis-da-movavi/"><u>Conversão E Transformação Ao Vivo Em FLAC De DTS Sem Cobrança - Site Grátis Da Movavi</u></a></li>
+<li><a href="https://win-dash.techidaily.com/expert-tips-how-to-successfully-update-the-drivers-of-your-epson-workforce-7620-wf-n20-when-using-a-windows-operating-system/"><u>Expert Tips: How to Successfully Update the Drivers of Your Epson WorkForce 7620 (WF-N20) When Using a Windows Operating System</u></a></li>
+<li><a href="https://techidaily.com/explore-sharper-youtube-streaming-firefox-version-1n26-integrates-nvidias-real-time-ai-upscaling/"><u>Explore Sharper YouTube Streaming - Firefox Version 1N26 Integrates NVIDIA's Real-Time AI Upscaling</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-converter-change-mp3-files-into-m4a-format-with-ease/"><u>Free Online Converter - Change MP3 Files Into M4A Format with Ease</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-converter-transform-flv-files-into-editable-gifs-with-ease/"><u>Free Online Converter: Transform FLV Files Into Editable GIFs with Ease</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guia-completa-para-la-transformacion-m4b-a-wav-en-linea-gratuitamente-con-convertio-audio-converter/"><u>Guía Completa Para La Transformación M4B a WAV en Línea Gratuitamente Con Convertio Audio Converter</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-from-apple-iphone-14-plus-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 From Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavi-mac/"><u>Movavi Mac用プログラムアカウント作成手順</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/record-continuous-three-minute-clips-with-the-latest-ray-ban-meta-the-ultimate-smart-sunglasses-upgrade/"><u>Record Continuous Three-Minute Clips with the Latest Ray-Ban Meta: The Ultimate Smart Sunglasses Upgrade</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/tactical-guide-to-screening-meetings-on-mobilepc-for-2024/"><u>Tactical Guide to Screening Meetings on Mobile/PC for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/tailor-videos-to-instagrams-preferred-format/"><u>Tailor Videos to Instagram's Preferred Format</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/the-ultimate-guide-to-no-cost-video-recording-software/"><u>The Ultimate Guide to No-Cost Video Recording Software</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-apps-and-online-tools-to-track-vivo-s17-pro-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Vivo S17 Pro Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformar-mp3-en-archivos-de-video-avi-gratuito-en-linea-con-convertidor-quick-video/"><u>Transformar MP3 en Archivos De Vídeo AVI Gratuito en Línea Con Convertidor Quick Video</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726224643087-3gp-mp3-movavi/"><u>온라인에서 3GP 파일을 안전하게 MP3로 변환하는 가장 좋은 방법: Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mp3m4bmovavi/"><u>オンラインで楽にMP3をM4Bに変換：Movaviの優れたサービスと無料アプリ</u></a></li>
 </ul></div>
 

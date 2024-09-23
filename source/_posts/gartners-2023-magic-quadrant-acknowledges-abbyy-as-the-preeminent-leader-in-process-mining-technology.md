@@ -1,7 +1,7 @@
 ---
 title: Gartner's 2023 Magic Quadrant Acknowledges ABBYY as the Preeminent Leader in Process Mining Technology
-date: 2024-09-16T20:44:10.922Z
-updated: 2024-09-19T01:22:32.628Z
+date: 2024-09-16T18:17:28.030Z
+updated: 2024-09-23T16:49:22.431Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/10f40441e17c1fa8de82fe459b0ca66adaa7f77ee4510f8621b2c17f71bab5a7.jpg
@@ -42,6 +42,13 @@ Learn more about ABBYY Timeline and how TIAA, a Fortune 100 financial services c
 _1 Gartner® Magic Quadrant™ for Process Mining Tools, March 20, 2023, ID G00774746_ 
 _2 Gartner, [Forecast Analysis: Process Mining, Worldwide](https://www.gartner.com/en/documents/4007520), Oct. 26, 2021_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### About ABBYY
 
 ABBYY powers intelligent automation. We reimagine the way people work and how companies accelerate business by delivering the intelligence that fuels automation platforms. Our solutions transform enterprise data and empower you with the insights you need to work smarter and faster. 
@@ -52,9 +59,29 @@ ABBYY is a US-based global company with offices in 14 countries. For more inform
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Gina Ray
 
@@ -79,26 +106,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-funland-for-kids-a-world-of-laughter-and-games/"><u>[Updated] 2024 Approved Funland For Kids A World of Laughter and Games</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-step-by-step-for-entering-google-meet-via-devices/"><u>[Updated] 2024 Approved Step-by-Step for Entering Google Meet via Devices</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726221831239-mp4mp3-movavi/"><u>線上將MP4格式自由改造成MP3 - 拓展音樂經驗的 Movavi方法</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/converter-de-imagens-gratuito-transformando-arquivos-tiff-em-bmp-com-o-movavi/"><u>Converter De Imagens Gratuito: Transformando Arquivos TIFF Em BMP Com O Movavi</u></a></li>
-<li><a href="https://win-able.techidaily.com/effective-solutions-resolving-non-loading-webpages-on-chrome-browser/"><u>Effective Solutions: Resolving Non-Loading Webpages on Chrome Browser</u></a></li>
-<li><a href="https://win-blog.techidaily.com/enhancing-in-game-performance-a-guide-to-addressing-counter-strike-2-fps-drops-on-pc/"><u>Enhancing In-Game Performance: A Guide to Addressing Counter-Strike 2 FPS Drops on PC</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/forgot-apple-iphone-7-backup-password-heres-what-to-do-by-drfone-ios/"><u>Forgot Apple iPhone 7 Backup Password? Heres What to Do</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/how-to-change-your-voice-in-a-song-lyric-video-tips-for-perfect-audio-effects-with-voice-modulation-software/"><u>How To Change Your Voice In A Song Lyric Video: Tips for Perfect Audio Effects with Voice Modulation Software</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-restore-your-kotion-each-g2000-microphones-audio-input-functionality/"><u>How to Restore Your Kotion EACH-G2000 Microphone's Audio Input Functionality</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/rapida-conversione-da-file-raw-a-jpeg-il-migliore-trasformatore-ottimizzato-per-seo/"><u>Rapida Conversione Da FILE RAW a JPEG: Il Migliore Trasformatore Ottimizzato per SEO</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-tecno-pova-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Tecno Pova 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-10-editeurs-de-pdf-gratuits-pour-windows-votre-guide-ultime-pour-maitriser-la-gestion-des-fichiers/"><u>Top 10 Éditeurs De PDF Gratuits Pour Windows : Votre Guide Ultime Pour Maitriser La Gestion Des Fichiers</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-honor-magic5-ultimate-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Honor Magic5 Ultimate Users</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/aximizing-video-success-on-youtube-long-term-creativity-commons-strategy/"><u>[New] Maximizing Video Success on YouTube Long-Term Creativity Commons Strategy</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-building-an-mc-village-housing-essentials/"><u>[Updated] 2024 Approved Building an MC Village Housing Essentials</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-ultimate-blueprint-for-sourcing-top-tier-instagram-ringtones-and-crafting-standout-alarms/"><u>[Updated] In 2024, The Ultimate Blueprint for Sourcing Top-Tier Instagram Ringtones and Crafting Standout Alarms</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-closing-in-on-the-essence-of-cinematic-action/"><u>2024 Approved Closing in on the Essence of Cinematic Action</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mpeg-wma-movavi/"><u>在线免费将 MPEG 文件转换为 WMA音频 - 利用 Movavi 软件</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/clique-aqui-para-converter-seu-mp3-em-wav-gratuitamente-ao-vivo-tecnicas-de-conversao-pela-web/"><u>Clique Aqui Para Converter Seu MP3 Em WAV Gratuitamente Ao Vivo - Técnicas De Conversão Pela Web</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-conversion-swf-file-to-3gp-movavi-solution/"><u>Free Online Conversion: SWF File to 3GP - Movavi Solution</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016304197-getting-your-logitech-g-pro-x-microphone-to-work-perfectly-again/"><u>Getting Your Logitech G Pro X Microphone to Work Perfectly Again!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-vivo-s17-pro-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Vivo S17 Pro.</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Samsung Galaxy F14 5G? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-10-apps-para-publicar-videos-em-um-segundo-android-e-ios-2024/"><u>Top 10 Apps Para Publicar Vídeos Em Um Segundo - Android E iOS, 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-5-methods-for-capturing-computer-sound-insights-from-movavi/"><u>Top 5 Methods for Capturing Computer Sound: Insights From Movavi</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-the-ultimate-guide-to-free-video-editing-on-32-bit-windows/"><u>Updated 2024 Approved The Ultimate Guide to Free Video Editing on 32-Bit Windows</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/wifi-ram-mpeg-and-desktop/"><u>무료 WiFi RAM MPEG 변환 - 모바일 & Desktop 호환성</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

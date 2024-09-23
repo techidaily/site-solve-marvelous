@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Shifting Landscape: Understanding Modern Supply Chain Vulnerabilities Amidst Pandemic Recovery"
-date: 2024-09-12T20:58:45.412Z
-updated: 2024-09-18T19:42:43.674Z
+date: 2024-09-21T17:17:31.766Z
+updated: 2024-09-23T16:24:03.169Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7e377b50c4e513bd18b3a4caf17d4fa401f54e28db3371c8a6654c909a09f9e7.png
@@ -27,7 +27,21 @@ Vice President and Principal Analyst, **Forrester Research**
 
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25498/20-andrewpery-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Andrew Pery
 
@@ -35,25 +49,25 @@ Digital Intelligence Consultant, **ABBYY**
 
 ![Marko Kovacevic 198X198](https://static4.abbyy.com/abbyycommedia/30088/dsci-logo-forspeakers.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Marko Kovacevic 198X198](https://static4.abbyy.com/abbyycommedia/30085/marko-kovacevic-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Forrester Research
 
 Executive Director Membership and Engagement, **DSCI**
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Overview
 
@@ -75,10 +89,10 @@ Please note that progressive profiling is used on this form to incrementally col
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Thank you, enjoy your webinar!
@@ -88,10 +102,10 @@ All personal information collected via this method is under full scope of all pr
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
@@ -159,19 +173,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-7-best-waterproof-video-recorders/"><u>[New] The Ultimate Guide 7 Best Waterproof Video Recorders</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-premier-eco-friendly-camera-systems-for-filmmakers/"><u>[Updated] In 2024, Premier Eco-Friendly Camera Systems for Filmmakers</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mpegmjpeg-movavi/"><u>簡單移行：在不付錢的情況下改變MPEG成MJPEG - 以Movavi為主要功能</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/acessando-audio-visual-avi-no-windows-nova-versao-graca-gratuita-tutorial-detalhado/"><u>Acessando Áudio-Visual AVI No Windows Nova Versão - Graça Gratuita | Tutorial Detalhado</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/actionable-guide-xml-to-srt-conversion-techniques-for-2024/"><u>Actionable Guide XMl-to-Srt Conversion Techniques for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723207468610-arctis-5-gaming-headset-mic-not-working-heres-how-to-fix-it/"><u>Arctis 5 Gaming Headset Mic Not Working? Here's How to Fix It!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/convert-your-memories-with-ease-discover-the-best-vhs-to-dvd-solutions-including-movavi-video-converter/"><u>Convert Your Memories with Ease: Discover the Best VHS-to-DVD Solutions, Including Movavi Video Converter</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/geavanceerd-omzetten-van-m2p-folders-vrije-efficient-opsluiting-met-movavi/"><u>Geavanceerd Omzetten Van M2P Folders: Vrije, Efficiënt Opsluiting Met Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratis-dng-to-jpg-converteren-via-internet-zoekplaats-voor-professioneel-richtingingskunst/"><u>Gratis DNG-to-JPG Converteren via Internet - Zoekplaats Voor Professioneel Richtingingskunst</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratuit-gebaseerd-converter-speelfriest-ogg-bestanden-in-animated-gif/"><u>Gratuit Gebaseerd Converter: Speelfriest Ogg-Bestanden in Animated Gif</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-honor-100-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Honor 100</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-poco-x5-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Poco X5 FRP Bypass Instantly</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-from-beginner-to-master-a-stepwise-guide-for-excellent-posts/"><u>In 2024, From Beginner to Master A Stepwise Guide for Excellent Posts</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Infinix Hot 40 Pro? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-achieving-professionalism-with-zoom-filter-applications/"><u>[New] 2024 Approved Achieving Professionalism with Zoom Filter Applications</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-enhance-productivity-mac-screen-capture-made-simple-using-shortcut-keys/"><u>[New] In 2024, Enhance Productivity Mac Screen Capture Made Simple Using Shortcut Keys</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-mirrorless-impact-on-professional-video-recording/"><u>[Updated] Mirrorless Impact on Professional Video Recording</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-visionedit-ace/"><u>[Updated] VisionEdit Ace</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726221831239-mp4mp3-movavi/"><u>線上將MP4格式自由改造成MP3 - 拓展音樂經驗的 Movavi方法</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/die-besten-online-video-editoren-fur-fortgeschrittene-entdecken-sie-die-kronung-der-qualitat-mit-movavi/"><u>Die Besten Online Video Editoren Für Fortgeschrittene - Entdecken Sie Die Krönung Der Qualität Mit Movavi!</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/elevate-instagram-clips-incorporating-borders-effectively/"><u>Elevate Instagram Clips Incorporating Borders Effectively</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gratis-wmv-videos-in-ogg-format-converteren-online-movavi/"><u>Gratis WMV-Video's in Ogg Format Converteren Online - Movavi</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-get-the-outlook-preview-app-on-windows-11-and-11/"><u>How to Get the Outlook Preview App on Windows 11 and 11</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Lava Yuva 3? | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-top-10-best-text-effects-for-your-video/"><u>In 2024, Top 10 Best Text Effects for Your Video</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavi-convert-apes-to-aiff-online-free-converter-easy-audio-format-transformation/"><u>Movavi Convert APES to AIFF Online Free Converter - Easy Audio Format Transformation</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/solved-move-from-infinix-smart-7-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Infinix Smart 7 to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-10-editeurs-de-pdf-gratuits-pour-windows-votre-guide-ultime-pour-maitriser-la-gestion-des-fichiers/"><u>Top 10 Éditeurs De PDF Gratuits Pour Windows : Votre Guide Ultime Pour Maitriser La Gestion Des Fichiers</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/trasforma-immagini-tiff-in-jpg-di-fronte-a-computer-gratuitamente-utilizzando-movavi/"><u>Trasforma Immagini TIFF in JPG Di Fronte a Computer Gratuitamente Utilizzando Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/m2ts-movavi/"><u>オンラインでストリーミング再生可能なM2TSファイルへの自由許諾 - Movavi無料変換</u></a></li>
 </ul></div>
 

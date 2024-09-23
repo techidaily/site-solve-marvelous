@@ -1,7 +1,7 @@
 ---
 title: ABBYYとPwCコンサルティングがAI・OCR技術による新しいパートナーシップを結ぶ
-date: 2024-09-14T17:06:45.855Z
-updated: 2024-09-18T16:19:55.709Z
+date: 2024-09-20T18:56:15.549Z
+updated: 2024-09-23T17:49:39.795Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a88766153a92e1f9e8401a4428c9fb.jpg
@@ -67,25 +67,31 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-amazing.techidaily.com/fast-download-compatible-acer-touchpad-driver-version-for-seamless-use-on-windows-11-systems/"><u>[Fast Download] Compatible Acer Touchpad Driver Version for Seamless Use on Windows 11 Systems</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-the-ultimate-checklist-for-movie-maker-videos-on-vimeo/"><u>[New] 2024 Approved The Ultimate Checklist for Movie Maker Videos on Vimeo</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-mastering-custom-youtube-shorts-image-credits-with-ease/"><u>[New] In 2024, Mastering Custom YouTube Shorts Image Credits with Ease</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-boost-your-meeting-management-syncing-zoom-with-gmail-emails/"><u>[Updated] 2024 Approved Boost Your Meeting Management Syncing Zoom with Gmail Emails</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-artful-stop-motion-animation-the-best-15-films/"><u>[Updated] Artful Stop-Motion Animation - The Best 15 Films</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-convertir-nsv-a-avi-online-de-forma-gratuita-con-herramientas-de-movavi/"><u>Cómo Convertir NSV a AVI Online De Forma Gratuita Con Herramientas De Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/converter-de-imagens-gratuito-transformando-arquivos-tiff-em-bmp-com-o-movavi/"><u>Converter De Imagens Gratuito: Transformando Arquivos TIFF Em BMP Com O Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/converti-file-ts-in-mp4-gratuitamente-online-con-movavi/"><u>Converti File TS in MP4 Gratuitamente Online Con Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-online-conversion-change-ts-files-into-flv-format-with-movavi-tools/"><u>Free Online Conversion: Change .TS Files Into FLV Format with Movavi Tools</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/how-to-fix-and-stretch-videos-to-perfectly-fit-your-screen-the-ultimate-4-techniques/"><u>How to Fix and Stretch Videos to Perfectly Fit Your Screen: The Ultimate 4 Techniques</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-asus-rog-phone-7-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Asus ROG Phone 7 PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-new-era-of-conversational-agents-bard-vs-bing-chatbot/"><u>The New Era of Conversational Agents: Bard Vs. Bing Chatbot</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/transform-your-videos-effortlessly-convert-flv-to-swf-using-moveaveys-web-tool-at-no-cost/"><u>Transform Your Videos Effortlessly: Convert FLV to SWF Using Moveavey's Web Tool at No Cost</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-art-of-selecting-podcasts-for-iphone-devices/"><u>[New] The Art of Selecting Podcasts for iPhone Devices</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-maximizing-impact-with-a-triad-of-tailored-copywriting-methods/"><u>[Updated] Maximizing Impact with a Triad of Tailored Copywriting Methods</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-smarter-streaming-the-essence-of-vimeo-record/"><u>2024 Approved Smarter Streaming The Essence of Vimeo Record</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mpegmjpeg-movavi/"><u>簡單移行：在不付錢的情況下改變MPEG成MJPEG - 以Movavi為主要功能</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-converter-from-rw2-to-jpeg-easy-by-movavi/"><u>Free Online Converter From RW2 to JPEG - Easy by Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gratuit-gebaseerd-converter-speelfriest-ogg-bestanden-in-animated-gif/"><u>Gratuit Gebaseerd Converter: Speelfriest Ogg-Bestanden in Animated Gif</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guia-gratuita-para-la-conversion-de-archivos-nsv-a-avi-por-internet-utilizar-movavi-sin-costo/"><u>Guía Gratuita Para La Conversión De Archivos NSV a AVI Por Internet - Utilizar Movavi Sin Costo</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-realme-gt-neo-5-se-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Realme GT Neo 5 SE Phone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-on-iphone-se-2020ipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock on iPhone SE (2020)/iPad/iPod</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-imovie-guide-to-stellar-video-introduction-designs/"><u>In 2024, IMovie Guide to Stellar Video Introduction Designs</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavi-video-composer-fast-and-effortless-editing-software/"><u>Movavi Video Composer: Fast & Effortless Editing Software</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/online-raw-to-jpg-transformation-for-free-with-movavi-photo-editor/"><u>Online RAW-to-JPG Transformation for Free with Movavi Photo Editor</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/professional-insights-enhancing-digital-videos-and-photos-online/"><u>Professional Insights Enhancing Digital Videos & Photos Online</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/schlusselkompetenzen-in-der-videobearbeitung-mit-movavi-kompetente-handhabungsanleitungen-stap-fur-stap-lernen-sie-schritt-fur-schritt/"><u>Schlüsselkompetenzen in Der Videobearbeitung Mit Movavi: Kompetente Handhabungsanleitungen Stap-Für-Stap - Lernen Sie Schritt Für Schritt</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721476268960-struggling-with-your-iphones-slow-screen-timeout-discover-quick-solutions/"><u>Struggling with Your iPhone's Slow Screen Timeout? Discover Quick Solutions</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-5-ai-powered-virtual-therapy-assistants-for-managing-mental-wellness/"><u>Top 5 AI-Powered Virtual Therapy Assistants for Managing Mental Wellness</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformez-vos-fichiers-wtv-en-wmv-gratuitement-sur-internet-utilisation-simple-de-movavi/"><u>Transformez Vos Fichiers WTV en WMV Gratuitement Sur Internet - Utilisation Simple De Movavi</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/verstehen-von-aufgaben-und-prozessmining-ein-leitfaden-fur-effizienz/"><u>Verstehen Von Aufgaben-Und Prozessmining: Ein Leitfaden Für Effizienz</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726224009566-wmawebm-movavi/"><u>WMA/WEBM 파일을 원격으로 무료 대체 - Movavi 소프트</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

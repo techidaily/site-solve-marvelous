@@ -1,7 +1,7 @@
 ---
 title: ABBYY Clinches Top Position in Gartner's 2023 Magic Quadrant for Advanced Process Mining Solutions
-date: 2024-09-17T20:18:16.855Z
-updated: 2024-09-18T22:43:31.177Z
+date: 2024-09-19T16:48:14.250Z
+updated: 2024-09-23T18:44:09.624Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/648356b382a636832a6e99201a4517a582a77b906dab7a37be3d640b5bfda50d.jpg
@@ -42,6 +42,13 @@ Learn more about ABBYY Timeline and how TIAA, a Fortune 100 financial services c
 _1 Gartner® Magic Quadrant™ for Process Mining Tools, March 20, 2023, ID G00774746_ 
 _2 Gartner, [Forecast Analysis: Process Mining, Worldwide](https://www.gartner.com/en/documents/4007520), Oct. 26, 2021_
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### About ABBYY
 
 ABBYY powers intelligent automation. We reimagine the way people work and how companies accelerate business by delivering the intelligence that fuels automation platforms. Our solutions transform enterprise data and empower you with the insights you need to work smarter and faster. 
@@ -52,9 +59,23 @@ ABBYY is a US-based global company with offices in 14 countries. For more inform
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Gina Ray
 
@@ -79,26 +100,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-how-to-create-or-schedule-a-google-meet/"><u>[New] 2024 Approved How to Create or Schedule A Google Meet?</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-active-presenter-8-review-is-it-the-best-screen-recorder/"><u>[New] In 2024, Active Presenter 8 Review Is It The Best Screen Recorder?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-best-of-the-best-android-calls-with-more-than-just-two/"><u>[Updated] Best of the Best Android Calls with More Than Just Two</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mp3-flac/"><u>「網路無限 MP3 自動預設 FLAC - 移動愛瓦 變更程式」</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/best-ways-to-convert-videos-from-vlc-to-mp4-with-ease-top-movavi-tips/"><u>Best Ways to Convert Videos From VLC to MP4 with Ease - Top Movavi Tips</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/cultivating-a-community-enhancing-engagement-increasing-subscribers/"><u>Cultivating a Community Enhancing Engagement, Increasing Subscribers</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/effortlessly-transform-mp2-tracks-into-high-quality-wav-files-with-movavis-free-online-service/"><u>Effortlessly Transform MP2 Tracks Into High-Quality WAV Files with Movavi's Free Online Service</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experts-weigh-in-on-the-gaomon-pd1-a-pen-display-analysis/"><u>Experts Weigh in on the Gaomon PD1#: A Pen Display Analysis</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-sequential-image-storytelling-on-ig/"><u>[New] In 2024, Sequential Image Storytelling on IG</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-premium-ways-to-broadcast-and-record-athletic-competitions-live/"><u>[New] Premium Ways to Broadcast & Record Athletic Competitions Live</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unlock-snapchat-potential-with-these-ideas/"><u>[New] Unlock Snapchat Potential with These Ideas</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-a-complete-breakdown-of-color-tuning-methods/"><u>[Updated] 2024 Approved A Complete Breakdown of Color Tuning Methods</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-boosting-your-video-income-on-youtube-essentials/"><u>[Updated] In 2024, Boosting Your Video Income on Youtube - Essentials</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1-mastering-color-grading-techniques-in-movavi-video-editing-software/"><u>1. Mastering Color Grading Techniques in Movavi Video Editing Software</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/air-lift-extraordinaire-top-industrial-drones-for-2024/"><u>Air-Lift Extraordinaire Top Industrial Drones for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-audio-transformer-compatible-with-windows-and-macos/"><u>Free Online Audio Transformer: Compatible with Windows and macOS</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gratuiti-download-e-conversione-da-mp4-a-m4b-con-movavi-il-tuo-passaggio-online-per-i-podcast-e-gli-audio-libri/"><u>Gratuiti Download E Conversione Da MP4 a M4B Con Movavi – Il Tuo Passaggio Online per I Podcast E Gli Audio Libri</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/guidelines-for-renaming-yourself-in-online-meetings-for-2024/"><u>Guidelines for Renaming Yourself in Online Meetings for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavis-gratuite-webvorm-reconversie-tool-voor-m1v-naar-avi-fichieren-beste-ontwikkelingen/"><u>Movavi's Gratuite Webvorm Reconversie Tool Voor M1V Naar Avi Fichieren - Beste Ontwikkelingen</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/online-veilig-mgk-naar-mp4-omzetten-kostenloos-diensten-von-movavi-bereikbaar/"><u>Online Veilig MGK Naar MP4 Omzetten - Kostenloos Diensten Von Movavi Bereikbaar</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-5-methods-for-capturing-computer-sound-insights-from-movavi/"><u>Top 5 Methods for Capturing Computer Sound: Insights From Movavi</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/be-and-dailymotion-unveiling-core-variations-for-2024/"><u>YouTube & Dailymotion Unveiling Core Variations for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

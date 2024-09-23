@@ -1,7 +1,7 @@
 ---
 title: "How ABBYY's Powerful Technology Secures a Spot on CIO 100: Mastering the Source-to-Pay Process"
-date: 2024-09-15T19:05:56.471Z
-updated: 2024-09-18T21:10:29.004Z
+date: 2024-09-21T17:57:15.958Z
+updated: 2024-09-23T17:05:04.853Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e99583f6b5b06e719853b0ad4d8e79890585ba4f6bebb22736b51161b0bbe49e.jpg
@@ -16,6 +16,13 @@ thumbnail: https://thmb.techidaily.com/e99583f6b5b06e719853b0ad4d8e79890585ba4f6
 September 27, 2022
 
 ![](https://static1.abbyy.com/abbyycommedia/36021/15013_smm_cio-award_jll_linkedin_4.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Helping the Fortune 500 company achieve organizational excellence has also won ABBYY recognition with CIO Magazine
 
@@ -37,6 +44,13 @@ It was an enormous project that achieved high automation goals and improved thei
 
 _Bruce Orcutt, SVP of Product Marketing at ABBYY_
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Let Intelligent Process Automation Work for You
 
 ABBYY’s [intelligent process automation platform](https://tools.techidaily.com/abbyy/products/) includes industry-leading intelligent document processing (IDP) and process mining and task mining solutions. These include [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/), the industry’s first low-code/no-code platform that applies AI to understand your documents in a fast and simple way. Vantage makes today’s digital worker and processes smarter by delivering skills that read, understand, and extract insights from documents, helping enterprises accelerate digital transformation.
@@ -50,10 +64,10 @@ ABBYY’s [intelligent process automation platform](https://tools.techidaily.com
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -119,16 +133,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-dimensional-doors-top-10-sci-fi-films-that-open-new-worlds/"><u>2024 Approved Dimensional Doors Top 10 Sci-Fi Films that Open New Worlds</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-seamless-screenshot-synergy-for-pc-users/"><u>2024 Approved Seamless Screenshot Synergy for PC Users</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/analyzing-the-need-for-verified-instagramselfies/"><u>Analyzing the Need for Verified Instagramselfies</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-convertir-nsv-a-avi-online-de-forma-gratuita-con-herramientas-de-movavi/"><u>Cómo Convertir NSV a AVI Online De Forma Gratuita Con Herramientas De Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/converti-file-ts-in-mp4-gratuitamente-online-con-movavi/"><u>Converti File TS in MP4 Gratuitamente Online Con Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-online-conversion-change-ts-files-into-flv-format-with-movavi-tools/"><u>Free Online Conversion: Change .TS Files Into FLV Format with Movavi Tools</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/mental-codex-for-online-video-communities-for-2024/"><u>Fundamental Codex for Online Video Communities for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/how-to-fix-and-stretch-videos-to-perfectly-fit-your-screen-the-ultimate-4-techniques/"><u>How to Fix and Stretch Videos to Perfectly Fit Your Screen: The Ultimate 4 Techniques</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Itel A60s? | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1722898124960-teen-flick-treasures-amazing-titles-available-now-on-netflix/"><u>Teen Flick Treasures: Amazing Titles Available Now on Netflix</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/trasforma-pbm-in-formato-bmp-online-gratuitamente-il-guida-completa-di-movavi/"><u>Trasforma PBM in Formato BMP Online Gratuitamente: Il Guida Completa Di Movavi!</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-which-apple-m1-machine-suits-your-lifestyle-more-in-2024/"><u>[New] Which Apple M1 Machine Suits Your Lifestyle More, In 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mastering-igtv-hash-tagging-boosting-your-fan-base/"><u>2024 Approved Mastering IGTV Hash Tagging Boosting Your Fan Base</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-tecno-spark-10-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Tecno Spark 10 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726225779161-avi-mp4-movavi/"><u>網路直接免費 AVI-MP4 改編工具 - 利用 Movavi 影片編輯軟體</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/conversao-e-transformacao-ao-vivo-em-flac-de-dts-sem-cobranca-site-gratis-da-movavi/"><u>Conversão E Transformação Ao Vivo Em FLAC De DTS Sem Cobrança - Site Grátis Da Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/convertissez-vos-videos-m2ts-en-mp4-sans-frais-via-le-service-de-movavi-en-ligne/"><u>Convertissez Vos Vidéos M2TS en MP4 Sans Frais via Le Service De Movavi en Ligne</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guia-completa-para-la-transformacion-m4b-a-wav-en-linea-gratuitamente-con-convertio-audio-converter/"><u>Guía Completa Para La Transformación M4B a WAV en Línea Gratuitamente Con Convertio Audio Converter</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-nokia-c02-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Nokia C02 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oneplus-nord-n30-se-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock OnePlus Nord N30 SE Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-direct-download-of-youtube-videos/"><u>In 2024, Direct Download of YouTube Videos</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-realme-12-5gfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Realme 12 5GFRP Lock</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-depth-review-is-inshot-the-editors-choice-for-2024/"><u>In-Depth Review Is InShot The Editor's Choice for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/keyboard-and-mouse-stop-working-after-sleep-on-windows-10-solved/"><u>Keyboard & Mouse Stop Working After Sleep on Windows 10 [Solved]</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavi-mac/"><u>Movavi Mac用プログラムアカウント作成手順</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/optimize-your-daily-tasks-with-chatgpt-smart-tips-for-a-streamlined-workflow/"><u>Optimize Your Daily Tasks with ChatGPT: Smart Tips for a Streamlined Workflow</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transform-nef-photos-to-png-gratis-quick-and-simple-online-tool-by-movavi/"><u>Transform NEF Photos to PNG Gratis - Quick & Simple Online Tool by Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformar-mp3-en-archivos-de-video-avi-gratuito-en-linea-con-convertidor-quick-video/"><u>Transformar MP3 en Archivos De Vídeo AVI Gratuito en Línea Con Convertidor Quick Video</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mp4-on/"><u>무료 이미지 영상을 MP4로 전환하는 방법 - Onラインでトゥーディ</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mp3m4bmovavi/"><u>オンラインで楽にMP3をM4Bに変換：Movaviの優れたサービスと無料アプリ</u></a></li>
 </ul></div>
 

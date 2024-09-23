@@ -1,7 +1,7 @@
 ---
 title: "Mastering the IDP Peak Matrix 2023: ABBYY Rises as Everest Group Leader"
-date: 2024-09-14T03:41:26.232Z
-updated: 2024-09-18T23:26:58.001Z
+date: 2024-09-18T17:43:01.326Z
+updated: 2024-09-23T17:11:14.600Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/07be777ce45c307461ad22ca534398f5c53e5285da087031d4c184f1389088d2.jpg
@@ -17,11 +17,32 @@ Rapport
 
 ![](https://static1.abbyy.com/abbyycommedia/37866/intelligent-document-processing-2023-peak-matrix-award-logo-leader.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://static1.abbyy.com/abbyycommedia/37865/peak-2023-idp-products-abbyy.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ABBYY a été reconnu, pour la quatrième année consécutive, comme l’un des leaders du marché des produits IDP (traitement intelligent des documents) par Everest Group, dans son évaluation PEAK Matrix 2023.
 
 **ABBYY est très bien positionné pour son efficacité en termes de Vision & de Capacités, ainsi que pour son impact sur le marché avec ABBYY Vantage. Vantage est la seule plateforme IDP low-code / no-code pouvant s’intégrer à n’importe quelle plateforme d’automatisation intelligente.**
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Télécharger le rapport maintenant
 
@@ -33,20 +54,19 @@ La PEAK Matrix donne un cadre pour évaluer la réussite relative sur le marché
 
 _Vaibhav Bansal, Vice-Président, Everest Group_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Request information
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Merci de votre intérêt pour ABBYY.
@@ -120,20 +140,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-boosting-revenue-the-content-creators-playbook/"><u>[New] 2024 Approved Boosting Revenue The Content Creator's Playbook</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-beginners-companion-swift-iphone-screen-recording-for-2024/"><u>[New] Beginner's Companion Swift Iphone Screen Recording for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-efficient-techniques-to-change-songs-playback-rate-on-spotify/"><u>[Updated] Efficient Techniques to Change Songs' Playback Rate on Spotify</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-emancipate-your-engagement-facebook-restored/"><u>[Updated] Emancipate Your Engagement Facebook Restored</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/avi82024/"><u>今年注目! ベスト無料AVIプレーヤー8つ選びたします【2024版】</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/conversione-video-senza-costi-da-h264-a-wav-via-web-utilizzando-movavi/"><u>Conversione Video Senza Costi: Da H.264 A WAV via Web, Utilizzando Movavi</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722977973199-get-the-latest-hp-spectre-x360-drivers-compatible-with-windows-full-set/"><u>Get the Latest HP Spectre X360 Drivers Compatible with Windows - Full Set</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/guia-gratuita-para-la-conversion-de-archivos-nsv-a-avi-por-internet-utilizar-movavi-sin-costo/"><u>Guía Gratuita Para La Conversión De Archivos NSV a AVI Por Internet - Utilizar Movavi Sin Costo</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-motorola-edge-2023-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Motorola Edge 2023 Devices</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-create-an-apple-developer-account-from-apple-iphone-se-by-drfone-ios/"><u>In 2024, How To Create an Apple Developer Account From Apple iPhone SE</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/movavi-video-composer-fast-and-effortless-editing-software/"><u>Movavi Video Composer: Fast & Effortless Editing Software</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolving-installation-issues-how-to-fix-minecraft-setup-failures-on-windows-11/"><u>Resolving Installation Issues: How to Fix Minecraft Setup Failures on Windows 11</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transformez-vos-fichiers-wtv-en-wmv-gratuitement-sur-internet-utilisation-simple-de-movavi/"><u>Transformez Vos Fichiers WTV en WMV Gratuitement Sur Internet - Utilisation Simple De Movavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-past-connections-downloading-full-facebook-activity/"><u>Unlocking Past Connections: Downloading Full Facebook Activity</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/vullen-sie-ihre-ts-afbeeldingen-gratis-in-mp4-konverteren-via-de-gebruikelijke-movavi-online-tool/"><u>Vullen Sie Ihre .TS-afbeeldingen Gratis in MP4 Konverteren via De Gebruikelijke Movavi Online-Tool</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-alternate-avenues-a-compilation-of-non-gta-games/"><u>[New] In 2024, Alternate Avenues A Compilation of Non-GTA Games</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-pro-tips-iphone-in-the-dark-spotlight/"><u>[New] Pro Tips IPhone in the Dark Spotlight</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unmasking-the-top-10-clandestine-story-gurus-for-2024/"><u>[New] Unmasking the Top 10 Clandestine Story Gurus for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-most-innovative-arvr-iphoneandroid-apps/"><u>[Updated] 2024 Approved Most Innovative AR/VR iPhone/Android Apps</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mp3-flac/"><u>「網路無限 MP3 自動預設 FLAC - 移動愛瓦 變更程式」</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-flawless-photo-management-on-iphone-size-adjustment-basics/"><u>2024 Approved Flawless Photo Management on iPhone Size Adjustment Basics</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-how-to-add-custom-youtube-shorts-thumbnails-with-ease/"><u>2024 Approved How to Add Custom YouTube Shorts Thumbnails with Ease?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-seamless-streaming-tackle-instagram-video-woes/"><u>2024 Approved Seamless Streaming Tackle Instagram Video Woes</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/best-ways-to-convert-videos-from-vlc-to-mp4-with-ease-top-movavi-tips/"><u>Best Ways to Convert Videos From VLC to MP4 with Ease - Top Movavi Tips</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/convert-your-memories-with-ease-discover-the-best-vhs-to-dvd-solutions-including-movavi-video-converter/"><u>Convert Your Memories with Ease: Discover the Best VHS-to-DVD Solutions, Including Movavi Video Converter</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/criador-de-slide-show-gratuito-pelo-movavi-facil-download-e-instalacao/"><u>Criador De Slide Show Gratuito Pelo Movavi - Fácil Download E Instalação</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/decoding-the-workings-an-insight-into-chatgpts-shared-links/"><u>Decoding the Workings: An Insight Into ChatGPT’s Shared Links</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effortlessly-transform-mp2-tracks-into-high-quality-wav-files-with-movavis-free-online-service/"><u>Effortlessly Transform MP2 Tracks Into High-Quality WAV Files with Movavi's Free Online Service</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/geavanceerd-omzetten-van-m2p-folders-vrije-efficient-opsluiting-met-movavi/"><u>Geavanceerd Omzetten Van M2P Folders: Vrije, Efficiënt Opsluiting Met Movavi</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rating-youtube-tracks-into-imovie-projects-easily-for-2024/"><u>Integrating YouTube Tracks Into iMovie Projects Easily for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/laureats-des-diaporamas-de-presentation-les-logiciels-gratuit-et-payant-pour-windows-text-in-french/"><u>Lauréats Des Diaporamas De Présentation : Les Logiciels Gratuit Et Payant Pour Windows ([Text in French])</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavis-no-cost-web-service-transforming-dng-photos-into-jpeg-files/"><u>Movavi's No-Cost Web Service: Transforming DNG Photos Into JPEG Files</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/upgrade-your-video-collection-seamless-flv-to-m4a-file-conversion-at-no-cost-using-our-web-service/"><u>Upgrade Your Video Collection: Seamless FLV to M4A File Conversion at No Cost Using Our Web Service</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/verslindig-jpeg-format-van-pgm-fotografien-zonder-risico-gratis-met-de-bedrijfsmerk-movavi/"><u>Verslindig JPEG-Format Van PGM-Fotografien Zonder Risico, Gratis Met De Bedrijfsmerk Movavi</u></a></li>
 </ul></div>
 

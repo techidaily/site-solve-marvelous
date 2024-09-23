@@ -1,7 +1,7 @@
 ---
 title: "Adapting to Change: The Impact of Quarantine on Modern Working Practices"
-date: 2024-09-12T18:53:45.776Z
-updated: 2024-09-18T22:36:06.195Z
+date: 2024-09-18T18:12:18.725Z
+updated: 2024-09-23T16:39:19.806Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9cbb22dcf88bcb4ceb0ab602c498731d7fd924c3e7f5e5667c887c44d8fe1da7.jpg
@@ -23,6 +23,13 @@ We learned that 82.1% of respondents switched to a remote work setting during th
 
 ![](https://static1.abbyy.com/abbyycommedia/29708/productivity-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Have you been more productive?
 
 Our survey found that 43% of respondents noted they were more productive working from home than in an office, while 32.6% stated that they hadn’t noticed a difference in their level of productivity, and 21.8% claimed that they were less productive. Some respondents shared that they had mixed feeling about working from home.
@@ -40,19 +47,25 @@ As for the motivation while working from home, 36.2% of our users haven’t noti
 
 ![](https://static1.abbyy.com/abbyycommedia/29710/productivity-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How long did your typical work day last?
 
 A typical work day during the quarantine mostly lasted 8 – 10 hours (33.8%). Of our respondents, 25.7% worked 6 – 8 hours a day, and 19.6% worked 4 – 6 hours.
 
 ![](https://static1.abbyy.com/abbyycommedia/29711/productivity-4.jpg)  
 Compared to pre-COVID, 43.2% of respondents worked longer hours for personal reasons while staying home, and 27.3% worked shorter hours for personal reasons. Here’s what some respondents shared:
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _“Longer hours because of dissolution of work boundaries.”_  
 _“Working at home while providing full time care has resulted in extremely long work days to complete my workload.”_  
@@ -64,10 +77,10 @@ _“Longer hours due to feeling I must perform better under the circumstance of 
 Respondents (53%) said that going forward, they would prefer an arrangement that enables flexibility between working from home and working in the office. Many indicated they prefer either splitting their time 50/50 or working mostly from home with some days in the office.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Any advantages?
@@ -75,13 +88,6 @@ Respondents (53%) said that going forward, they would prefer an arrangement that
 Participants of the survey pointed out many advantages of remote work. The most popular were:
 
 ![](https://static1.abbyy.com/abbyycommedia/29712/productivity-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Also, some of our users shared their advantages:
 
@@ -99,19 +105,19 @@ _“The lack of in-person communication, in general, makes it less fun to work f
 _“I spend longer periods sitting and not moving around every so often.”_  
 _“Workstation not as powerful as in the Office.”_ 
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Work-life balance
 
 The majority of respondents (56%) also noted that working from home has impacted their work-life balance positively. Only 16.3% stated that their work-life balance had been negatively impacted by the lockdown.
 
 ![](https://static1.abbyy.com/abbyycommedia/29714/productivity-7.jpg)  
 While 40.6% of respondents preferred dispersing work and relaxation throughout the day, 24.8% experienced trouble switching from work to relaxation.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Was it more stressful?
 
@@ -120,16 +126,17 @@ The research showed that working remotely helped 43.8% of respondents to cut dow
 ![](https://static1.abbyy.com/abbyycommedia/29715/productivity-8.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What about your screen time and gadgets usage?
@@ -156,6 +163,13 @@ The majority of respondents (51.5%) are 40 – 59 years old. They are specialist
 Thank you everyone that participated in our survey!
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) [Coronavirus](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -220,21 +234,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://solve-marvelous.techidaily.com/textcoefficient-of-kinetic-friction-fracv2-u22s-cdot-g/"><u> [ Text{coefficient of Kinetic Friction} = Frac{(v^2 - U^2)}{(2s Cdot G)} </u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-2024-approved-elevating-your-presence-a-guide-to-discord-broadcasts/"><u>[New] 2024 Approved Elevating Your Presence A Guide to Discord Broadcasts</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-hands-free-tricks-capturing-gotomeetings-on-the-fly/"><u>[New] In 2024, Hands-Free Tricks Capturing GoToMeetings on the Fly</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-mastering-video-posts-on-the-worlds-biggest-social-network/"><u>[New] In 2024, Mastering Video Posts on the World's Biggest Social Network</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-time-travel-adventures-for-unique-anime-inspired-tiktoks-for-2024/"><u>[New] Time Travel Adventures for Unique Anime-Inspired TikToks for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-ultimate-guide-to-remote-podcast-recording-for-2024/"><u>[Updated] Ultimate Guide to Remote Podcast Recording for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratuitamente-converte-i-file-nsv-a-formato-wmv-con-movavi-fai-trasformare-le-tue-video/"><u>Gratuitamente Converte I File NSV a Formato WMV Con Movavi - Fai Trasformare Le Tue Video</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-to-enjoy-privacy-online-with-vpns-insights-and-benefits/"><u>How to Enjoy Privacy Online with VPNs: Insights & Benefits</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-uncomplicated-guide-to-shooting-breatomed-time-lapses-with-gopro-hero5-black/"><u>In 2024, The Uncomplicated Guide to Shooting Breatomed Time-Lapses with GoPro Hero5 Black</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-pursuit-of-the-best-deal-on-high-tech-pet-monitoring/"><u>In Pursuit of the Best Deal on High-Tech Pet Monitoring</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/los-15-mejores-videoplayer-para-ver-mp4-sin-costo-en-pcs-con-windows-10-y-computadoras-mac-gratis/"><u>Los 15 Mejores Videoplayer Para Ver MP4 Sin Costo en PCs Con Windows 10 Y Computadoras Mac - Gratis</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/movavis-no-cost-tool-for-transforming-gsm-recordings-into-mp3-tracks-try-it-today/"><u>Movavi's No-Cost Tool for Transforming GSM Recordings Into MP3 Tracks - Try It Today!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/sviluppatore-audio-avanzato-software-editoriale-music-per-modifiche-sonore-soluzioni-movavi/"><u>Sviluppatore Audio Avanzato: Software Editoriale Music per Modifiche Sonore - Soluzioni Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/the-ultimate-guide-to-optimizing-with-leading-seo-programs-for-tracking-living-links-percentage/"><u>The Ultimate Guide to Optimizing with Leading SEO Programs for Tracking Living Links Percentage</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-15-free-video-editing-tools-for-starters-no-experience-needed-for-2024/"><u>Updated 15 Free Video Editing Tools for Starters No Experience Needed for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/veiling-uw-skype-gesprek-efficient-en-gemakkelijk-onderdelen-informatieverwerkende-voertuigen/"><u>Veiling Uw Skype Gesprek - Efficiënt en Gemakkelijk Onderdelen Informatieverwerkende Voertuigen</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-enhancing-googles-speech-to-text-capabilities-effectively/"><u>[New] 2024 Approved Enhancing Google's Speech-to-Text Capabilities Effectively</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-retain-snapchat-moments-android-and-mac-solutions/"><u>[Updated] Retain Snapchat Moments Android and Mac Solutions</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-techniques-for-fabulous-photo-collage-artistry/"><u>[Updated] Techniques for Fabulous Photo Collage Artistry</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mpeg-wma-movavi/"><u>在线免费将 MPEG 文件转换为 WMA音频 - 利用 Movavi 软件</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/convertissez-vos-videos-m2ts-en-mp4-sans-frais-via-le-service-de-movavi-en-ligne/"><u>Convertissez Vos Vidéos M2TS en MP4 Sans Frais via Le Service De Movavi en Ligne</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tigating-youtube-dialogues-for-2024/"><u>Investigating YouTube Dialogues for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-the-art-of-xbox-one-screen-capture-techniques/"><u>Mastering the Art of Xbox One Screen Capture Techniques</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transform-nef-photos-to-png-gratis-quick-and-simple-online-tool-by-movavi/"><u>Transform NEF Photos to PNG Gratis - Quick & Simple Online Tool by Movavi</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-the-ultimate-free-dailymotion-converter-tool-for-2024/"><u>Updated The Ultimate Free Dailymotion Converter Tool for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/wifi-ram-mpeg-and-desktop/"><u>무료 WiFi RAM MPEG 변환 - 모바일 & Desktop 호환성</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mp4-on/"><u>무료 이미지 영상을 MP4로 전환하는 방법 - Onラインでトゥーディ</u></a></li>
 </ul></div>
 

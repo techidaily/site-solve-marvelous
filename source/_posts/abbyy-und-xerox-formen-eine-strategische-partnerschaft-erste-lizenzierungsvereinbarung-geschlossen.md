@@ -1,7 +1,7 @@
 ---
 title: ABBYY Und Xerox Formen Eine Strategische Partnerschaft - Erste Lizenzierungsvereinbarung Geschlossen!
-date: 2024-09-10T21:59:55.086Z
-updated: 2024-09-14T18:19:37.120Z
+date: 2024-09-25T20:35:25.330Z
+updated: 2024-09-27T23:26:40.490Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/34a94943f164b90199ce5a5021ae83a50e184cfb3851095557656d94288c8df5.jpg
@@ -59,12 +59,28 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-pro-level-strategies-for-stunningly-pinning-messages-in-discord/"><u>[New] In 2024, Pro-Level Strategies for Stunningly Pinning Messages in Discord</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-record-complete-page-display/"><u>[Updated] In 2024, Record Complete Page Display</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-playbook-of-igtv-mastery-top-10-branding-techniques/"><u>[Updated] The Ultimate Playbook of IGTV Mastery Top 10 Branding Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-top-5-facebook-videos-that-hook-us-all-for-2024/"><u>[Updated] Top 5 Facebook Videos That Hook Us All for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-motorola-moto-g24-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Motorola Moto G24 | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724312527575-ai-ocr-abbyy/"><u>高精度AI-OCRを活用した効率的な会計文書管理システムの解決方法 | ABBYYデジタルドキュメントソリューション</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-appoints-torsten-malchow-as-new-vp-and-global-enterprise-sales-leader/"><u>ABBYY Appoints Torsten Malchow as New VP and Global Enterprise Sales Leader</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/cybercrime-evolution-with-ai-five-methods-employed-by-modern-thieves/"><u>Cybercrime Evolution with AI: Five Methods Employed by Modern Thieves</u></a></li>
+<li><a href="https://article-files.techidaily.com/how-to-harness-iphones-full-potential-for-landscapes/"><u>How to Harness iPhone's Full Potential for Landscapes</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-and-solving-destiny-twos-server-accessibility-trouble/"><u>Troubleshooting and Solving Destiny ˈTwo's Server Accessibility Trouble</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unleashing-growth-potential-with-the-power-of-cookiebot-technology-for-sites/"><u>Unleashing Growth Potential with the Power of Cookiebot Technology for Sites</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlock-growth-potential-with-cookiebots-advanced-user-tracking-solutions/"><u>Unlock Growth Potential with Cookiebot's Advanced User Tracking Solutions</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722843930472-unveiling-the-secret-a-guide-to-activating-and-utilizing-the-stealthy-file-explorer-shortcut/"><u>Unveiling the Secret: A Guide to Activating & Utilizing the Stealthy File Explorer Shortcut</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/website-optimization-with-cookiebot-integration/"><u>Website Optimization with Cookiebot Integration</u></a></li>
+</ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

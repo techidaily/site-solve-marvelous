@@ -1,7 +1,7 @@
 ---
 title: How McDonald's Enhances Its Mobile App with Advanced ABBYY OCR Solutions
-date: 2024-09-11T23:27:32.742Z
-updated: 2024-09-14T19:48:07.767Z
+date: 2024-09-20T20:12:07.428Z
+updated: 2024-09-28T06:30:08.652Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/551b9b29030807808fecbd021cc6b8c9595b15c77a4f336ad0c59913e2c5001a.jpg
@@ -19,11 +19,25 @@ Wholesale & Retail Trade | Food and Beverage | Mobile Capture | Cloud-based Docu
 
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## McDonald’s s’appuie sur la technologie OCR d’ABBYY pour supporter l’application mobile
 
 Commerce de gros et de détail | Capture mobile 
 
 ![](https://static1.abbyy.com/abbyycommedia/16263/cs-mcd-556x303.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Aperçu du client
 
@@ -51,9 +65,23 @@ Au cours de la Coupe du monde de la FIFA, McDonald's Allemagne a lancé une prom
   
 ![](https://static1.abbyy.com/abbyycommedia/5311/screenshot-90-mcdonalds_450px.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###### Like, share or repost
 
 Partager  True ?  : "" 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -74,12 +102,18 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-elevating-video-discoverability-with-strategic-tagging-on-youtube/"><u>[New] 2024 Approved Elevating Video Discoverability with Strategic Tagging on Youtube</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-immersive-play-samsung-vr-classics/"><u>[Updated] Immersive Play Samsung VR Classics</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-itop-screen-recorder-review-should-you-install-it-for-2024/"><u>[Updated] ITop Screen Recorder Review Should You Install It for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-your-quick-guide-to-securing-a-youtube-revenue-stream/"><u>2024 Approved Your Quick Guide to Securing a Youtube Revenue Stream</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/boosting-web-performance-through-cookiebots-advanced-automation-solutions/"><u>Boosting Web Performance Through Cookiebot's Advanced Automation Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/charting-the-top-of-idc-landscape-how-abbyy-sets-industry-standards-in-data-capture-solutions/"><u>Charting the Top of IDC Landscape - How ABBYY Sets Industry Standards in Data Capture Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-analytics-elevating-data-management-and-personalization/"><u>Cookiebot-Driven Analytics: Elevating Data Management and Personalization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-personalization-for-superior-online-engagement/"><u>Cookiebot-Driven Personalization for Superior Online Engagement</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-digital-solutions/"><u>Cookiebot-Enabled Digital Solutions</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-in-depth-reviews-at-toms-hardware-your-gadget-hub/"><u>Discover In-Depth Reviews at Tom's Hardware - Your Gadget Hub</u></a></li>
+<li><a href="https://media-tips.techidaily.com/ultimate-guide-to-transferring-videos-from-evo-to-ipad-2-best-converters-reviewed/"><u>Ultimate Guide to Transferring Videos From EVO to iPad 2 - Best Converters Reviewed</u></a></li>
+</ul></div>
 

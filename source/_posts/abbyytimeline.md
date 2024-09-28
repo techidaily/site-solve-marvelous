@@ -1,7 +1,7 @@
 ---
 title: パンフレット解析という新展開： ABBYYのTimelineによるプロセスデジタルツイン進化
-date: 2024-09-11T16:49:30.443Z
-updated: 2024-09-14T19:11:05.832Z
+date: 2024-09-20T19:06:16.924Z
+updated: 2024-09-28T07:25:06.531Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/98776572354897cc2b9eb92b9469126b6b1576e9ed20c23d2405392dbcb37fbd.jpg
@@ -15,11 +15,25 @@ thumbnail: https://thmb.techidaily.com/98776572354897cc2b9eb92b9469126b6b1576e9e
 
 ![The Rise of the Process Digital Twin - ABBYY Timeline brochure](https://static1.abbyy.com/abbyycommedia/30459/21d-digitaltwin-jp-262x340.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 自社のデータを使いこなし、 業務プロセスを理解しましょう。 未来を予見し、 さらなる効率化を実現しましょう。
 
 この研究分野が立ち上げられて以降、現在では、ひとまとめに「プロセス・マイニング」あるいは「プロセス分析」と呼ばれるアプリケーションの製品群に進化しました。 この研究分野の進化は、「プロセス・インテリジェンス」と呼ばれる新しいタイプの分析をもたらしました。
 
 プロセス・インテリジェンスは、単純なプロセスマイニングのさらに先を行くツールで、企業ユーザーがさらに多くのことをできるようにサポートします。簡単に使用でき、コーディングも不要な上に、ポイント・アンド・クリック式のインターフェースとなっており、 組織が業務プロセスを管理し、継続的で持続的な高品質のプロセスを進めるには欠かせない事業戦略ツールです。
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 今すぐダウンロード！
 
@@ -30,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/98776572354897cc2b9eb92b9469126b6b1576e9e
 もっと簡単に、業務プロセスを理解できるようになりました。 パンフレットをダウンロードし、詳細をご覧ください。
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYYにご関心をお寄せいただき、誠にありがとうございます。
@@ -43,10 +57,10 @@ thumbnail: https://thmb.techidaily.com/98776572354897cc2b9eb92b9469126b6b1576e9e
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### ご質問がおありですか？ [お気軽にABBYYにお問い合わせください。](https://tools.techidaily.com/abbyy/products/)
@@ -116,5 +130,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-streaming-success-with-top-tier-tech/"><u>[Updated] 2024 Approved Streaming Success with Top-Tier Tech</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-record-internal-audio-in-android-without-root-4-ways/"><u>[Updated] Record Internal Audio in Android without Root [4 Ways]</u></a></li>
+<li><a href="https://extra-information.techidaily.com/expert-guide-to-eliminating-red-eye-on-your-iphone-shots-for-free/"><u>Expert Guide to Eliminating Red Eye on Your iPhone Shots for Free</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-oneplus-12r-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your OnePlus 12R FRP Locks</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/how-marvels-spider-man-miles-morales-delivers-impactful-gameplay-on-a-smaller-scale/"><u>How 'Marvel’s Spider-Man: Miles Morales' Delivers Impactful Gameplay on a Smaller Scale</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-exploring-per-view-money-flow-among-youtubers/"><u>In 2024, Exploring Per-View Money Flow Among YouTubers</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimize-your-sites-analytics-the-advanced-features-of-cookiebot-solutions/"><u>Optimize Your Site's Analytics: The Advanced Features of Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimized-webpage-strategies-enhancing-your-online-presence/"><u>Optimized Webpage Strategies: Enhancing Your Online Presence</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimizing-with-cookiebot-boosting-your-websites-potential/"><u>Optimizing with Cookiebot: Boosting Your Website's Potential</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionize-automation-through-informed-decisions-discover-how-with-process-and-task-mining-at-abbyys-special-webinar/"><u>Revolutionize Automation Through Informed Decisions: Discover How with Process and Task Mining at ABBYY's Special Webinar</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-wine-selection-how-abbyys-ocr-technology-fuels-vivinos-global-success/"><u>Revolutionizing Wine Selection: How ABBYY's OCR Technology Fuels Vivino's Global Success</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/seamless-user-engagement-boosted-by-innovative-cookiebot-technology-solutions/"><u>Seamless User Engagement Boosted by Innovative Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/track-and-measure-methods-for-finding-sharers-of-your-facebook-posts/"><u>Track and Measure: Methods for Finding Sharers of Your Facebook Posts</u></a></li>
+</ul></div>
 

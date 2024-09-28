@@ -1,7 +1,7 @@
 ---
 title: "Masterful Mobile Tools: ABBYY's Guide to Enhancing Smartphone Productivity with OCR"
-date: 2024-09-08T21:53:25.366Z
-updated: 2024-09-15T00:34:18.088Z
+date: 2024-09-23T19:02:02.142Z
+updated: 2024-09-28T05:46:19.892Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0138e2483878b61786c62e2e9ead335ddaa2649c1800ba21659cf76cde33dc5d.jpg
@@ -38,6 +38,13 @@ While performing an action, double-tap on the screen to stop or resume it. For e
 
 ![iOS Teach iPhone to Speak](https://static1.abbyy.com/abbyycommedia/26061/voiceover_on_ios_thumb800-e1509381685695.png)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Here’s how you activate VoiceOver. Head to **Settings** \> **General** \> **Accessibility** and triple-tap the Home button to start using [VoiceOver](https://www.apple.com/accessibility/iphone/vision/). You will hear a description of everything displayed on the screen: the battery level, the Caller ID, and even the name of the app you are about to open. You can also adjust the speaking rate and pitch.
 
 ![iOS phone speaking VoiceOver](https://static1.abbyy.com/abbyycommedia/26062/9333c52eb32b9d3985a20f54efae8aa9-e1509381782113.png)
@@ -51,11 +58,25 @@ And a couple of more perks:
 
 Summing up: [VoiceOver](https://www.apple.com/accessibility/iphone/vision/) helps you to fully control your device without even seeing the screen. The smartphone will tell you what is happening. By the way, all ABBYY-developed apps also support [VoiceOver](https://www.apple.com/accessibility/iphone/vision/), and [TextGrabber](https://textgrabber.app.link/mobilemonday), a must-have for vision-impaired users, is no exception.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Android Tip: Teaching Your Android Phone to Speak**
 
 Smartphones powered by Android are also capable of speaking to their users and guiding them while they navigate the screen.[TalkBack](https://play.google.com/store/apps/details?id=com.google.android.marvin.talkback&hl=en)is specifically designed as a screen reader that provides spoken feedback and announces notifications and other events.
 
 ![Android teach smartphone to speak TalkBack](https://static1.abbyy.com/abbyycommedia/26063/01140716-83af-4ce3-b3c3-b48dbccd4de9-e1509384509701.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 There are three ways to activate [TalkBack](https://play.google.com/store/apps/details?id=com.google.android.marvin.talkback&hl=en) on your phone:
 
@@ -92,6 +113,13 @@ There are two ways to export business cards from [Business Card Reader](https://
 
 ![Abbyy Export Business Cards from BCR iOS](https://static1.abbyy.com/abbyycommedia/26065/img_0009-1-e1509384903646.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Busines Card Reader (Scanner) Abbyy](https://static1.abbyy.com/abbyycommedia/26066/image-1-e1509384965944.jpg)
 
 On an Android device:
@@ -103,14 +131,27 @@ On an Android device:
 2. Tap the Share button > select Export to CSV > MS Outlook or Google Contacts.  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://static1.abbyy.com/abbyycommedia/37170/mceclip2.png)
 3. The file will be created automatically. Now you can share it with anyone right away!
+
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 To open a CSV file with the business cards in MS Excel, choose the file in **File Explorer**. If your system settings prevent the contents of the file from being displayed correctly, do the following:
 
@@ -132,13 +173,6 @@ It’s that simple!
 You can use the list of your results to create reports for employers if you work at an hourly rate. Now you can measure how long different activities take, so you'll know what deadlines to set for your future tasks.
 
 But that's not all![Hourly](https://apps.apple.com/us/app/hourly-time-and-task-manager/id1308461936) can also send reminders to take breaks, which is also essential. .
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 And finally, why Hourly?
 
@@ -164,35 +198,9 @@ You are welcome.:)
 
 ![undo typing iOS calculator Abbyy](https://static1.abbyy.com/abbyycommedia/26070/calc_2x_1024-e1509385642453.png)
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 That’s all for today, guys. As usual, the next issue of this newsletter will be out next Monday. The previous issue is available [here](https://tools.techidaily.com/abbyy/products/).
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -256,5 +264,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-free-video-credits-pro-the-best-suggestions-1-6/"><u>[New] 2024 Approved Free Video Credits Pro - The Best Suggestions #1-6</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-archive-exploration-for-social-media-insight-for-2024/"><u>[New] Archive Exploration for Social Media Insight for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-become-a-snapboom-expert-in-minutes/"><u>[New] Become a SnapBoom Expert in Minutes</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/8-best-video-conferencing-software-for-small-business-safe-and-stable/"><u>8 Best Video Conferencing Software for Small Business (Safe and Stable)</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-realise-sustains-double-digit-growth-streak-for-third-consecutive-year/"><u>ABBYY Réalise Sustains Double-Digit Growth Streak for Third Consecutive Year</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-und-xerox-formen-eine-strategische-partnerschaft-erste-lizenzierungsvereinbarung-geschlossen/"><u>ABBYY Und Xerox Formen Eine Strategische Partnerschaft - Erste Lizenzierungsvereinbarung Geschlossen!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyys-senior-vice-president-joins-elite-aiim-fellowship/"><u>ABBYY's Senior Vice President Joins Elite AIIM Fellowship</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abtyy-zeichnet-dritte-reihe-von-jahren-mit-zweiseitiger-umsatzsteigerung-auf/"><u>ABTYY Zeichnet Dritte Reihe Von Jahren Mit Zweiseitiger Umsatzsteigerung Auf</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-s24plus-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy S24+ Phones with/without a PC</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-demystifying-the-symbolism-of-a-blue-marker-in-facebook-chats/"><u>In 2024, Demystifying the Symbolism of a Blue Marker in Facebook Chats</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-infinix-note-30-vip-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Infinix Note 30 VIP</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-art-of-film-crafting-with-kinemaster-tools/"><u>In 2024, The Art of Film Crafting with Kinemaster Tools</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unlocking-guide-final-opportunity-to-access-your-lg-smartphone-securely/"><u>Unlocking Guide: Final Opportunity to Access Your LG Smartphone Securely</u></a></li>
+</ul></div>
 

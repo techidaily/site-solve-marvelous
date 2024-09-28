@@ -1,7 +1,7 @@
 ---
 title: Adapting Business Operations During COVID-19 Crisis - Key Perspectives From ABBYY
-date: 2024-09-10T18:27:13.114Z
-updated: 2024-09-14T23:47:13.546Z
+date: 2024-09-20T17:54:18.641Z
+updated: 2024-09-28T01:31:01.294Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b47fd0e753c3df7e85d7c99e9dd6f25592469353c9ed51bdab027cc3c0e36d8f.jpg
@@ -29,6 +29,13 @@ What we discovered was not entirely surprising. Seventy-four percent of responde
 
 What _was_ surprising is that another major contributing factor to workplace challenges was processes. While most would agree that business processes are in place to foster efficiency, compliance, and better business outcomes, nearly half of the respondents (48%) blamed poor business processes for making their job more challenging, with one in four wanting to quit their job because of it. Another 36% said processes wasted time and let them down.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### So, in what ways do processes negatively impact employees’ work? And what can be done to address this?
 
 The answers lie in that many organizations develop processes based on how they think they should flow and not how people interact with systems, applications, and handle outlier events. ABBYY solves this problem with its [Process Intelligence](https://tools.techidaily.com/abbyy/products/) solution, which can analyze multiple processes within your business and deliver a digital process model (a “digital twin”) of your business operations and processes.
@@ -38,6 +45,13 @@ Using advanced algorithms, Process Intelligence extracts and reads the timestamp
 Another interesting finding from the survey was the introduction of technology during the pandemic. Sixty-four percent of respondents’ companies were quick to adopt new technologies and processes for the first time during the lockdown to help alleviate the stresses of WFH. Tools that helped with processes digitized the automation of paper, and onboarded new clients were deemed successful for respondents (76%); this included tools for monitoring employee tasks and performance.
 
 ![COVID Impact on Business, Employees](https://static1.abbyy.com/abbyycommedia/30408/abbyy-global-covid-technology-survey_us_1200x628.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Monitoring how employees perform tasks is a nascent category of process intelligence called task mining. Task mining enables companies to understand how they manage tasks by collecting and analyzing user interactions. Such an in-depth understanding can help enterprises automate and improve processes. Task mining has parallels with process mining, but it uses user interaction data, rather than logs files and business metrics, to analyze processes. [ABBYY Task Mining](https://tools.techidaily.com/abbyy/products/) analyzes desktop user interaction data and seamlessly links it with process details mined from system event data, so you can see where repetitive and inefficient tasks are slowing your processes and allocate resources in the right places to resolve them.
 
@@ -61,6 +75,13 @@ Leaders need to understand the day-to-day frustrations employees have with their
 
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Bruce Orcutt
 
 Senior Vice President of Product Marketing at ABBYY
@@ -68,6 +89,13 @@ Senior Vice President of Product Marketing at ABBYY
 Bruce Orcutt is a veteran Product Marketing and Product Management professional with over 20 years’ experience in Enterprise Software. Bruce drives global product marketing for ABBYY's intelligent automation solutions that create business value for organizations. His go-to-market strategies accelerate the adoption of ABBYY solutions worldwide.
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -130,12 +158,16 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-from-concept-to-screen-writing-a-winning-docu-script/"><u>[New] From Concept to Screen Writing a Winning Docu-Script</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-initiate-into-a-tiktok-live-with-ease-for-2024/"><u>[New] Initiate Into a TikTok Live with Ease for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-best-signature-background-remover-online-6-incredible-tools/"><u>[Updated] Best Signature Background Remover Online - 6 Incredible Tools</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On OnePlus Ace 2? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Vivo Y100 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/the-future-is-now-understanding-ai-governance-on-the-ai-pulse-podcast/"><u>The Future Is Now: Understanding AI Governance on the AI Pulse Podcast</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transform-images-into-editable-text-ocr-for-pdfjpg-files-on-ios-via-finereader/"><u>Transform Images Into Editable Text - OCR for PDF/JPG Files on iOS via FineReader</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-jobs-tomorrow-insightful-analysis-on-rpas-impact-and-abbyys-forecast-white-paper/"><u>Transforming Jobs Tomorrow: Insightful Analysis on RPA's Impact and ABBYY's Forecast [White Paper]</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-legal-text-analysis-with-abbyys-advanced-docs-enhanced-capabilities-and-seamless-rag-sync/"><u>Transforming Legal Text Analysis with ABBYY's Advanced Docs: Enhanced Capabilities and Seamless RAG Sync</u></a></li>
+</ul></div>
 

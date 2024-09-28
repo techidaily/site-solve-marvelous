@@ -1,7 +1,7 @@
 ---
 title: "Appointment of Neil Murphy as CSO: How ABBYY Strengthens Its Executive Team"
-date: 2024-09-13T00:15:31.990Z
-updated: 2024-09-14T16:01:51.028Z
+date: 2024-09-24T21:13:14.440Z
+updated: 2024-09-27T18:13:59.772Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5c068034f0080166994d164493cb808318b6f6a0f4d45de0f56404a9b7904a53.jpg
@@ -37,6 +37,13 @@ _Neil Murphy, Chief Sales Officer bei ABBYY._
 
 Um mehr über ABBYYs intelligente Automatisierungslösungen zu erfahren, besuchen Sie <https://www.abbyy.com/de/company/about-us/>.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Über ABBYY
 
 ABBYY treibt die intelligente Automatisierung voran. Wir gestalten die Art und Weise, wie Menschen arbeiten neu, indem wir Automatisierungsplattformen mit der Intelligenz ausstatten, die es Unternehmen ermöglicht, ihr Geschäft zu beschleunigen. Unsere Lösungen wandeln Unternehmensdaten in verwertbare Daten um und liefern die Erkenntnisse, die für ein smarteres und schnelleres Arbeiten erforderlich sind.
@@ -47,9 +54,23 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 14
 
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Pressekontakt:
 
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Bianca Stupp
 
@@ -72,12 +93,26 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-god-of-thunder-returns-epic-dawn/"><u>[New] 2024 Approved God of Thunder Returns Epic Dawn</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unlock-fb-seo-potential-with-keyword-rich-strategies-for-2024/"><u>[Updated] Unlock FB SEO Potential with Keyword-Rich Strategies for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/downloader-void-de-conversation-whatsapp-les-meilleurs-rangs-seo-avec-le-telechargement-gratuit/"><u>Downloader VOID De Conversation Whatsapp : Les Meilleurs Rangs SEO Avec Le Téléchargement Gratuit,</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/engage-in-confidential-chats-using-duckduckgos-ai-access-exclusive-private-sessions-like-chatgpt-plus/"><u>Engage in Confidential Chats Using DuckDuckGo's AI: Access Exclusive Private Sessions Like ChatGPT Plus!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-site-analytics-with-the-power-of-cookiebot-technology/"><u>Enhanced Site Analytics with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhancing-your-web-experience-through-cutting-edge-cookiebot-features/"><u>Enhancing Your Web Experience Through Cutting-Edge Cookiebot Features</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/exploring-the-anatomy-of-a-web-page-tips-and-strategies/"><u>Exploring the Anatomy of a Web Page: Tips and Strategies</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/flexicapture-von-abbyy-effiziente-losung-fur-den-abruf-und-die-bearbeitung-digitaler-fahrzeugunterlagen-mit-der-software-gas-geben/"><u>FlexiCapture Von ABBYY: Effiziente Lösung Für Den Abruf Und Die Bearbeitung Digitaler Fahrzeugunterlagen Mit Der Software Gas Geben</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gartners-2023-magic-quadrant-acknowledges-abbyy-as-the-preeminent-leader-in-process-mining-technology/"><u>Gartner's 2023 Magic Quadrant Acknowledges ABBYY as the Preeminent Leader in Process Mining Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/how-abbyys-powerful-technology-secures-a-spot-on-cio-100-mastering-the-source-to-pay-process/"><u>How ABBYY's Powerful Technology Secures a Spot on CIO 100: Mastering the Source-to-Pay Process</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-xiaomi-civi-3-disney-100th-anniversary-edition-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Xiaomi Civi 3 Disney 100th Anniversary Edition</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-whats-new-in-youtube-money-regulations/"><u>In 2024, What's New in YouTube Money Regulations</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/innovative-strategies-for-advancing-process-enhancement-amidst-covid-19-and-future-challenges/"><u>Innovative Strategies for Advancing Process Enhancement Amidst COVID-19 & Future Challenges</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/la-charge-innovante-de-labbyy-sdk-une-integration-fluide-pour-le-recuperation-en-temps-reel-des-informations/"><u>La Charge Innovante De L'ABBYY SDK: Une Intégration Fluide Pour Le Récupération en Temps Réel Des Informations</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-tailored-content-delivery-and-seo-success/"><u>Leveraging Cookiebot Technology for Tailored Content Delivery and SEO Success</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/magix-video-pro-x-user-guide-summary/"><u>Magix Video Pro X User Guide Summary</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-beginners-handbook-to-capturing-your-computer-screen-on-a-pc/"><u>The Beginner's Handbook to Capturing Your Computer Screen on a PC</u></a></li>
+<li><a href="https://windows11.techidaily.com/unleashing-full-gpu-potential-in-windows-10-and-11-via-vram/"><u>Unleashing Full GPU Potential in Windows 10 & 11 via VRAM</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-powerhouse-2020-apple-mac-mini-m1-chip-surpassing-rival-computers/"><u>Unveiling the Powerhouse: 2020 Apple Mac Mini (M1 Chip) - Surpassing Rival Computers</u></a></li>
+</ul></div>
 

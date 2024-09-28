@@ -1,7 +1,7 @@
 ---
 title: Global Research on Customer Onboarding Processes by ABBYY
-date: 2024-09-10T18:52:11.984Z
-updated: 2024-09-14T23:06:52.949Z
+date: 2024-09-21T21:36:18.040Z
+updated: 2024-09-27T16:50:48.367Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/91640d3f48e05abf1077e677bdbbda7bdefb1b3ddb9865f38230cf758116e95e.jpg
@@ -46,10 +46,10 @@ thumbnail: https://thmb.techidaily.com/91640d3f48e05abf1077e677bdbbda7bdefb1b3dd
 ![](https://static1.abbyy.com/abbyycommedia/36334/2022-11-24_onboarding_survey_jp-table.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ▼グローバル調査結果トピックスの詳細
@@ -58,32 +58,56 @@ thumbnail: https://thmb.techidaily.com/91640d3f48e05abf1077e677bdbbda7bdefb1b3dd
  (\*2) 世界平均は米国、英国、フランス、ドイツの平均（以下の図も同様）  
 ![](https://static1.abbyy.com/abbyycommedia/36329/2022-11-24_onboarding_survey_jp-image-1.png?width=800&height=344)
 2. 「顧客のオンボーディングプロセスをどれくらい自動／人手で行っていますか？」という質問に対して、「50%以上は自動化している」と回答した割合が世界平均では82%であり、顧客のオンボーディングプロセスのデジタルシフトが進んでいることが分かります。その反面、日本は49%が「75%以上は人手で行っている」と回答しており、業務のデジタル化が遅れていることが明らかになりました。  
-![](https://static1.abbyy.com/abbyycommedia/36330/2022-11-24_onboarding_survey_jp-image-2.png?width=801&height=335)
-3. 「顧客のオンボーディングプロセスに変更を加えたことがありますか？」という質問に対して、世界平均の96%は何らかのテクノロジーを活用したオンボーディングを行っていますが、日本は67%に留まり、大きく後進していることがわかりました。「当てはまらない」に関しては、日本が27%で世界平均の3%を大きく上回っており、日本の企業は顧客のオンボーディングプロセスを変えていない、つまりより改善する取り組みを行っていない可能性が高いことが明らかになりました。また、全体として少数ではあるものの、完全に人手での対応に変更した企業も8%と世界平均の2倍以上の数字となっており、日本企業はいまだテクノロジーではなく人手に頼る傾向が世界平均より強いといえます。  
-![](https://static1.abbyy.com/abbyycommedia/36331/2022-11-24_onboarding_survey_jp-image-3.png?width=800&height=447)
-4. 「顧客のオンボーディングプロセス中での離脱率は何%ですか？」という質問に対して、「わからない」「該当なし」と回答した企業が世界平均は4%でしたが、日本は26%と顧客の離脱率に対する意識が日本は低い傾向があることがわかりました。  
-![](https://static1.abbyy.com/abbyycommedia/36332/2022-11-24_onboarding_survey_jp-image-4.png?width=800&height=362)
-5. 「もし顧客の離脱率が50%下がった場合」に関する質問で、「何もしない／変化なし」と回答した数が日本企業は世界平均の約3倍でした。各質問での割合は、「収益が何%増加すると思いますか？（世界平均：6%、日本：21%）」「追加のサービスを何%増やしますか？（世界平均：6%、日本：17%）」「顧客開拓が何%増えると思いますか？（世界平均：5%、日本：18%）」「人材の為の対応を何％増やしますか？（世界平均：7%、日本：21%）」であり、現状維持を望む傾向が強いといえます。
-6. 「昨年、顧客の離脱によりどの様なビジネス上の結果／余波がありましたか？」という質問に対して、「新規顧客獲得に苦しんだ」と回答した企業が世界平均の28%に対して日本では半数を超えており、日本企業が特に悩みを抱えている部分であり、喫緊の課題であることがわかりました。  
-![](https://static1.abbyy.com/abbyycommedia/36333/2022-11-24_onboarding_survey_jp-image-5.png?width=800&height=375)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://static1.abbyy.com/abbyycommedia/36330/2022-11-24_onboarding_survey_jp-image-2.png?width=801&height=335)
+3. 「顧客のオンボーディングプロセスに変更を加えたことがありますか？」という質問に対して、世界平均の96%は何らかのテクノロジーを活用したオンボーディングを行っていますが、日本は67%に留まり、大きく後進していることがわかりました。「当てはまらない」に関しては、日本が27%で世界平均の3%を大きく上回っており、日本の企業は顧客のオンボーディングプロセスを変えていない、つまりより改善する取り組みを行っていない可能性が高いことが明らかになりました。また、全体として少数ではあるものの、完全に人手での対応に変更した企業も8%と世界平均の2倍以上の数字となっており、日本企業はいまだテクノロジーではなく人手に頼る傾向が世界平均より強いといえます。  
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+![](https://static1.abbyy.com/abbyycommedia/36331/2022-11-24_onboarding_survey_jp-image-3.png?width=800&height=447)
+4. 「顧客のオンボーディングプロセス中での離脱率は何%ですか？」という質問に対して、「わからない」「該当なし」と回答した企業が世界平均は4%でしたが、日本は26%と顧客の離脱率に対する意識が日本は低い傾向があることがわかりました。  
+
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+![](https://static1.abbyy.com/abbyycommedia/36332/2022-11-24_onboarding_survey_jp-image-4.png?width=800&height=362)
+5. 「もし顧客の離脱率が50%下がった場合」に関する質問で、「何もしない／変化なし」と回答した数が日本企業は世界平均の約3倍でした。各質問での割合は、「収益が何%増加すると思いますか？（世界平均：6%、日本：21%）」「追加のサービスを何%増やしますか？（世界平均：6%、日本：17%）」「顧客開拓が何%増えると思いますか？（世界平均：5%、日本：18%）」「人材の為の対応を何％増やしますか？（世界平均：7%、日本：21%）」であり、現状維持を望む傾向が強いといえます。
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+6. 「昨年、顧客の離脱によりどの様なビジネス上の結果／余波がありましたか？」という質問に対して、「新規顧客獲得に苦しんだ」と回答した企業が世界平均の28%に対して日本では半数を超えており、日本企業が特に悩みを抱えている部分であり、喫緊の課題であることがわかりました。  
+![](https://static1.abbyy.com/abbyycommedia/36333/2022-11-24_onboarding_survey_jp-image-5.png?width=800&height=375)
 
 ### ▼ABBYYグループCEO/取締役 ウルフ・パーソンのコメント
 
 「顧客のデジタルオンボーディングの重要性と、それによるビジネスへのプラス効果が、日本ではあまり認識されていない様に見受けられます。半数以上の企業が顧客獲得に悩まれていると調査では回答している訳ですが、オンボーディングプロセスを改善することで顧客の離脱率を下げ、そして結果として新規の顧客獲得を大きく改善できる、ということをもっと知って頂きたいです。ABBYYのインテリジェント・プロセス・オートメーションのテクノロジーで、デジタルオンボーディングプロセスと総合的なカスタマーエクスペリエンスを大きく向上できる余地が、日本にはまだまだ残されていると思います。」
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### ▼ABBYYジャパン代表取締役社長 前田まりこのコメント
 
@@ -100,13 +124,6 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 詳細は[www.abbyy.com/ja/company/about-us/](https://tools.techidaily.com/abbyy/products/)をご覧ください。
 
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 報道関係者お問い合わせ先
 
@@ -130,5 +147,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-navigating-screen-recording-on-your-hp-laptop-effortlessly/"><u>[New] 2024 Approved Navigating Screen Recording on Your HP Laptop Effortlessly</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-diving-into-deep-an-in-depth-review-of-the-htc-vive/"><u>[Updated] 2024 Approved Diving Into Deep An In-Depth Review of the HTC Vive</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-premiers-choice-5-best-slow-motion-cams/"><u>[Updated] Premier's Choice 5 Best Slow-Motion Cams</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gsmmp4movavi/"><u>在线无需付钱：自动转换GSM视频为MP4，使用Movavi解决方案</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/cultural-dialogues-the-turkish-korean-connection/"><u>Cultural Dialogues: The Turkish-Korean Connection</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/downloadable-mkaaac-video-transcoder-tool-by-movavi-no-cost-use-anywhere/"><u>Downloadable MKA/AAC Video Transcoder Tool by Movavi - No Cost, Use Anywhere!</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/easily-repair-your-razer-microphone-issues-a-step-by-step-guide/"><u>Easily Repair Your Razer Microphone Issues: A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/from-concept-to-curtain-call-scriptwriting-tips-for-successful-streams/"><u>From Concept to Curtain Call Scriptwriting Tips for Successful Streams</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-vivo-x-fold-2-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Vivo X Fold 2 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726225557529-mp3-movavi/"><u>Mp3ファイルビットレート変更手順 - Movaviで簡単に実行!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/step-by-step-guide-recording-your-screen-with-ease-using-movavi/"><u>Step-by-Step Guide: Recording Your Screen with Ease Using Movavi</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-oneplus-12-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of OnePlus 12 ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/telechargez-et-convertissez-votre-fichier-voc-en-wmv-pour-gratuit-conversion-video-rapide-en-ligne-a-laide-de-movavi/"><u>Téléchargez Et Convertissez Votre Fichier VOC en WMV Pour Gratuit – Conversion Vidéo Rapide en Ligne À L'aide De Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-12-outils-danimation-open-source-en-2024-solutions-de-modelisation-et-animation-3d/"><u>Top 12 Outils D'Animation Open Source en 2024 - Solutions De Modélisation Et Animation 3D</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transform-your-3gp-videos-into-webm-with-ease-using-movavis-cost-free-tool/"><u>Transform Your 3GP Videos Into WebM with Ease Using Movavi’s Cost-Free Tool</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformez-vos-fichiers-swf-en-avi-sans-frais-grace-au-convertisseur-en-ligne-movavi-solution-optimisee-seo/"><u>Transformez Vos Fichiers SWF en AVI Sans Frais Grâce Au Convertisseur en Ligne Movavi - Solution Optimisée SEO</u></a></li>
+<li><a href="https://fox-that.techidaily.com/understanding-the-iphone-14-key-points-on-battery-performance-and-troubleshooting/"><u>Understanding the iPhone 14: Key Points on Battery Performance and Troubleshooting</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Revolutionizing Wine Selection: How ABBYY's OCR Technology Fuels Vivino's Global Success"
-date: 2024-09-12T21:14:44.962Z
-updated: 2024-09-14T23:44:54.193Z
+date: 2024-09-27T05:55:46.943Z
+updated: 2024-10-03T04:44:41.068Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/29d02750ad0cb057d82cf1dca19da27d5429074e0ee73dae3abc4f97673bc3bc.jpg
@@ -29,11 +29,31 @@ To learn more about incorporating ABBYY technologies and toolkits into your prod
 
 \* _based on Vivino’s company data_
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### About ABBYY
 
 ABBYY UK is a member of the ABBYY Group and supports sales and marketing activities in Western Europe. ABBYY is a leading provider of document recognition, data capture, and linguistic technologies and services. Its products include the ABBYY FineReader line of optical character recognition (OCR) applications, ABBYY FlexiCapture line of data capture solutions, and development tools. ABBYY offers Professional Services to help customers implementing business solutions based on ABBYY’s products. Paper-intensive organisations from all over the world use ABBYY solutions to automate time- and labour-consuming tasks and to streamline business processes. ABBYY products are used in large-scale government projects such as those of Australian Taxation Office, Lithuanian Tax Inspectorate, Ministry of Education of Ukraine, Montgomery County Government of the USA and the Government of Canada. Companies that license ABBYY technologies include BancTec, Canon, EMC/Captiva, Hewlett-Packard, KnowledgeLake, Microsoft, NewSoft, Notable Solutions, Samsung Electronics and more. ABBYY OCR applications are shipped with equipment from the world’s top manufacturers such as Epson, Fujitsu, Fuji Xerox, Microtek, Panasonic, PFU, Plustek, Ricoh, Toshiba, and Xerox. ABBYY is an international company with offices in Germany, the UK, France, Spain, Ukraine, Cyprus, the United States, Canada, Australia, Japan and Taiwan. For more information, visit [www.ABBYY.com](https://tools.techidaily.com/abbyy/products/)
 
 _ABBYY, the ABBYY Logo, FineReader, ADRT, FlexiCapture, and FlexiLayout are either registered trademarks or trademarks of ABBYY Software Ltd. Other product names mentioned herein may be trademarks and/or registered trademarks of their respective owners and are hereby recognised._
+
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### For more information, please contact:
 
@@ -50,10 +70,10 @@ E-Mail: press\_eu@abbyy.com
 Web: [www.ABBYY.com](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About Vivino
@@ -77,5 +97,23 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-smooth-movies-clean-shots-the-10-best-for-superior-image-stabilization/"><u>[New] Smooth Movies, Clean Shots The 10 Best for Superior Image Stabilization</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-demystifying-the-publics-vllo-interpretation/"><u>[Updated] 2024 Approved Demystifying the Public's VLLO Interpretation</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-navigating-snapchats-call-feature-in-three-steps/"><u>[Updated] In 2024, Navigating Snapchat's Call Feature in Three Steps</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mp3-flac/"><u>「網路無限 MP3 自動預設 FLAC - 移動愛瓦 變更程式」</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/best-ways-to-convert-videos-from-vlc-to-mp4-with-ease-top-movavi-tips/"><u>Best Ways to Convert Videos From VLC to MP4 with Ease - Top Movavi Tips</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/criador-de-slide-show-gratuito-pelo-movavi-facil-download-e-instalacao/"><u>Criador De Slide Show Gratuito Pelo Movavi - Fácil Download E Instalação</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effortlessly-transform-mp2-tracks-into-high-quality-wav-files-with-movavis-free-online-service/"><u>Effortlessly Transform MP2 Tracks Into High-Quality WAV Files with Movavi's Free Online Service</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1723808026701-how-to-create-a-batch-file-the-easy-way/"><u>How to Create a Batch File? The Easy Way</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/how-to-extract-and-convert-twitter-videos-hosted-on-youtube-to-mp3s/"><u>How to Extract and Convert Twitter Videos Hosted on YouTube to MP3s</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-realme-gt-neo-5-se-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Realme GT Neo 5 SE Through Google Earth?</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/laureats-des-diaporamas-de-presentation-les-logiciels-gratuit-et-payant-pour-windows-text-in-french/"><u>Lauréats Des Diaporamas De Présentation : Les Logiciels Gratuit Et Payant Pour Windows ([Text in French])</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavis-no-cost-web-service-transforming-dng-photos-into-jpeg-files/"><u>Movavi's No-Cost Web Service: Transforming DNG Photos Into JPEG Files</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/premier-mp4-to-fb-video-transforming-tools/"><u>Premier MP4 to FB Video Transforming Tools</u></a></li>
+<li><a href="https://windows11.techidaily.com/regain-control-from-spontaneous-scrolls-in-winworlds/"><u>Regain Control From Spontaneous Scrolls in Winworlds</u></a></li>
+<li><a href="https://driver-download.techidaily.com/steelseries-driver-software-free-download-and-installation-guide-for-windows-users/"><u>SteelSeries Driver Software - Free Download and Installation Guide for Windows Users</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/upgrade-your-video-collection-seamless-flv-to-m4a-file-conversion-at-no-cost-using-our-web-service/"><u>Upgrade Your Video Collection: Seamless FLV to M4A File Conversion at No Cost Using Our Web Service</u></a></li>
+</ul></div>
 

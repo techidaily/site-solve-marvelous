@@ -1,7 +1,7 @@
 ---
 title: Global Research on Customer Onboarding Processes by ABBYY
-date: 2024-09-21T21:36:18.040Z
-updated: 2024-09-27T16:50:48.367Z
+date: 2024-10-01T11:52:16.775Z
+updated: 2024-10-03T12:00:26.847Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/91640d3f48e05abf1077e677bdbbda7bdefb1b3ddb9865f38230cf758116e95e.jpg
@@ -34,23 +34,30 @@ thumbnail: https://thmb.techidaily.com/91640d3f48e05abf1077e677bdbbda7bdefb1b3dd
 5. 離脱率が減少したとしても、ビジネス上の改善・向上を想定するのではなく、現状維持・変化しないと考える企業が、日本は世界の約3倍
 6. 顧客の離脱による影響として、日本企業の半数以上は新規顧客の獲得に苦しんでいる
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ▼調査目的
 
 [米国連邦取引委員会](https://www.ftc.gov/reports/consumer-sentinel-network-data-book-2021)のレポートによると、個人情報の盗難やなりすまし詐欺などの詐欺行為によって2021年に280万人以上の消費者が59億ドルの損害を受けたという報告があり、これは2020年の被害額よりも70%以上増加しています。個人間でも企業間においても、オンライン取引は世界中で増加している昨今、オンラインでのなりすましや詐欺、個人情報の盗難防止策は喫緊の課題となっています。  
 また、日本においては、2020年4月に犯罪収益移転防止法の改正により、本人確認方法が厳格化され、なりすまし行為などに対する一層の強化が図られている中、デジタル庁の推進により、マイナンバーカードと保険証や銀行口座との紐づけなど、個人情報の保護の観点からも、本人情報確認に関するシステムの一層の強化が課題となっています。  
 これらの外部環境の変化を受け、ABBYYは、顧客のオンボーディングプロセスおよび顧客のプロセス離脱対策としてどの程度テクノロジーを導入しているかを調査することで、日本と世界の企業による顧客のオンボーディングプロセスへの取り組みや意識の差を明らかにしました。
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ▼調査方法
 
 本調査は、英国、米国、フランス、ドイツ、日本のIT意思決定者1,623人（日本：200人）を対象に、2022年9月に実施したオンライン調査です。新規顧客の獲得および顧客の離脱に対して、どの様に企業がテクノロジーを活用しているかを尋ねました。対象者の業界、役割の上位3種は以下の通りです  
 ![](https://static1.abbyy.com/abbyycommedia/36334/2022-11-24_onboarding_survey_jp-table.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### ▼グローバル調査結果トピックスの詳細
 
@@ -59,51 +66,38 @@ thumbnail: https://thmb.techidaily.com/91640d3f48e05abf1077e677bdbbda7bdefb1b3dd
 ![](https://static1.abbyy.com/abbyycommedia/36329/2022-11-24_onboarding_survey_jp-image-1.png?width=800&height=344)
 2. 「顧客のオンボーディングプロセスをどれくらい自動／人手で行っていますか？」という質問に対して、「50%以上は自動化している」と回答した割合が世界平均では82%であり、顧客のオンボーディングプロセスのデジタルシフトが進んでいることが分かります。その反面、日本は49%が「75%以上は人手で行っている」と回答しており、業務のデジタル化が遅れていることが明らかになりました。  
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://static1.abbyy.com/abbyycommedia/36330/2022-11-24_onboarding_survey_jp-image-2.png?width=801&height=335)
 3. 「顧客のオンボーディングプロセスに変更を加えたことがありますか？」という質問に対して、世界平均の96%は何らかのテクノロジーを活用したオンボーディングを行っていますが、日本は67%に留まり、大きく後進していることがわかりました。「当てはまらない」に関しては、日本が27%で世界平均の3%を大きく上回っており、日本の企業は顧客のオンボーディングプロセスを変えていない、つまりより改善する取り組みを行っていない可能性が高いことが明らかになりました。また、全体として少数ではあるものの、完全に人手での対応に変更した企業も8%と世界平均の2倍以上の数字となっており、日本企業はいまだテクノロジーではなく人手に頼る傾向が世界平均より強いといえます。  
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://static1.abbyy.com/abbyycommedia/36331/2022-11-24_onboarding_survey_jp-image-3.png?width=800&height=447)
 4. 「顧客のオンボーディングプロセス中での離脱率は何%ですか？」という質問に対して、「わからない」「該当なし」と回答した企業が世界平均は4%でしたが、日本は26%と顧客の離脱率に対する意識が日本は低い傾向があることがわかりました。  
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://static1.abbyy.com/abbyycommedia/36332/2022-11-24_onboarding_survey_jp-image-4.png?width=800&height=362)
 5. 「もし顧客の離脱率が50%下がった場合」に関する質問で、「何もしない／変化なし」と回答した数が日本企業は世界平均の約3倍でした。各質問での割合は、「収益が何%増加すると思いますか？（世界平均：6%、日本：21%）」「追加のサービスを何%増やしますか？（世界平均：6%、日本：17%）」「顧客開拓が何%増えると思いますか？（世界平均：5%、日本：18%）」「人材の為の対応を何％増やしますか？（世界平均：7%、日本：21%）」であり、現状維持を望む傾向が強いといえます。
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 6. 「昨年、顧客の離脱によりどの様なビジネス上の結果／余波がありましたか？」という質問に対して、「新規顧客獲得に苦しんだ」と回答した企業が世界平均の28%に対して日本では半数を超えており、日本企業が特に悩みを抱えている部分であり、喫緊の課題であることがわかりました。  
 ![](https://static1.abbyy.com/abbyycommedia/36333/2022-11-24_onboarding_survey_jp-image-5.png?width=800&height=375)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### ▼ABBYYグループCEO/取締役 ウルフ・パーソンのコメント
 
@@ -149,22 +143,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-navigating-screen-recording-on-your-hp-laptop-effortlessly/"><u>[New] 2024 Approved Navigating Screen Recording on Your HP Laptop Effortlessly</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-diving-into-deep-an-in-depth-review-of-the-htc-vive/"><u>[Updated] 2024 Approved Diving Into Deep An In-Depth Review of the HTC Vive</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-premiers-choice-5-best-slow-motion-cams/"><u>[Updated] Premier's Choice 5 Best Slow-Motion Cams</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gsmmp4movavi/"><u>在线无需付钱：自动转换GSM视频为MP4，使用Movavi解决方案</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-dialogues-the-turkish-korean-connection/"><u>Cultural Dialogues: The Turkish-Korean Connection</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/downloadable-mkaaac-video-transcoder-tool-by-movavi-no-cost-use-anywhere/"><u>Downloadable MKA/AAC Video Transcoder Tool by Movavi - No Cost, Use Anywhere!</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/easily-repair-your-razer-microphone-issues-a-step-by-step-guide/"><u>Easily Repair Your Razer Microphone Issues: A Step-by-Step Guide</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/from-concept-to-curtain-call-scriptwriting-tips-for-successful-streams/"><u>From Concept to Curtain Call Scriptwriting Tips for Successful Streams</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-vivo-x-fold-2-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Vivo X Fold 2 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726225557529-mp3-movavi/"><u>Mp3ファイルビットレート変更手順 - Movaviで簡単に実行!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/step-by-step-guide-recording-your-screen-with-ease-using-movavi/"><u>Step-by-Step Guide: Recording Your Screen with Ease Using Movavi</u></a></li>
-<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-oneplus-12-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of OnePlus 12 ? Fix It Easily | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/telechargez-et-convertissez-votre-fichier-voc-en-wmv-pour-gratuit-conversion-video-rapide-en-ligne-a-laide-de-movavi/"><u>Téléchargez Et Convertissez Votre Fichier VOC en WMV Pour Gratuit – Conversion Vidéo Rapide en Ligne À L'aide De Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-12-outils-danimation-open-source-en-2024-solutions-de-modelisation-et-animation-3d/"><u>Top 12 Outils D'Animation Open Source en 2024 - Solutions De Modélisation Et Animation 3D</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transform-your-3gp-videos-into-webm-with-ease-using-movavis-cost-free-tool/"><u>Transform Your 3GP Videos Into WebM with Ease Using Movavi’s Cost-Free Tool</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transformez-vos-fichiers-swf-en-avi-sans-frais-grace-au-convertisseur-en-ligne-movavi-solution-optimisee-seo/"><u>Transformez Vos Fichiers SWF en AVI Sans Frais Grâce Au Convertisseur en Ligne Movavi - Solution Optimisée SEO</u></a></li>
-<li><a href="https://fox-that.techidaily.com/understanding-the-iphone-14-key-points-on-battery-performance-and-troubleshooting/"><u>Understanding the iPhone 14: Key Points on Battery Performance and Troubleshooting</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-perfected-methods-for-capturing-live-hulu-on-different-devices-for-2024/"><u>[Updated] Perfected Methods for Capturing Live Hulu on Different Devices for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-personalization-through-cookiebot-driven-engagement-tools/"><u>Enhanced Personalization Through Cookiebot-Driven Engagement Tools</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-personalization-with-dynamic-cookiebot-technology/"><u>Enhanced Personalization with Dynamic Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-tracking-with-cookiebot-technology/"><u>Enhanced Tracking with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-traffic-with-cookiebot-technology-boost-your-sites-performance/"><u>Enhanced Traffic with Cookiebot Technology: Boost Your Site's Performance</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-c67-4g-bootloader-easily-by-drfone-android/"><u>How to Unlock Realme C67 4G Bootloader Easily</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-innovative-ways-to-capture-authenticity-in-customer-reviews/"><u>In 2024, Innovative Ways to Capture Authenticity in Customer Reviews</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/safely-erase-sensitive-data-with-ios-wiping-software/"><u>Safely Erase Sensitive Data with iOS Wiping Software</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/score-big-savings-acers-stunning-34-inch-curved-monitor-goes-down-to-200-at-newegg/"><u>Score Big Savings: Acer's Stunning 34-Inch Curved Monitor Goes Down to $200 at Newegg!</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-10-international-movies-boosting-language-learning/"><u>Top 10 International Movies Boosting Language Learning</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-8-tips-to-boost-iphone-wireless-network-speed/"><u>Top 8 Tips to Boost iPhone Wireless Network Speed</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/visual-storytelling-with-immersive-titles-in-ae/"><u>Visual Storytelling with Immersive Titles in AE</u></a></li>
 </ul></div>
 

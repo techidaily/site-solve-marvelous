@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Workforce Insights: Unearthing the Unique Passions that Fuel Our Dynamic Skill Set"
-date: 2024-09-24T00:34:36.090Z
-updated: 2024-09-28T08:03:25.432Z
+date: 2024-09-30T10:09:05.583Z
+updated: 2024-10-02T19:34:34.992Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5b41f1296863a8cc22d3a2c3dbb979d19c4362b2b1c96fbfb8d71b7193c17bd8.jpg
@@ -17,6 +17,13 @@ The Unique Passions of ABBYY's Versatile Team
 August 9, 2024
 
 In this edition of our "Beyond the Job Title" interview series, we sat down with our colleagues Liza, Dmitry, Tetiana, and Sergey to delve into their fascinating hobbies and interests outside of their professional roles at ABBYY. These activities not only showcase their diverse talents but also highlight how their passions contribute to their personal growth and professional success. Read on to find out more: 
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Elizaveta (Liza) Lagireva, Talent Acquisition Partner, Serbia 
 
@@ -41,15 +48,22 @@ Liza finds solace in blitz games during breaks, describing them as a mental rech
 "Chess hones my strategic thinking, patience, and problem-solving skills. It helps me stay focused and approach complex challenges with a clear and calm mindset, which is invaluable as a Talent Acquisition Partner at ABBYY," she told us.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Dmitry Golivets, Head of Application Software, Hungary 
 
 ![abbyy-greta-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-unique-passions-of-abbyy/dmitry_golivets.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Dmitry Golivets’ passion for Historical Medieval Battles (Buhurt) stems from his lifelong fascination with medieval history and combat sports. He sees this unique hobby as a physical and mental challenge that complements his professional responsibilities. 
 
@@ -65,23 +79,9 @@ Dmitry navigates the challenges of balancing his rigorous training schedule with
 
 Dmitry emphasized teamwork and resilience as key takeaways from Buhurt, essential for collaborative success and personal growth at ABBYY. "Medieval combat is the ultimate metaphor for teamwork. You must do your absolute best every single round or your teammates are going to feel the consequences of your failure on their skin, literally. Another aspect is the concept of going the extra mile. The first thing you realize when you put that armor on is that you are fighting against your own brain telling you to quit—the weight, the discomfort of movement, the lack of oxygen inside a helmet. And on top of that comes your opponent trying to take you down. Nobody gets to the finish line without falling. Picking yourself up and taking every fall as an opportunity to work on your mistakes is another great lesson of this sport." 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Tetiana Riznyk, Payroll and Benefits Administrator, Ukraine 
 
 ![tetiana-ryznik-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-unique-passions-of-abbyy/tetiana_riznyk.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 For Tetiana Riznyk, pysanka (Ukrainian Easter eggs painting) is more than a creative outlet; it’s a cultural tradition that connects her deeply to her heritage and brings joy through artistic expression. 
 
@@ -105,6 +105,13 @@ This meditative practice not only enhances her artistic skills but also fosters 
 
 ![sergey-abbyy-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-unique-passions-of-abbyy/sergey_kaginyan.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Sergey Kaginyan’s passion for motorcycles is more than just a hobby; it’s a way of life that fuels his personal and professional growth. 
 
 ##### What made you choose motorcycles, and how did you come across this activity? 
@@ -126,13 +133,6 @@ Sergey believes that the discipline and routine instilled by riding motorcycles 
 The stories of Elizaveta, Dmitry, Tetiana, and Sergey remind us of the power of personal interests to complement and enhance professional endeavors, fostering creativity, resilience, and a well-rounded approach to achieving success. 
 
 ![common-abbyy-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-unique-passions-of-abbyy/image-2024-08-09-12-07-35-919.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 These unique hobbies not only provide moments of relaxation and rejuvenation but also equip our team members with valuable skills such as strategic thinking, teamwork, and creativity, which are essential in driving innovation and excellence in everything we do. 
 
@@ -198,16 +198,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-how-to-trim-youtube-videos-in-2024/"><u>[Updated] How to Trim YouTube Videos, In 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mpegmjpeg-movavi/"><u>簡單移行：在不付錢的情況下改變MPEG成MJPEG - 以Movavi為主要功能</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1724313688388-cookiebot-driven-marketing-automation-solutions/"><u>Cookiebot-Driven Marketing Automation Solutions</u></a></li>
-<li><a href="https://common-error.techidaily.com/effective-solutions-for-when-your-computer-struggles-with-memory-in-windows-11/"><u>Effective Solutions for When Your Computer Struggles with Memory in Windows 11</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratuit-gebaseerd-converter-speelfriest-ogg-bestanden-in-animated-gif/"><u>Gratuit Gebaseerd Converter: Speelfriest Ogg-Bestanden in Animated Gif</u></a></li>
-<li><a href="https://driver-error.techidaily.com/gtx-950-windows-10-code-43/"><u>GTX 950에서 속도 문제를 알아보기: 웹사이트를 위한 Windows 10의 Code 43 해결방법</u></a></li>
-<li><a href="https://fox-access.techidaily.com/immersive-escapades-top-5-playstation-vr-titles-to-excite-gamers/"><u>Immersive Escapades Top 5 PlayStation VR Titles to Excite Gamers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-pro-rated-income-status-for-content-makers/"><u>In 2024, Pro-Rated Income Status for Content Makers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/instagram-filters-in-a-nutshell-get-them-right-this-year-for-2024/"><u>Instagram Filters in a Nutshell Get Them Right This Year for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-raw-to-jpg-transformation-for-free-with-movavi-photo-editor/"><u>Online RAW-to-JPG Transformation for Free with Movavi Photo Editor</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-vivo-y27-5g-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Vivo Y27 5G Location | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-a-tweet-a-day-your-2023-video-journey-begins-here-for-2024/"><u>[Updated] A Tweet a Day - Your 2023 Video Journey Begins Here for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-step-by-step-process-to-preserve-instagrams-ephemeral-content/"><u>[Updated] Step-by-Step Process to Preserve Instagram's Ephemeral Content</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/can-an-improved-keyboard-increase-how-fast-you-type/"><u>Can an Improved Keyboard Increase How Fast You Type?</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-tailored-web-experiences/"><u>Leveraging Cookiebot Technology for Tailored Web Experiences</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-innovative-analytics-solutions-for-optimized-engagement/"><u>Leveraging Innovative Analytics Solutions for Optimized Engagement</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/masterclass-in-crafting-high-performance-digital-pages-for-maximum-seo-impact/"><u>Masterclass in Crafting High-Performance Digital Pages for Maximum SEO Impact</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/momentframe-connectx-review-quality-above-budget/"><u>MomentFrame ConnectX Review: Quality Above Budget</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/navigating-the-essentials-of-kyc-regulations-in-depth-strategies-for-successful-implementation/"><u>Navigating the Essentials of KYC Regulations: In-Depth Strategies for Successful Implementation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/neuer-methodik-von-abbyy-fur-die-prazise-einordnung-von-schriftstucken/"><u>Neuer Methodik Von ABBYY Für Die Präzise Einordnung Von Schriftstücken</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimisation-et-traitement-efficace-des-documents-grace-a-la-solution-abbyy-enterprise-capture-par-les-systemes-arvato/"><u>Optimisation Et Traitement Efficace Des Documents Grâce À La Solution ABBYY Enterprise Capture Par Les Systèmes Arvato</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-sticky-menu-issues-in-windows-11/"><u>Overcoming Sticky Menu Issues in Windows 11</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/rapid-digital-transformation-strategies-for-the-artificial-intelligence-sector-ebook-by-abbyy/"><u>Rapid Digital Transformation Strategies for the Artificial Intelligence Sector – eBook by ABBYY</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/sound-signatures-curating-the-best-music-for-podcast-introductions/"><u>Sound Signatures Curating the Best Music for Podcast Introductions</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-12-zero-cost-disk-defragmenters-reviewed-july-2024-edition/"><u>Top 12 Zero-Cost Disk Defragmenters Reviewed - July 2024 Edition</u></a></li>
+<li><a href="https://fox-that.techidaily.com/uninterrupted-communication-even-in-silence-modes-a-guide-to-enable-textscalls-during-do-not-disturb-on-iphones/"><u>Uninterrupted Communication Even in Silence Modes: A Guide to Enable Texts/Calls During Do Not Disturb on iPhones</u></a></li>
 </ul></div>
 

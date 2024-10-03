@@ -1,7 +1,7 @@
 ---
 title: ABBYY Clinches Top Position in Gartner's 2023 Magic Quadrant for Advanced Process Mining Solutions
-date: 2024-09-24T16:14:26.108Z
-updated: 2024-09-27T19:47:53.809Z
+date: 2024-09-30T17:00:42.816Z
+updated: 2024-10-03T04:34:02.153Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/648356b382a636832a6e99201a4517a582a77b906dab7a37be3d640b5bfda50d.jpg
@@ -43,10 +43,10 @@ _1 Gartner® Magic Quadrant™ for Process Mining Tools, March 20, 2023, ID G007
 _2 Gartner, [Forecast Analysis: Process Mining, Worldwide](https://www.gartner.com/en/documents/4007520), Oct. 26, 2021_
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -60,10 +60,10 @@ ABBYY is a US-based global company with offices in 14 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -71,10 +71,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -100,16 +100,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/avigate-youtube-gaming-success-with-right-tags-for-2024/"><u>[New] Navigate YouTube Gaming Success with Right Tags for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-dominates-the-2024-evalgroups-peak-matrix-benchmark/"><u>ABBYY Dominates the 2024 EvalGroup's PEAK Matrix Benchmark</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-japan-sb/"><u>ABBYY Japan ソフトウェア投入に合わせて SBモバイルサービスが新規事業を展開 - プレスリリース</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/achieve-better-engagement-with-websites-optimized-using-the-cookiebot-platform/"><u>Achieve Better Engagement with Websites Optimized Using the Cookiebot Platform</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/advanced-rag-techniques-enhancing-document-capture-with-abbyy-solutions/"><u>Advanced RAG Techniques: Enhancing Document Capture with ABBYY Solutions</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-poco-f5-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Poco F5 5G to New Phone | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Honor 90? | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-powerful-path-to-flawless-photo-edits-mastering-background-eraser-use/"><u>The Powerful Path to Flawless Photo Edits Mastering Background Eraser Use</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/top-9-web-based-microphone-recording-tools-of-23/"><u>Top 9 Web-Based Microphone Recording Tools of '23</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshooting-iphone-display-lag-quick-solutions-to-speed-up-shutdown/"><u>Troubleshooting iPhone Display Lag: Quick Solutions to Speed Up Shutdown</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-itel-a70-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-brisk-blueprints-for-scribing-presentations-for-2024/"><u>[New] Brisk Blueprints for Scribing Presentations for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-channel-conclusion-mastery-customized-screens-in-focus/"><u>[New] Channel Conclusion Mastery Customized Screens in Focus</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aximizing-profits-the-ultimate-guide-to-youtube-revenue-for-2024/"><u>[New] Maximizing Profits The Ultimate Guide to YouTube Revenue for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-depth-look-screen-capture-tools-for-mac-for-2024/"><u>[Updated] In-Depth Look Screen Capture Tools for Mac for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-deciphering-complete-fbm-call-transcripts-guide/"><u>2024 Approved Deciphering Complete FBM Call Transcripts Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/are-m1-laptops-setting-the-standard-in-editing-studios-in-2024/"><u>Are M1 Laptops Setting the Standard in Editing Studios, In 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cambia-facilmente-tu-archivo-pbm-a-formato-png-sin-costo-utilizando-el-conversor-web-de-movavi/"><u>Cambia Fácilmente Tu Archivo PBM a Formato PNG Sin Costo Utilizando El Conversor Web De Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-desfondar-fotografias-gratuitamente-usando-software-virtual/"><u>Cómo Desfondar Fotografías Gratuitamente Usando Software Virtual</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/download-movavis-xrecorder-now-premium-free-pc-recording-tool-with-advanced-features/"><u>Download Movavi's XRecorder Now: Premium, FREE PC Recording Tool with Advanced Features</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gratuitamente-converte-i-file-nsv-a-formato-wmv-con-movavi-fai-trasformare-le-tue-video/"><u>Gratuitamente Converte I File NSV a Formato WMV Con Movavi - Fai Trasformare Le Tue Video</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on OnePlus 12R? | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/kostenloze-online-mpg-conversie-naar-wav-professioneel-door-movavi/"><u>Kostenloze Online Mpg-Conversie Naar Wav - Professioneel Door Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/los-15-mejores-videoplayer-para-ver-mp4-sin-costo-en-pcs-con-windows-10-y-computadoras-mac-gratis/"><u>Los 15 Mejores Videoplayer Para Ver MP4 Sin Costo en PCs Con Windows 10 Y Computadoras Mac - Gratis</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726224729910-movavi/"><u>Movaviでシームレスな画像バックグラウンド作成ガイド</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/sviluppatore-audio-avanzato-software-editoriale-music-per-modifiche-sonore-soluzioni-movavi/"><u>Sviluppatore Audio Avanzato: Software Editoriale Music per Modifiche Sonore - Soluzioni Movavi</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ultimate-guide-to-editbox-suite-reviewed/"><u>Ultimate Guide to EditBox Suite, Reviewed</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Nokia C12 Pro | Dr.fone</u></a></li>
 </ul></div>
 

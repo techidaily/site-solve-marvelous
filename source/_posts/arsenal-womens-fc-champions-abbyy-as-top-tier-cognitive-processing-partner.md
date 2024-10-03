@@ -1,7 +1,7 @@
 ---
 title: Arsenal Womens FC Champions ABBYY as Top-Tier Cognitive Processing Partner
-date: 2024-09-11T18:55:27.767Z
-updated: 2024-09-14T18:31:09.566Z
+date: 2024-10-02T03:38:12.846Z
+updated: 2024-10-03T11:56:18.661Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0b17306a3ff43a3354c035a000988ea5867c75fb650ef14b9ada7d7d6b9ca442.jpg
@@ -29,6 +29,13 @@ The partnership between ABBYY and Arsenal Women holds significant promise for bo
 
 ![Juliet Slot and Ulf Persson](https://static1.abbyy.com/abbyycommedia/37795/ulf-x-juliet_654x700.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Ulf Persson, CEO of ABBYY (left) and Juliet Slot, Arsenal’s Chief Commercial Officer (right) announce ABBYY as the Official Intelligent Automation Partner of Arsenal Women F.C._
 
 At the heart of this partnership lies a shared commitment to innovation. ABBYY's mission is to transform data from any source into intelligent, actionable insights. Our hyper-focus on research and development (R&D) is evident in the proprietary technologies ABBYY has been developing for decades, and industry analysts including IDC and ISG Provider Lens have recognized ABBYY as a leader for delivering solutions that stand out from the crowd.
@@ -38,6 +45,13 @@ Similarly, Arsenal Women have redefined football with their innovative team-orie
 The ABBYY and Arsenal Women partnership is more than a strategic alliance; it's a connection built on shared values. Both organizations value progress, teamwork, and uphold a standard of excellence. This common ground has solidified the cultural fit between the two, enabling a strong foundation for collaboration.
 
 ![Arsenal Womens F.C.](https://static1.abbyy.com/abbyycommedia/37791/arsenal-womens_848x618.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 As we look ahead to this exciting partnership, the potential for positive change is immense. The ABBYY and Arsenal Women partnership is a platform to reach a rapidly growing women’s football fan base – according to the Financial Times two billion viewers tuned in to the FIFA Women’s World Cup 2023 - with messages of innovation, leadership, and empowerment. With a near four-fold increase in viewing hours of the Barclays FA Women’s Super League in 2021 and 2022, as well as two-thirds of football enthusiasts showing more interest in UK women’s football following the Euros, the potential for meaningful investment in the sport is undeniable.
 
@@ -51,18 +65,18 @@ Investment in women’s sports leagues, teams, and athletes — from organizatio
 
 The partnership with ABBYY and Arsenal Women highlights our commitment to supporting gender equity and equality, diversity, and inclusion – a powerful mission rooted in ABBYY’s history. ABBYY has been supporting female athletes for years through our sponsorship of PFU BlueCats volleyball team in Japan. Challenging the gender gap in the tech industry, we are proud of our above-industry-average representation of women in the workplace. Women at ABBYY represent over 35 percent of our workforce (compared to the tech industry average of 28 percent), and more than a third of our team leaders.![Arsenal Womens](https://www.abbyy.com/-/jssmedia/project/Abbyy/Abbyy/Insights/Blog/let-get-real-abbyy-x-arsenal-women/Arsenal-Women-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **From the solutions we provide to how we lead our organization, ABBYY believes that everything we do should reflect positively on the world; now we are partnering with Arsenal Women to bring positive change both in the local communities and on a global level.** Not only do companies leading in diversity and inclusion initiatives see higher employee retention, productivity, and profitability, but diversity also fosters better ideas and increased innovation. As ABBYY and Arsenal Women join forces, the stage is set for an exciting journey that will undoubtedly leave a mark on both industries, inspiring individual, and organizations alike to aim higher and achieve more.
 
 Be a game changer with [ABBYY and Arsenal Women](https://tools.techidaily.com/abbyy/products/). To speak to an ABBYY representative, [contact us](https://tools.techidaily.com/abbyy/products/).
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Be a Game Changer with ABBYY
 
@@ -75,16 +89,10 @@ To get guidance on intelligent automation and learn more about how ABBYY can hel
 ![Catherine Johnson](https://www.abbyy.com/-/jssmedia/project/Abbyy/Abbyy/Insights/Blog/Autors-Headshots/catherinejohnson-99x99.png)
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Catherine Johnson
@@ -154,5 +162,21 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-pro-video-essentials-selecting-superior-camera-lenses/"><u>[New] In 2024, Pro Video Essentials Selecting Superior Camera Lenses</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-essential-guide-to-youtube-trailer-editing-with-filmora/"><u>[New] The Essential Guide to YouTube Trailer Editing with Filmora</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-unlocking-screen-capture-mastery-in-windows-os-for-2024/"><u>[New] Unlocking Screen Capture Mastery in Windows OS for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-integrating-obs-recording-capabilities-into-zoom-sessions/"><u>[Updated] 2024 Approved Integrating OBS Recording Capabilities Into Zoom Sessions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-effortless-image-editing-picart-background-removal/"><u>[Updated] Effortless Image Editing PicArt Background Removal</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726226880430-wav-m4a-movavi/"><u>線上無償 WAV 到 M4A 轉換服務：Movavi 音頻編碼工具</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/downloadable-mkaaac-video-transcoder-tool-by-movavi-no-cost-use-anywhere/"><u>Downloadable MKA/AAC Video Transcoder Tool by Movavi - No Cost, Use Anywhere!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guia-para-convertir-archivos-de-audio-wav-a-mp3-sin-costo-alguno-mediante-movavi/"><u>Guía Para Convertir Archivos De Audio WAV a MP3 Sin Costo Alguno Mediante Movavi</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mastering-the-craft-of-creating-captivating-podcast-titles/"><u>Mastering the Craft of Creating Captivating Podcast Titles</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726225557529-mp3-movavi/"><u>Mp3ファイルビットレート変更手順 - Movaviで簡単に実行!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/next-big-thing-10-games-that-inspire-gta-v-for-2024/"><u>Next Big Thing 10 Games That Inspire GTA V for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-platforms-promising-engaging-seniors/"><u>Prime Platforms Promising Engaging Seniors</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/telechargez-et-convertissez-votre-fichier-voc-en-wmv-pour-gratuit-conversion-video-rapide-en-ligne-a-laide-de-movavi/"><u>Téléchargez Et Convertissez Votre Fichier VOC en WMV Pour Gratuit – Conversion Vidéo Rapide en Ligne À L'aide De Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformez-vos-fichiers-swf-en-avi-sans-frais-grace-au-convertisseur-en-ligne-movavi-solution-optimisee-seo/"><u>Transformez Vos Fichiers SWF en AVI Sans Frais Grâce Au Convertisseur en Ligne Movavi - Solution Optimisée SEO</u></a></li>
+</ul></div>
 

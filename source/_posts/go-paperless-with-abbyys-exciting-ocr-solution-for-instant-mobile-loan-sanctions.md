@@ -1,7 +1,7 @@
 ---
 title: Go Paperless with ABBYY's Exciting OCR Solution for Instant Mobile Loan Sanctions!
-date: 2024-09-21T04:13:48.261Z
-updated: 2024-09-28T02:53:47.176Z
+date: 2024-09-27T19:32:41.880Z
+updated: 2024-10-02T21:43:33.491Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/197c2ed369e4a9919f13d946f77f5157856e3dbfa0838cef669c3e3be16ac8df.jpg
@@ -20,10 +20,10 @@ Financial Services | Mobile Capture
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ABBYY Mobile OCR Engine\* makes on-the-go loan approval a blast
@@ -32,15 +32,22 @@ Financial Services | Mobile Capture
 
 ![](https://static1.abbyy.com/abbyycommedia/15028/dbs-pic1.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![DBS Bank](https://static2.abbyy.com/abbyycommedia/15033/dbs-logo-small.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name         | DBS Bank                          |
@@ -97,6 +104,13 @@ On-the-go loan application based on ABBYY Mobile OCR Engine\* simplifies and enh
 
 [![Mobile Capture SDK](https://static4.abbyy.com/abbyycommedia/21986/12-mobile-capture-sdk.jpg)](https://tools.techidaily.com/abbyy/products/) [Mobile Capture SDK](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Banking and Finance](https://static4.abbyy.com/abbyycommedia/14358/8-banking-and-finance.jpg)](https://tools.techidaily.com/abbyy/products/) [Banking and Finance](https://tools.techidaily.com/abbyy/products/) 
@@ -105,13 +119,6 @@ On-the-go loan application based on ABBYY Mobile OCR Engine\* simplifies and enh
 
 [![PDF Version](https://static2.abbyy.com/abbyycommedia/15029/dbs-pic2.jpg)](https://static4.abbyy.com/abbyycommedia/15027/case-study-dbs-bank-en.pdf "PDF version") [PDF version](https://static4.abbyy.com/abbyycommedia/15027/case-study-dbs-bank-en.pdf "PDF version") 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [read more](https://static4.abbyy.com/abbyycommedia/15027/case-study-dbs-bank-en.pdf "PDF version") 
 
 \*ABBYY no longer offers Mobile OCR Engine. It has been replaced by ABBYY Mobile Capture, which provides you with a more flexible and robust capture solution for your mobile applications. [Click here](https://tools.techidaily.com/abbyy/products/) to learn more about Mobile Capture. 
@@ -119,13 +126,6 @@ On-the-go loan application based on ABBYY Mobile OCR Engine\* simplifies and enh
 ###### Like, share or repost
 
 Share  True ?  : "" 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -148,22 +148,22 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-becoming-a-pro-at-using-a-tripod-for-clear-high-quality-vlogs/"><u>[Updated] 2024 Approved Becoming a Pro at Using a Tripod for Clear, High-Quality Vlogs</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-discovering-the-ultimate-14-stardew-valley-upgrades/"><u>[Updated] Discovering the Ultimate 14 Stardew Valley Upgrades</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/m1vavi-movavi/"><u>網路上無需支付: M1V到AVI格式自動轉換 - 使用Movavi工具</u></a></li>
-<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-vivo-x-fold-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Vivo X Fold 2? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-convertir-archivos-flv-en-formato-swf-online-sin-coste/"><u>Cómo Convertir Archivos FLV en Formato SWF Online Sin Coste</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-convertir-rapidamente-tu-video-swf-al-formato-mov-sin-costo-con-movavi/"><u>Cómo Convertir Rápidamente Tu Vídeo SWF Al Formato MOV Sin Costo Con Movavi</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/comparative-study-top-software-for-webcam-recording-for-2024/"><u>Comparative Study Top Software for Webcam Recording for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722968379860-effortless-setup-for-pioneer-djs-ddj-sx2-controller-get-the-driver-now/"><u>Effortless Setup for Pioneer DJ's DDJ-SX2 Controller - Get the Driver Now!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratis-wmv-videos-in-ogg-format-converteren-online-movavi/"><u>Gratis WMV-Video's in Ogg Format Converteren Online - Movavi</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-factory-reset-iphone-6s-plus-and-ipad-without-apple-id-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Factory Reset iPhone 6s Plus and iPad Without Apple ID | Stellar</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-fix-webview-issues-for-fb-videos-in-chrome/"><u>In 2024, Fix WebView Issues for FB Videos in Chrome</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/movavi-convert-apes-to-aiff-online-free-converter-easy-audio-format-transformation/"><u>Movavi Convert APES to AIFF Online Free Converter - Easy Audio Format Transformation</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/opgeluchtende-loodsen-omzettingen-ogg-naar-mp4v-vrij-en-tafeleigend-via-movavi/"><u>Opgeluchtende Loodsen Omzettingen Ogg Naar Mp4v - Vrij en Tafeleigend via Movavi</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/premium-dj-visuals-library-seamless-download-experience/"><u>Premium DJ Visuals Library - Seamless Download Experience</u></a></li>
-<li><a href="https://techidaily.com/three-solutions-to-hard-reset-xiaomi-redmi-12-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Xiaomi Redmi 12? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/trasforma-immagini-tiff-in-jpg-di-fronte-a-computer-gratuitamente-utilizzando-movavi/"><u>Trasforma Immagini TIFF in JPG Di Fronte a Computer Gratuitamente Utilizzando Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/m2ts-movavi/"><u>オンラインでストリーミング再生可能なM2TSファイルへの自由許諾 - Movavi無料変換</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-gain-recovery-of-personal-snapshots/"><u>[Updated] Gain Recovery of Personal Snapshots</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1-iphone-xs-and-x-comparative-review-with-enhanced-scanning-features-on-the-abbeyy-blog/"><u>1. IPhone Xs & X: Comparative Review with Enhanced Scanning Features on the ABBEYY Blog</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-journey-through-lut-based-color-enhancement-methods/"><u>2024 Approved Journey Through LUT-Based Color Enhancement Methods</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-comprehensive-list-of-prime-tablets-for-photo-editing-lovers-for-2024/"><u>A Comprehensive List of Prime Tablets for Photo Editing Lovers for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-innovates-unveils-state-of-the-art-indian-randd-hub/"><u>ABBYY Innovates: Unveils State-of-the-Art Indian R&D Hub</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-realise-sustains-double-digit-growth-streak-for-third-consecutive-year/"><u>ABBYY Réalise Sustains Double-Digit Growth Streak for Third Consecutive Year</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-und-xerox-formen-eine-strategische-partnerschaft-erste-lizenzierungsvereinbarung-geschlossen/"><u>ABBYY Und Xerox Formen Eine Strategische Partnerschaft - Erste Lizenzierungsvereinbarung Geschlossen!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyys-senior-vice-president-joins-elite-aiim-fellowship/"><u>ABBYY's Senior Vice President Joins Elite AIIM Fellowship</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abtyy-zeichnet-dritte-reihe-von-jahren-mit-zweiseitiger-umsatzsteigerung-auf/"><u>ABTYY Zeichnet Dritte Reihe Von Jahren Mit Zweiseitiger Umsatzsteigerung Auf</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/assessing-chatgpts-bar-based-cocktail-skills/"><u>Assessing ChatGPT's Bar-Based Cocktail Skills</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-oneplus-12-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on OnePlus 12 Devices</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-megasecond-analysis-understanding-20mb-video-time/"><u>In 2024, MegaSecond Analysis Understanding 20Mb Video Time</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/installing-and-updating-your-hp-n840-g3-printers-drivers-a-complete-walkthrough/"><u>Installing and Updating Your HP N840 G3 Printer's Drivers: A Complete Walkthrough</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-ultimate-guide-to-removing-backdrops-a-comprehensive-approach-for-2024/"><u>The Ultimate Guide to Removing Backdrops A Comprehensive Approach for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlocking-features-of-finescanner-in-ios-12-expert-insights-from-the-abbyy-community/"><u>Unlocking Features of FineScanner in iOS 12 - Expert Insights From the ABBYY Community</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-windows-10-webcam-recording-top-10-software-options/"><u>Updated 2024 Approved Windows 10 Webcam Recording Top 10 Software Options</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/utilizing-cookiebot-technology-for-improved-online-engagement-analysis/"><u>Utilizing Cookiebot Technology for Improved Online Engagement Analysis</u></a></li>
 </ul></div>
 

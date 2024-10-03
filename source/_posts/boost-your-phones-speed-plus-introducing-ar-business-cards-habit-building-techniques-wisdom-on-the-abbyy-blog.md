@@ -1,7 +1,7 @@
 ---
 title: "Boost Your Phone's Speed + Introducing AR Business Cards: Habit Building Techniques | Wisdom on the ABBYY Blog"
-date: 2024-09-26T23:46:35.399Z
-updated: 2024-09-28T09:06:14.039Z
+date: 2024-09-26T18:04:04.915Z
+updated: 2024-10-03T10:42:51.512Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571566316abe24ad6c80cbdaa7.jpeg
@@ -41,6 +41,13 @@ The device is still slow? Try **cleaning up cache in Safari**. The browser store
 
 Would you care to make it even faster? Well, there’s only one option left then. The method of last resort here is to **restore a backup** that was made in the past—back when your device worked perfectly fast. If you do not remember how to restore the back up, consult with [one of our previous issues](https://tools.techidaily.com/abbyy/products/). If you are disinclined to read the whole article, here’s how you do it in brief: connect your iPhone to your laptop, launch iTunes, select the copy that you wish to restore, and install it back on your device.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Android Tip: Speeding up Your Android Device**
 
 Much to our regret, performance of Android devices also declines with time. It inevitably happens with all intelligent top-notch phones. But don’t be sad, we discovered a couple of effective tips to speed up your smartphone. Read on.
@@ -49,19 +56,6 @@ For openers, check whether your phone runs the **latest operating system**. User
 
 ![Android Speed up Android Device](https://static1.abbyy.com/abbyycommedia/26277/whatsapp-image-2018-05-28-at-162014-576x1024.jpeg)
 
-<!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If your software is fine, try **transferring data from** **your phone to an SD card**. To do this, open **Settings** \> **Memory** and migrate all your apps and media files to an external memory device. You can also try clearing app cache — this might also speed up your phone a tad.
 
 Constant **synchronization with services, background app refresh** — all of this affects both your battery life and system performance. If you want to get rid of this annoyance, simply jump to **Settings** \> **Accounts** and disable unnecessary features.
@@ -69,10 +63,10 @@ Constant **synchronization with services, background app refresh** — all of th
 And the last thing that slows your phone down is **unused apps**. Most apps feature services that are launched together with the phone and access its memory. If you believe your phone has more important tasks to accomplish, close them down. Go to **Settings** \> **Apps** \> **Active** services and disable the services that steal from your phone’s memory. But be careful! You must keep system utilities running, otherwise your phone may stop working.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **ABBYY Tip: Creating Business Cards out of Thin Air**
@@ -93,10 +87,10 @@ Do you promise yourself to start a new life on Monday but never actually do? Try
 ![App Loop habit tracker control time](https://static1.abbyy.com/abbyycommedia/26278/prilozhenie-nedeli.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In addition to a convenient list of habits themselves, the app helps to calculate the “power” of your habits. Each repetition results in the stronger power and if you miss a day the power gets weaker. And a nice feature is that you can add a notification to each habit, so you don’t miss a day. The app enables you to mark as completed, skip or snooze the repetition of the action to consolidate the habit right from the notification.
@@ -110,10 +104,16 @@ P.S. The previous issue is available [here](https://tools.techidaily.com/abbyy/p
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -179,24 +179,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-step-into-cinematic-world-shooting-dynamic-timelapses-on-gopro-hero5-black/"><u>[New] Step Into Cinematic World Shooting Dynamic Timelapses on GoPro Hero5 Black</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-cultivating-a-thriving-business-model-with-snapchat-insights/"><u>[Updated] Cultivating a Thriving Business Model with Snapchat Insights</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-why-does-your-facebook-message-feature-a-blue-emoji-uncovering-its-relevance/"><u>[Updated] In 2024, Why Does Your FaceBook Message Feature a Blue Emoji? Uncovering Its Relevance</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-thrifty-audio-tools-youtubers-economical-options/"><u>[Updated] Thrifty Audio Tools Youtubers’ Economical Options</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhancing-robotic-cognition-through-advanced-content-analysis-explore-the-insights-on-abbyys-official-site/"><u>Enhancing Robotic Cognition Through Advanced Content Analysis - Explore the Insights on ABBYY's Official Site</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhancing-user-experience-with-cookiebots-customized-marketing-tools/"><u>Enhancing User Experience with Cookiebot's Customized Marketing Tools</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/exclusive-black-friday-offer-on-macxdvd-gaming-shopping-and-prize-contests-await-you/"><u>Exclusive Black Friday Offer on MacXDVD: Gaming, Shopping & Prize Contests Await You!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/experience-customized-content-delivery-the-power-of-the-latest-cookiebot-solutions/"><u>Experience Customized Content Delivery: The Power of the Latest Cookiebot Solutions</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/guide-purchasing-digital-ebooks-via-apples-books-app-on-your-ios-device/"><u>Guide: Purchasing Digital eBooks via Apple's Books App on Your iOS Device</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harness-the-power-of-cookiebot-for-advanced-seo-optimization/"><u>Harness the Power of Cookiebot for Advanced SEO Optimization</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harnessing-cloud-power-for-advanced-document-recognition-a-deep-dive-into-ocr-sdk-scalability-on-the-abbyy-blog/"><u>Harnessing Cloud Power for Advanced Document Recognition: A Deep Dive Into OCR SDK Scalability on the ABBYY Blog</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-audience-targeting/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and Audience Targeting</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harnessing-the-power-of-cookiebot-technology-for-effective-web-analytics-and-seo-strategies/"><u>Harnessing the Power of Cookiebot Technology for Effective Web Analytics and SEO Strategies</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-itunes-recording-hacks-for-enhanced-videos/"><u>In 2024, ITunes Recording Hacks for Enhanced Videos</u></a></li>
-<li><a href="https://video-capture.techidaily.com/instant-screen-capture-pro-chrome/"><u>Instant Screen Capture Pro (Chrome)</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/maximize-your-online-visibility-with-cookiebots-seo-solutions/"><u>Maximize Your Online Visibility with Cookiebot's SEO Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/navigating-the-next-decade-in-banking-and-protection-policies/"><u>Navigating the Next Decade in Banking and Protection Policies</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/phone-number-not-available-heres-how-you-can-still-join-chatgpt-telegram-and-whatsapp-communities/"><u>Phone Number Not Available? Here's How You Can Still Join ChatGPT, Telegram & WhatsApp Communities</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-top-tiktok-watermark-erasers-remove-logos-in-seconds-for-2024/"><u>Updated Top TikTok Watermark Erasers Remove Logos in Seconds for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-mp3-essentials-guide-10-online-converters-reviewed/"><u>[Updated] The MP3 Essentials Guide #10 Online Converters Reviewed</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-conversion-rates-discover-the-power-of-cookiebot-analytics/"><u>Enhance Conversion Rates: Discover the Power of Cookiebot Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-web-traffic-insights-with-advanced-cookiebot-solutions/"><u>Enhance Web Traffic Insights with Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-your-sites-analytics-using-the-advanced-cookiebot-system/"><u>Enhance Your Site's Analytics Using the Advanced Cookiebot System</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-conversion-rates-with-our-cutting-edge-cookiebot-technology/"><u>Enhanced Conversion Rates with Our Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-infinix-smart-8-hd-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Infinix Smart 8 HD | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-passcode-screen-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 Passcode Screen?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/optimizing-your-fb-live-on-zoom-stream/"><u>Optimizing Your FB Live on Zoom Stream</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolving-playstation-portable-game-stability-mastering-samurai-warriors-5-on-pc/"><u>Resolving PlayStation Portable Game Stability: Mastering Samurai Warriors #5 on PC</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/top-12-gratis-dvd-extraktoren-fur-mac-im-jahr-2-cu2023-vollversionen-finden/"><u>Top 12 Gratis DVD-Extraktoren Für Mac Im Jahr 2 Cu2023 - Vollversionen Finden</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-zero-cost-wonder-top-5-free-wmv-video-editors-for-2024/"><u>Updated Zero-Cost Wonder Top 5 Free WMV Video Editors for 2024</u></a></li>
 </ul></div>
 

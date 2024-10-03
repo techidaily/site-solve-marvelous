@@ -1,7 +1,7 @@
 ---
 title: Live-Datenerfassung Mit ABBYY OCR SDK - Instantane Erkennung Von Text Im Feld
-date: 2024-09-14T00:12:25.817Z
-updated: 2024-09-14T20:48:15.976Z
+date: 2024-10-02T12:01:12.777Z
+updated: 2024-10-03T02:45:38.830Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/428d79f8e22b19bf05f42dd0977639aed1e84dacf346522fdfb1811e179afc16.jpg
@@ -84,12 +84,27 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tips-for-effortless-eradication-of-unwanted-youtube-discussions/"><u>[New] Tips for Effortless Eradication of Unwanted YouTube Discussions</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-the-essential-guide-to-du-recorder-functionality/"><u>[Updated] 2024 Approved The Essential Guide to Du Recorder Functionality</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-flexicapture-ai/"><u>ABBYY FlexiCapture - AI駆使した最先端の帳票自動認識プラットフォームについて学ぶ</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-sdk-solutions-for-revolutionizing-package-processing-in-the-transport-industry-insights-from-the-abbyy-blog/"><u>ABBYY SDK Solutions for Revolutionizing Package Processing in the Transport Industry: Insights From the ABBYY Blog</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyypwcaiocr/"><u>ABBYYとPwCコンサルティングがAI・OCR技術による新しいパートナーシップを結ぶ</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/ai-investments-reaching-3m-by-uk-firms-amidst-strategic-planning-hurdles/"><u>AI Investments Reaching £3M by UK Firms Amidst Strategic Planning Hurdles</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/budget-conscious-pc-capture-programs-for-2024/"><u>Budget-Conscious PC Capture Programs for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/expert-tips-on-how-to-refresh-and-update-webcam-software-in-windows-11/"><u>Expert Tips on How to Refresh and Update Webcam Software in Windows 11</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/harnessing-ai-essential-chatgpt-techniques-for-time-mastery/"><u>Harnessing AI: Essential ChatGPT Techniques for Time Mastery</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-itel-s23plus-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Itel S23+ Phone? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-realme-narzo-n53-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Realme Narzo N53 Lock Screen Password?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-pc-issues-stop-warzone-20-from-keep-crashing/"><u>Resolving PC Issues - Stop Warzone 2.0 From Keep Crashing</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/stopcapture-screen-freeze-assist-for-2024/"><u>StopCapture Screen Freeze Assist for 2024</u></a></li>
+</ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

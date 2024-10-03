@@ -1,7 +1,7 @@
 ---
 title: "Introducing Our Latest Innovations: Digital Cookbook Solutions & Image Transformation - Explore the ABBYY Universe"
-date: 2024-09-23T06:07:28.017Z
-updated: 2024-09-28T08:17:55.020Z
+date: 2024-09-26T17:25:19.524Z
+updated: 2024-10-02T23:17:51.722Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0354f8e14674fab0ca20c7e6ac5698288d836a49349ce493fef240aa54251dca.jpg
@@ -41,39 +41,32 @@ This feature can also be useful when you are looking to reinstall an app but can
 
 **What was your first ever app? Do you still use it today? Share your answer in the comments below** 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Android Tip: Which App Came First?**
 
 To take a glimpse into the past, you need to first open Google Play. Then, tap the three bars in the top left corner **→ My apps & games → Library**.
 
 ![google play download history](https://static1.abbyy.com/abbyycommedia/26738/gplay1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You will see a list of all the apps that have been installed on any phone using your Google account. If an app has since been deleted, you can reinstall it, provided it is still available on Google Play. You can choose to view the list either in chronological or in alphabetical order.
 
 ![library in google play](https://static1.abbyy.com/abbyycommedia/26739/gplay2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 This download history will be useful for those who are looking to find an app that they have deleted and now cannot remember the name of.
 
 **What was your first ever app? Do you still use it today? Share your answer in the comments below** 
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **ABBYY Tip: FineScanner as a Culinary Assistant**
@@ -90,9 +83,29 @@ Have you ever seen a static image modified to look like an animated GIF file? Ph
 
 ![pixaloop](https://static1.abbyy.com/abbyycommedia/26625/app1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Cinemagraphs can be created using [Enlight Pixaloop](https://www.pixaloopapp.com/). No specialized photo editing skills are required: the app will do just about everything for you. The only thing you need to do is use markers and arrows to set a movement direction for the object you want to animate. In the photo above, for example, we have animated the model’s hair.
 
 ![making moving photos](https://static1.abbyy.com/abbyycommedia/26626/app2.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [You can download the app for iOS here](https://itunes.apple.com/ru/app/enlight-photoloop/id1381206010?l=en&mt=8) and surprise your friends with cool-looking cinemagraphs.
 
@@ -101,13 +114,6 @@ That’s all, folks! See you next time!
 P.S. You can find the previous issue of this newsletter [here](https://tools.techidaily.com/abbyy/products/).
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -173,18 +179,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-action-reimagined-deep-dive-into-the-t5-thievery-review/"><u>[New] Action Reimagined Deep Dive Into the T5 Thievery Review</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-public-melodies-for-calmness/"><u>[New] Public Melodies for Calmness</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-best-tips-to-use-zoom-on-chromebook-for-2024/"><u>[Updated] Best Tips to Use Zoom on Chromebook for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-master-the-charm-of-darker-digital-images-for-2024/"><u>[Updated] Master the Charm of Darker Digital Images for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/avi82024/"><u>今年注目! ベスト無料AVIプレーヤー8つ選びたします【2024版】</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/conversione-video-senza-costi-da-h264-a-wav-via-web-utilizzando-movavi/"><u>Conversione Video Senza Costi: Da H.264 A WAV via Web, Utilizzando Movavi</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-newly-released-magicard-rio-pro-driver-for-your-windows-system-xpvista/"><u>Get the Newly Released Magicard Rio Pro Driver for Your Windows System (XP/Vista)</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/guia-gratuita-para-la-conversion-de-archivos-nsv-a-avi-por-internet-utilizar-movavi-sin-costo/"><u>Guía Gratuita Para La Conversión De Archivos NSV a AVI Por Internet - Utilizar Movavi Sin Costo</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-realme-c51withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Realme C51with/without a PC</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/ppro-full-screen-showcase-made-simple-for-2024/"><u>PPro Full-Screen Showcase Made Simple for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/steps-to-resolve-the-non-existent-msstdfmtdll-file-problem/"><u>Steps to Resolve the Non-Existent Msstdfmt.dll File Problem</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transformez-vos-fichiers-wtv-en-wmv-gratuitement-sur-internet-utilisation-simple-de-movavi/"><u>Transformez Vos Fichiers WTV en WMV Gratuitement Sur Internet - Utilisation Simple De Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/vullen-sie-ihre-ts-afbeeldingen-gratis-in-mp4-konverteren-via-de-gebruikelijke-movavi-online-tool/"><u>Vullen Sie Ihre .TS-afbeeldingen Gratis in MP4 Konverteren via De Gebruikelijke Movavi Online-Tool</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/boost-your-sites-insight-capabilities-leveraging-cutting-edge-cookie-based-tools/"><u>[Boost Your Site's Insight Capabilities]: Leveraging Cutting-Edge Cookie-Based Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-innovative-12-motion-cameras-with-integrated-global-positioning/"><u>[New] Innovative 12 Motion Cameras with Integrated Global Positioning</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-optimal-sony-ps3-reproduction-tools-ranked-pc-for-2024/"><u>[New] Optimal Sony PS3 Reproduction Tools Ranked (PC) for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-optimized-text-designs-for-after-effects/"><u>[New] Optimized Text Designs for After Effects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-through-youtubes-content-id-system-issues/"><u>[Updated] Navigating Through YouTube's Content ID System Issues</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-step-by-step-creating-timelapse-videos-with-ipad/"><u>2024 Approved Step-by-Step Creating Timelapse Videos with iPad</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/boost-your-phones-speed-plus-introducing-ar-business-cards-habit-building-techniques-wisdom-on-the-abbyy-blog/"><u>Boost Your Phone's Speed + Introducing AR Business Cards: Habit Building Techniques | Wisdom on the ABBYY Blog</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/comment-les-seniors-surpassent-ils-dans-le-teletravail-decouvrez-nos-resultats-dabbyy/"><u>Comment Les Seniors Surpassent-Ils Dans Le Télétravail? Découvrez Nos Résultats D'ABBYY!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-automation-for-enhanced-website-analytics/"><u>Cookiebot-Driven Automation for Enhanced Website Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-personalization-for-enhanced-user-experience/"><u>Cookiebot-Enabled Personalization for Enhanced User Experience</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-personalization-enhance-user-experience-with-dynamic-content/"><u>Cookiebot-Enabled Personalization: Enhance User Experience with Dynamic Content</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-websites-visitor-tracking-experience/"><u>Cookiebot-Enabled: Enhancing Your Website's Visitor Tracking Experience</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhanced-experience-tailored-web-personalization/"><u>Cookiebot-Enhanced: Experience Tailored Web Personalization</u></a></li>
+<li><a href="https://win-answers.techidaily.com/doom-eternal-installation-woes-expert-tips-and-tricks-to-start-gaming-smoothly/"><u>DOOM Eternal Installation Woes: Expert Tips and Tricks to Start Gaming Smoothly</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/mastering-multitasking-using-obs-studio-for-dynamic-streaming/"><u>Mastering Multitasking Using OBS Studio for Dynamic Streaming</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/reclaiming-control-over-typing-with-these-9-fixes-for-broken-keyboard-commands-on-windows-pc/"><u>Reclaiming Control over Typing with These 9 Fixes for Broken Keyboard Commands on Windows PC</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723202389591-trouble-with-arrow-keys-discover-easy-fixes-to-restore-functionality/"><u>Trouble with Arrow Keys? Discover Easy Fixes to Restore Functionality!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Official Statement by Ulf Persson on COVID-19 as CEO of ABBYY Group: Insights and Updates"
-date: 2024-09-25T16:48:38.583Z
-updated: 2024-09-27T21:49:39.739Z
+date: 2024-09-30T09:37:57.771Z
+updated: 2024-10-02T18:28:26.674Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8defa02626cc56415dc50f7d54a716fd558d3dd721a0ce14cdc43e33e2f2d6de.jpg
@@ -47,27 +47,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ncome-maximizing-techno-gaming-tactics/"><u>[New] Income Maximizing Techno-Gaming Tactics</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-grab-and-store-the-quickest-tools-to-save-social-media-videos/"><u>[Updated] 2024 Approved Grab & Store The Quickest Tools to Save Social Media Videos</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-breaking-down-the-fundamentals-of-mixed-reality/"><u>2024 Approved Breaking Down the Fundamentals of Mixed Reality</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/achieving-visual-excellence-top-picture-customization-tips-for-your-samsung-4k-smart-television/"><u>Achieving Visual Excellence: Top Picture Customization Tips for Your Samsung 4K Smart Television</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/adrian-jones-elevated-to-cro-position-at-abbyy-leading-revenue-innovation/"><u>Adrian Jones Elevated to CRO Position at ABBYY - Leading Revenue Innovation</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/appointment-of-neil-murphy-as-cso-how-abbyy-strengthens-its-executive-team/"><u>Appointment of Neil Murphy as CSO: How ABBYY Strengthens Its Executive Team</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/automate-your-leads-with-cookiebot-the-powerful-conversion-optimizer/"><u>Automate Your Leads with Cookiebot: The Powerful Conversion Optimizer</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/boost-your-document-management-capabilities-with-tangro-and-abbyy-integration/"><u>Boost Your Document Management Capabilities with Tangro and ABBYY Integration</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-marketing-automation-solutions/"><u>Cookiebot Driven Marketing Automation Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-performance-mastering-online-marketing-metrics-effortlessly/"><u>Cookiebot-Driven Performance: Mastering Online Marketing Metrics Effortlessly</u></a></li>
-<li><a href="https://techidaily.com/how-to-recover-apple-iphone-12-pro-max-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Apple iPhone 12 Pro Max Data From iTunes? | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-deciphering-the-covert-codes-of-snapchats-emojis/"><u>In 2024, Deciphering the Covert Codes of Snapchat's Emojis</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-survival-in-shambles-selecting-the-top-8-zombie-classics/"><u>In 2024, Survival in Shambles Selecting the Top 8 Zombie Classics</u></a></li>
-<li><a href="https://extra-support.techidaily.com/perfecting-visuals-ranking-the-prime-12-video-players-for-2024/"><u>Perfecting Visuals Ranking the Prime 12 Video Players for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-ultimate-guide-upgrading-ps5-hard-drive-with-a-solid-state-drive/"><u>The Ultimate Guide: Upgrading PS5 Hard Drive with a Solid State Drive</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-adding-beats-to-your-instagram-media-a-step-by-step-guide/"><u>[Updated] 2024 Approved Adding Beats to Your Instagram Media A Step-by-Step Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-top-9-androidios-video-chat-platforms-ranked/"><u>[Updated] 2024 Approved Top 9 Android/iOS Video Chat Platforms Ranked</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-ultimate-5-speedy-shot-strategies-right-from-your-living-room-for-2024/"><u>[Updated] Ultimate 5 Speedy Shot Strategies Right From Your Living Room for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-cambiar-tu-video-de-formato-asf-a-mov-sin-coste-con-herramientas-en-linea-tutorial-con-movavi/"><u>Cómo Cambiar Tu Vídeo De Formato ASF a MOV Sin Coste Con Herramientas en Línea: Tutorial Con Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-transformar-archivos-ts-en-formato-line-sin-coste-usando-movavi-tutorial-completo/"><u>Cómo Transformar Archivos TS en Formato LINE Sin Coste Usando Movavi - Tutorial Completo</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/conversione-gratuita-online-converti-i-tuoi-file-mp3-in-formato-ogg-con-lutilita-di-movavi/"><u>Conversione Gratuita Online: Converti I Tuoi File MP3 in Formato OGG Con L'utilità Di Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converti-video-flv-in-formato-aiff-liberamente-conversiononline/"><u>Converti Video FLV in Formato AIFF Liberamente - ConversionOnline</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/fehlerbeheben-bei-fehlender-filmwiedergabe-auf-ihrem-macbook-pro-schritt-fur-schritt-protokoll/"><u>Fehlerbeheben Bei Fehlender Filmwiedergabe Auf Ihrem MacBook Pro: Schritt-Für-Schritt-Protokoll</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/flvavi/"><u>FLVとAVIファイルの免責コースで簡単な変換 - ムーバヴィ</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-itel-p40plus-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Itel P40+ Phone Screen?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-from-iphone-8-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock From iPhone 8 You Should Try Out</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-revolutionary-2018-lg-gram-156-laptop-review-striking-balance-between-large-screen-and-ultra-light-design/"><u>The Revolutionary 2018 LG Gram 15.6 Laptop Review: Striking Balance Between Large Screen and Ultra Light Design</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

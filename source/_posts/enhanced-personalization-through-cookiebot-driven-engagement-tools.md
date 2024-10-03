@@ -1,7 +1,7 @@
 ---
 title: Enhanced Personalization Through Cookiebot-Driven Engagement Tools
-date: 2024-09-24T07:28:11.668Z
-updated: 2024-09-28T04:32:57.741Z
+date: 2024-10-01T02:50:58.542Z
+updated: 2024-10-02T20:49:07.686Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571566316abe24ad6c80cbdaa7.jpeg
@@ -20,10 +20,10 @@ Integrieren Sie KI-basierte OCR-Funktionen in Ihre Applikationen.
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/finereader-engine/fre_visual.jpg?h=500&iar=0&w=2560)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Automatische Dokumentanalyse
@@ -31,10 +31,10 @@ Integrieren Sie KI-basierte OCR-Funktionen in Ihre Applikationen.
 Der automatisierte Schritt der Dokumentenanalyse ist ein entscheidender Teil des gesamten Erkennungsprozesses. Um diesen Schritt mit möglichst hoher Präzision durchzuführen, arbeitet ABBYY FineReader Engine mit einer Vielzahl ausgereifter Algorithmen auf der Grundlage von KI-Methoden. Während der Dokumentenanalyse wird die logische Struktur des Dokuments analysiert – die erste und letzte Dokumentenseite werden identifiziert, Formatierungselemente wie Fußnoten, Kopfzeilen, Fußzeilen und Inhaltsverzeichnis werden erkannt. Gleichzeitig wird das Layout jeder einzelnen Seite analysiert und jede Seite wird in einzelne Objekte wie Textblöcke, Bilder, Tabellen und Tabellenzellen, Barcodes und Trennelemente unterteilt. Zusätzlich erkennen die Analysealgorithmen die Seitenausrichtung, identifizieren Doppelseiten und vertikalen Text und definieren Seitenbereiche, die für den OCR-Prozess nicht relevant sind. Auf diese Weise kann ABBYY FineReader Engine Textbereiche und Felder definieren, die erkannt werden sollten, und Seitenbereiche wie Bilder oder Diagramme, die in ihrer ursprünglichen Form beibehalten werden. Gleichzeitig gehen Informationen über die logische Struktur des Dokuments ein, einschließlich der Formatierung. Diese werden am Ende des OCR-Prozesses verwendet, wenn das Dokument exakt rekonstruiert wird.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Manuelle Blockdefinition für Field Level Erkennung
@@ -42,10 +42,10 @@ Der automatisierte Schritt der Dokumentenanalyse ist ein entscheidender Teil des
 Die Texterkennungsbereiche können manuell festgelegt werden. In diesem Fall wird das relevante Erkennungsfeld direkt definiert und die automatisierte Dokumentenanalyse ist überflüssig. Im späteren Erkennungsschritt erhält der Erkennungsalgorithmus Informationen über die Koordinaten und Eigenschaften der gewünschten Felder und wendet den OCR-Prozess nur auf den festgelegten Bereich an.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Möchten Sie mit unserem Expertenteam sprechen?
@@ -67,18 +67,19 @@ Die Texterkennungsbereiche können manuell festgelegt werden. In diesem Fall wir
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-from-concept-to-completion-using-magix-video-pro-x/"><u>[New] In 2024, From Concept to Completion Using Magix Video Pro X</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-secrets-unveiled-attending-friends-tiktok-lives/"><u>[New] Secrets Unveiled Attending Friends’ TikTok Lives</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-correcting-obs-darkness-during-live-streams/"><u>2024 Approved Correcting OBS Darkness During Live Streams</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ai/"><u>AI駆動知覚学習: 高度なコンテンツ分析が求められる時代</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/arsenal-womens-fc-champions-abbyy-as-top-tier-cognitive-processing-partner/"><u>Arsenal Womens FC Champions ABBYY as Top-Tier Cognitive Processing Partner</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/convert-iphone-photos-of-documents-into-editable-text-with-scan-and-ocr-finereader-app/"><u>Convert iPhone Photos of Documents Into Editable Text with Scan & OCR - FineReader App</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-solutions-optimize-your-sites-traffic/"><u>Cookiebot-Driven Solutions: Optimize Your Site's Traffic</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-website-optimization-elevating-your-online-presence/"><u>Cookiebot-Driven Website Optimization: Elevating Your Online Presence</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-customized-user-experience/"><u>Cookiebot-Enabled Customized User Experience</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/engage-with-advanced-acoustic-performance-meet-klipschs-flexus-200-soundbar/"><u>Engage with Advanced Acoustic Performance - Meet Klipsch’s Flexus 200 Soundbar</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/how-to-seamlessly-install-newest-kodi-version-on-your-windows-10-device-a-comprehensive-tutorial/"><u>How To Seamlessly Install Newest Kodi Version on Your Windows 10 Device - A Comprehensive Tutorial</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/rumored-insights-and-teasers-on-the-imminent-launch-of-oneplus-10/"><u>Rumored Insights & Teasers on the Imminent Launch of OnePlus 10</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/update-your-gpu-to-the-new-nvidia-gtx-1650-super-drivers-compatible-with-windows-1011/"><u>Update Your GPU to the New NVIDIA GTX 1650 Super Drivers: Compatible with Windows 10/11</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-navigating-the-complexities-of-chroma-removal-kinemaster-edition-for-2024/"><u>[New] Navigating the Complexities of Chroma Removal (KineMaster Edition) for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-exploring-ancient-facebook-tales-your-pcmobile-checklist-for-2024/"><u>[Updated] Exploring Ancient Facebook Tales Your PC/Mobile Checklist for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-in-overwatch-streamlining-the-recording-process/"><u>2024 Approved In Overwatch Streamlining the Recording Process</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-pro-max-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 Pro Max To Other iPhone 14 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Oppo A79 5G? | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/iphone-data-recovery-software-for-mac-recover-deleted-photos-videos-and-contacts/"><u>IPhone Data Recovery Software for Mac. Recover Deleted Photos, Videos, & Contacts</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-looking-forward-to-making-up-your-career-in-video-editing-land-in-here-to-learn-about-the-credibility-of-some-popular-video-editing-course/"><u>New 2024 Approved Looking Forward to Making up Your Career in Video Editing? Land in Here to Learn About the Credibility of some Popular Video Editing Courses</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-divide-and-conquer-the-best-free-wmv-video-splitters/"><u>New In 2024, Divide and Conquer The Best Free WMV Video Splitters</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/rparpaabbyy/"><u>RPA技術の先駆者：日商エレ、RPAテクノロジーズ、ABBYYジャパンの新たな提携</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/significant-financial-boost-abbyy-records-a-25-surge-in-revenue-during-2017/"><u>Significant Financial Boost: ABBYY Records a 25% Surge in Revenue During 2017</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/streamline-client-onboarding-for-increased-devotion-to-your-financial-firm/"><u>Streamline Client Onboarding for Increased Devotion to Your Financial Firm</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/telefonicas-dsl-gesuche-nutzen-abbyy-formreader-schnellere-breitbandverbindungen-bevorstehen/"><u>Telefonicas DSL-Gesuche Nutzen ABBYY FormReader - Schnellere Breitbandverbindungen Bevorstehen</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/tools-that-enhance-your-travel-videos/"><u>Tools That Enhance Your Travel Videos</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlock-enhanced-online-performance-with-our-secret-sauce-cookiebot-technology/"><u>Unlock Enhanced Online Performance with Our Secret Sauce - Cookiebot Technology</u></a></li>
 </ul></div>
 

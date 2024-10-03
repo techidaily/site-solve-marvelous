@@ -1,7 +1,7 @@
 ---
 title: Transforming Insurance Claims Handling with Cognitive Scanning - Success Stories From Leading Companies
-date: 2024-09-10T16:08:59.516Z
-updated: 2024-09-14T23:39:51.648Z
+date: 2024-10-01T08:25:15.491Z
+updated: 2024-10-02T16:00:13.065Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/85e69845f10f793c5b081e6eac45cea976095820d8ff765825e636a33b833fec.jpg
@@ -54,6 +54,13 @@ Senior Vice President of Product Marketing at ABBYY
 Bruce Orcutt is a veteran Product Marketing and Product Management professional with over 20 years’ experience in Enterprise Software. Bruce drives global product marketing for ABBYY's intelligent automation solutions that create business value for organizations. His go-to-market strategies accelerate the adoption of ABBYY solutions worldwide.
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -116,12 +123,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-digital-detox-how-to-turn-off-youtube-on-computers-and-phones/"><u>[New] 2024 Approved Digital Detox How to Turn Off Youtube on Computers and Phones</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-premier-audiospeed-editors-mobile-and-desktop-edition/"><u>[New] Premier Audiospeed Editors Mobile & Desktop Edition</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-elite-choices-in-total-sweep-cinematography-for-2024/"><u>[Updated] Elite Choices in Total Sweep Cinematography for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unlock-potential-with-best-free-text-psdfree/"><u>[Updated] Unlock Potential with Best Free Text PSDFree</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/sba-ppp-blue-prism85000/"><u>銀行でのSBA PPP ローン自動化：Blue Prismによって85,000以上の雇用が守られ、中小企業の経営安定</u></a></li>
+<li><a href="https://extra-information.techidaily.com/essentials-for-a-captivating-docu-script/"><u>Essentials for a Captivating Docu-Script</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-poco-x6-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Poco X6 Device</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-microsoft-print-to-pdf-problems-for-windows-11-users/"><u>Resolving Microsoft Print to PDF Problems for Windows 11 Users</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/seamless-conversion-with-the-cookiebot-platform-powering-your-sites-performance/"><u>Seamless Conversion with the Cookiebot Platform Powering Your Site's Performance</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/simplify-paperwork-automation-master-the-art-of-no-code-document-revolution/"><u>Simplify Paperwork Automation: Master the Art of No-Code Document Revolution</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/the-ultimate-runners-guide-top-rated-earphones-for-your-workouts-a-tech-reviewers-picks/"><u>The Ultimate Runner's Guide: Top-Rated Earphones for Your Workouts - A Tech Reviewer's Picks</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unleashing-growth-potential-with-the-power-of-cookiebot-technology-for-sites/"><u>Unleashing Growth Potential with the Power of Cookiebot Technology for Sites</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlock-growth-potential-with-cookiebots-advanced-user-tracking-solutions/"><u>Unlock Growth Potential with Cookiebot's Advanced User Tracking Solutions</u></a></li>
+</ul></div>
 

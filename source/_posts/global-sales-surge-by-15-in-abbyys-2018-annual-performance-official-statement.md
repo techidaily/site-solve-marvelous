@@ -1,7 +1,7 @@
 ---
 title: Global Sales Surge by 15%% in ABBYY's 2018 Annual Performance - Official Statement
-date: 2024-09-21T07:17:02.673Z
-updated: 2024-09-28T00:20:30.659Z
+date: 2024-09-25T21:48:34.972Z
+updated: 2024-10-03T10:24:14.939Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/33904527a6e1718a50027f53fe767c2c1eedacdbdef4cb5558c43f077a848c48.jpg
@@ -64,29 +64,29 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-discovering-charismatic-faces-on-your-snaps/"><u>[New] 2024 Approved Discovering Charismatic Faces on Your Snaps</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-10-tools-to-record-zoom-meeting/"><u>[Updated] 10 Tools to Record Zoom Meeting</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-android-without-a-wire-heres-your-free-games-list/"><u>[Updated] In 2024, Android Without A Wire? Here's Your Free Games List</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mp3-flac/"><u>「網路無限 MP3 自動預設 FLAC - 移動愛瓦 變更程式」</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/7-innovative-approaches-to-color-correction-for-2024/"><u>7 Innovative Approaches to Color Correction for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726220504391-mp4avi-movavi/"><u>無料でMP4をAVIに変換する - Movaviの簡単なガイドブック</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/best-ways-to-convert-videos-from-vlc-to-mp4-with-ease-top-movavi-tips/"><u>Best Ways to Convert Videos From VLC to MP4 with Ease - Top Movavi Tips</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/effortlessly-transform-mp2-tracks-into-high-quality-wav-files-with-movavis-free-online-service/"><u>Effortlessly Transform MP2 Tracks Into High-Quality WAV Files with Movavi's Free Online Service</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/in-depth-evaluation-of-the-evga-supernova-series-850-gen7-psu-a-comprehensive-review/"><u>In-Depth Evaluation of the EVGA SuperNova Series 850 Gen7 PSU: A Comprehensive Review</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/laureats-des-diaporamas-de-presentation-les-logiciels-gratuit-et-payant-pour-windows-text-in-french/"><u>Lauréats Des Diaporamas De Présentation : Les Logiciels Gratuit Et Payant Pour Windows ([Text in French])</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/mastering-tech-the-ultimate-guide-to-understanding-hardware-toms-edition/"><u>Mastering Tech: The Ultimate Guide to Understanding Hardware - Tom's Edition</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/movavis-no-cost-web-service-transforming-dng-photos-into-jpeg-files/"><u>Movavi's No-Cost Web Service: Transforming DNG Photos Into JPEG Files</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/proven-approaches-for-large-media-file-transfers-from-iphones-to-macs/"><u>Proven Approaches for Large Media File Transfers From iPhones to Macs</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/steps-to-start-your-journey-as-a-prompt-engineer/"><u>Steps to Start Your Journey as a Prompt Engineer</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/upgrade-your-video-collection-seamless-flv-to-m4a-file-conversion-at-no-cost-using-our-web-service/"><u>Upgrade Your Video Collection: Seamless FLV to M4A File Conversion at No Cost Using Our Web Service</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/verslindig-jpeg-format-van-pgm-fotografien-zonder-risico-gratis-met-de-bedrijfsmerk-movavi/"><u>Verslindig JPEG-Format Van PGM-Fotografien Zonder Risico, Gratis Met De Bedrijfsmerk Movavi</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/windows-1011-dvdusb/"><u>Windows 10/11 DVDからUSBへの転送手順 - シンプルガイド</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-launch-your-wealth-journey-on-periscope-platform/"><u>[New] Launch Your Wealth Journey on Periscope Platform</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-flawless-video-calls-from-laptop-using-the-desktop-whatsapp-browser/"><u>[Updated] 2024 Approved Flawless Video Calls From Laptop Using the Desktop WhatsApp Browser</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagram-visuals-adding-value-with-3-strategic-video-descriptions/"><u>[Updated] In 2024, Instagram Visuals Adding Value with 3 Strategic Video Descriptions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-guide-to-streamlining-console-game-recording/"><u>2024 Approved Guide to Streamlining Console Game Recording</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-perfect-synchronization-enhancing-audio-visual-with-subtitles-in-wmp/"><u>2024 Approved Perfect Synchronization Enhancing Audio-Visual with Subtitles in WMP</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/common-fixes-for-amazon-echo-devices-that-arent-responding-to-voice-commands/"><u>Common Fixes for Amazon Echo Devices That Aren't Responding to Voice Commands</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/deciphering-the-fixes-to-continuous-outlook-crashing-problem/"><u>Deciphering the Fixes to Continuous Outlook Crashing Problem</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-gratuitous-sound-solutions-years-best-lut-downloads/"><u>In 2024, Gratuitous Sound Solutions - Year's Best LUT Downloads</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-realme-v30t-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Realme V30T Phones</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionize-automation-through-informed-decisions-discover-how-with-process-and-task-mining-at-abbyys-special-webinar/"><u>Revolutionize Automation Through Informed Decisions: Discover How with Process and Task Mining at ABBYY's Special Webinar</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-wine-selection-how-abbyys-ocr-technology-fuels-vivinos-global-success/"><u>Revolutionizing Wine Selection: How ABBYY's OCR Technology Fuels Vivino's Global Success</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/seamless-user-engagement-boosted-by-innovative-cookiebot-technology-solutions/"><u>Seamless User Engagement Boosted by Innovative Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/the-future-is-now-understanding-ai-governance-on-the-ai-pulse-podcast/"><u>The Future Is Now: Understanding AI Governance on the AI Pulse Podcast</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transform-images-into-editable-text-ocr-for-pdfjpg-files-on-ios-via-finereader/"><u>Transform Images Into Editable Text - OCR for PDF/JPG Files on iOS via FineReader</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-jobs-tomorrow-insightful-analysis-on-rpas-impact-and-abbyys-forecast-white-paper/"><u>Transforming Jobs Tomorrow: Insightful Analysis on RPA's Impact and ABBYY's Forecast [White Paper]</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-legal-text-analysis-with-abbyys-advanced-docs-enhanced-capabilities-and-seamless-rag-sync/"><u>Transforming Legal Text Analysis with ABBYY's Advanced Docs: Enhanced Capabilities and Seamless RAG Sync</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/understanding-the-distinctions-between-process-intelligence-and-bi-techniques-for-strategic-decision-making/"><u>Understanding the Distinctions Between Process Intelligence and BI Techniques for Strategic Decision-Making</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

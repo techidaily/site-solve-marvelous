@@ -1,7 +1,7 @@
 ---
 title: Charting the Top of IDC Landscape - How ABBYY Sets Industry Standards in Data Capture Solutions
-date: 2024-09-21T23:48:45.251Z
-updated: 2024-09-27T23:55:04.087Z
+date: 2024-09-26T08:20:36.518Z
+updated: 2024-10-02T19:25:43.947Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e773ad143d0e6a181e98946175694e64ba11aabb2b269c227b4f6fa4a346892f.jpg
@@ -20,10 +20,10 @@ Ce rapport inaugural d’IDC passe en revue les technologies d’IA telles que l
 Le modèle d’analyse des fournisseurs utilisé par IDC MarketScape est conçu pour fournir une vue d’ensemble de la compétitivité des fournisseurs d’ICT (information, communication et technologie) sur un marché donné. Cette méthodologie de recherche utilise une méthode rigoureuse de notation, basée tant sur des critères quantitatifs que qualitatifs, lesquels se traduisent par une illustration graphique unique de la position de chaque prestataire sur un marché donné. Le score de capacité évalue le produit d’un vendeur, sa mise sur le marché et son plan d’exécution à court terme. Le score de stratégie mesure l’alignement des stratégies du fournisseur avec les attentes des clients sur une période de 3 à 5 ans. La part de marché du vendeur est représentée par une icône, plus ou moins grosse.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Merci de votre intérêt pour ABBYY et ses technologies.
@@ -107,22 +107,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-the-ultimate-guide-to-ipad-time-lapse-filmmaking/"><u>[New] In 2024, The Ultimate Guide to iPad Time-Lapse Filmmaking</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-perfect-your-pictures-the-ultimate-guide-to-photo-text-editing/"><u>[New] Perfect Your Pictures The Ultimate Guide to Photo Text Editing</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-best-in-the-shadows-vids-2023s-prime-8-app-list/"><u>2024 Approved Best In-The-Shadows Vids - 2023'S Prime 8 App List</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-essential-steps-for-effective-online-engagement/"><u>2024 Approved Essential Steps for Effective Online Engagement</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-picsart-app-deep-dive-full-review-analysis-and-instructions-for-the-new-year/"><u>2024 Approved PicsArt App Deep Dive Full Review, Analysis & Instructions for the New Year</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/driven-with-advanced-cookieless-tracking-technology/"><u>Driven with Advanced Cookieless Tracking Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/elevate-online-analytics-discover-the-benefits-of-cookiebot-technology-for-seo-success/"><u>Elevate Online Analytics: Discover the Benefits of Cookiebot Technology for SEO Success</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/embrace-smart-efficiency-the-power-of-intelligent-process-automation-awaits/"><u>Embrace Smart Efficiency – The Power of Intelligent Process Automation Awaits!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhance-online-insights-effortlessly-harnessing-the-power-of-cookiebot-technology/"><u>Enhance Online Insights Effortlessly: Harnessing the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhance-user-experience-with-our-cookiebot-solutions/"><u>Enhance User Experience with Our Cookiebot Solutions!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-performance-through-advanced-cookiebot-solutions/"><u>Enhanced Performance Through Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-performance-using-cookiebot-solutions/"><u>Enhanced Performance Using Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-traffic-growth-with-cookiebot-technology/"><u>Enhanced Traffic Growth with Cookiebot Technology</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-6s-plus-3-ways-to-unlock-by-drfone-ios/"><u>How To Unlock Apple iPhone 6s Plus 3 Ways To Unlock</u></a></li>
-<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-samsung-galaxy-a14-4g-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Samsung Galaxy A14 4G ? Fix It Easily | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-to-honor-magic-5-pro-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Honor Magic 5 Pro Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://games-able.techidaily.com/unlocking-game-magic-with-customizations-on-steam/"><u>Unlocking Game Magic with Customizations on Steam</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-craft-your-vision-essential-windows-10-tips-for-future-directors/"><u>[New] Craft Your Vision Essential Windows 10 Tips for Future Directors</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-rhythm-research-capture-and-review-music-files-for-2024/"><u>[New] Rhythm Research Capture & Review Music Files for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-earnings-insights-for-video-content-surpassing-1-million-views/"><u>[Updated] In 2024, Earnings Insights for Video Content Surpassing 1 Million Views</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/convert-videos-effortlessly-with-movavis-no-cost-nsv-to-mp4-tool-do-it-online/"><u>Convert Videos Effortlessly with Movavi's No-Cost NSV to MP4 Tool - Do It Online!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-setup-guide-logitech-driving-simulator-for-windows-7-8-and-10-systems/"><u>Download & Setup Guide: Logitech Driving Simulator for Windows 7, 8 and 10 Systems</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-joining-flv-files-a-step-by-step-guide/"><u>In 2024, Joining FLV Files A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-mastering-fb-free-tools-for-timely-posts/"><u>In 2024, Mastering FB Free Tools for Timely Posts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-the-art-of-high-quality-photo-for-free-for-2024/"><u>Mastering the Art of High Quality Photo for Free for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/scarica-e-converti-i-tuoi-amv-in-file-mp3-gratuitamente-con-movavi/"><u>Scarica E Converti I Tuoi AMV in File MP3 Gratuitamente Con Movavi</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solve-update-woes-8-essential-fixes-for-windows-10-error-code-0x800f0922/"><u>Solve Update Woes: 8 Essential Fixes for Windows 10 Error Code 0X800f0922</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforme-gratuitement-votre-fichier-wmv-en-format-mp4-avec-videosan/"><u>Transforme Gratuitement Votre Fichier WMV en Format MP4 Avec Vidéosan</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/vod-in-ogg-vorbis-format-vob-to-high-quality-lossless-audio-flac-free-conversion-tool-by-movavi/"><u>VOD in Ogg Vorbis Format (VOB) to High-Quality Lossless Audio (FLAC): Free Conversion Tool by Movavi</u></a></li>
 </ul></div>
 

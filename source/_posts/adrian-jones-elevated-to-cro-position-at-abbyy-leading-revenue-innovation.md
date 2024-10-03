@@ -1,7 +1,7 @@
 ---
 title: Adrian Jones Elevated to CRO Position at ABBYY - Leading Revenue Innovation
-date: 2024-09-23T01:05:47.271Z
-updated: 2024-09-28T07:56:07.697Z
+date: 2024-09-27T12:33:42.739Z
+updated: 2024-10-02T16:20:13.719Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e72e3b0a0f444d85893166713d9b69e6e7d31b3a9fab3ca00a257d1b8cf9aa38.jpg
@@ -32,10 +32,10 @@ Jones ist derzeit als Senior Advisor für das Private-Equity-Unternehmen Warburg
 1 IDC, Worldwide Intelligent Process Automation Market Shares, 2020: Solid Growth Across Cloud Segments, Doc # US47469221, June 2021.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -45,10 +45,10 @@ ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Ges
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -56,10 +56,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -85,24 +85,18 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-navigating-the-world-of-live-video-sharing-with-ease/"><u>[New] 2024 Approved Navigating the World of Live Video Sharing with Ease</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-leveraging-likeability-for-business-profits-on-fb/"><u>[New] Leveraging Likeability for Business Profits on FB</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-secure-your-photography-leading-software-insights-for-2024/"><u>[New] Secure Your Photography - Leading Software Insights for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-an-odyssey-through-time-unexplored-worlds-in-classic-books/"><u>[Updated] 2024 Approved An Odyssey Through Time Unexplored Worlds in Classic Books</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-from-idea-to-impact-advanced-editing-techniques-for-youtube-creators/"><u>[Updated] From Idea to Impact Advanced Editing Techniques for YouTube Creators</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-high-end-fb-visual-creator-free/"><u>[Updated] In 2024, High-End FB Visual Creator (FREE)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-effortless-guide-to-free-melodies-in-youtube-productions/"><u>2024 Approved Effortless Guide to Free Melodies in YouTube Productions</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/2024-approved-the-ultimate-encyclopedia-reacting-effectively-on-youtube-vids/"><u>2024 Approved The Ultimate Encyclopedia Reacting Effectively on YouTube Vids</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-personalization-for-enhanced-user-experience/"><u>Cookiebot-Enabled Personalization for Enhanced User Experience</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-personalization-enhance-user-experience-with-dynamic-content/"><u>Cookiebot-Enabled Personalization: Enhance User Experience with Dynamic Content</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-websites-visitor-tracking-experience/"><u>Cookiebot-Enabled: Enhancing Your Website's Visitor Tracking Experience</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhanced-experience-tailored-web-personalization/"><u>Cookiebot-Enhanced: Experience Tailored Web Personalization</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/customized-user-journeys-with-the-efficient-tracking-of-cookiebot-technology/"><u>Customized User Journeys with the Efficient Tracking of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/datanet-solutions-and-abbyy-accelerate-hospital-accounting-with-latest-innovations/"><u>DataNet Solutions & ABBYY: Accelerate Hospital Accounting with Latest Innovations</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/drive-traffic-with-automated-ppc-the-power-of-cookiebot-technology/"><u>Drive Traffic with Automated PPC: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/driven-with-advanced-data-protection-the-power-of-cookiebot-technology/"><u>Driven with Advanced Data Protection: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-conversion-tracking-with-customizable-cookiebot-solutions/"><u>Enhanced Conversion Tracking with Customizable Cookiebot Solutions</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-mastering-nikon-footage-a-step-by-step-guide-to-video-editing/"><u>In 2024, Mastering Nikon Footage A Step-by-Step Guide to Video Editing</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Vivo S17t | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-elite-voice-capture-tech-the-ultimate-5-apps-for-mac-users/"><u>[Updated] In 2024, Elite Voice Capture Tech The Ultimate 5 Apps for Mac Users</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-advanced-hue-adjustment-strategies-for-professionals/"><u>2024 Approved Advanced Hue Adjustment Strategies for Professionals</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-digging-into-the-heart-of-recordcast-technology/"><u>2024 Approved Digging Into the Heart of RecordCast Technology</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-iphone-techniques-crafting-striking-silhouettes/"><u>2024 Approved IPhone Techniques Crafting Striking Silhouettes</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mpegmjpeg-movavi/"><u>簡單移行：在不付錢的情況下改變MPEG成MJPEG - 以Movavi為主要功能</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-dominates-gartners-magic-quadrant-with-top-spot-in-process-mining-tools/"><u>ABBYY Dominates Gartner's Magic Quadrant with Top Spot in Process Mining Tools</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-legal-evolution-empowering-law-firms-with-digitization-and-process-automation/"><u>ABBYY Legal Evolution - Empowering Law Firms with Digitization & Process Automation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-mobile-web-capture-sdk-innovatives-losungsangebot-fur-eine-optimierte-einarbeitung-auf-mobilen-endgeraten/"><u>Abbyy Mobile Web Capture SDK: Innovatives Lösungsangebot Für Eine Optimierte Einarbeitung Auf Mobilen Endgeräten</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724313688388-cookiebot-driven-marketing-automation-solutions/"><u>Cookiebot-Driven Marketing Automation Solutions</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-free-zexmt-bluetooth-adapter-drivers-now-perfect-for-windows-7-8-and-1011-users/"><u>Get Your Free ZEXMT Bluetooth Adapter Drivers Now - Perfect For Windows 7, 8, and 10/11 Users</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gratuit-gebaseerd-converter-speelfriest-ogg-bestanden-in-animated-gif/"><u>Gratuit Gebaseerd Converter: Speelfriest Ogg-Bestanden in Animated Gif</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/new-guide-how-to-check-icloud-activation-lock-status-on-your-iphone-15-by-drfone-ios/"><u>New Guide How To Check iCloud Activation Lock Status On Your iPhone 15</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solving-repeated-uninstalls-of-nvidia-software/"><u>Solving Repeated Uninstalls of Nvidia Software</u></a></li>
 </ul></div>
 

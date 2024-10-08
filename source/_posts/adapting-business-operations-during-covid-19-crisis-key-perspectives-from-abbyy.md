@@ -1,7 +1,7 @@
 ---
 title: Adapting Business Operations During COVID-19 Crisis - Key Perspectives From ABBYY
-date: 2024-09-29T16:57:38.287Z
-updated: 2024-10-03T12:59:52.197Z
+date: 2024-10-04T17:54:01.338Z
+updated: 2024-10-08T19:46:19.383Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b47fd0e753c3df7e85d7c99e9dd6f25592469353c9ed51bdab027cc3c0e36d8f.jpg
@@ -30,10 +30,10 @@ What we discovered was not entirely surprising. Seventy-four percent of responde
 What _was_ surprising is that another major contributing factor to workplace challenges was processes. While most would agree that business processes are in place to foster efficiency, compliance, and better business outcomes, nearly half of the respondents (48%) blamed poor business processes for making their job more challenging, with one in four wanting to quit their job because of it. Another 36% said processes wasted time and let them down.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### So, in what ways do processes negatively impact employees’ work? And what can be done to address this?
@@ -47,10 +47,10 @@ Another interesting finding from the survey was the introduction of technology d
 ![COVID Impact on Business, Employees](https://static1.abbyy.com/abbyycommedia/30408/abbyy-global-covid-technology-survey_us_1200x628.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Monitoring how employees perform tasks is a nascent category of process intelligence called task mining. Task mining enables companies to understand how they manage tasks by collecting and analyzing user interactions. Such an in-depth understanding can help enterprises automate and improve processes. Task mining has parallels with process mining, but it uses user interaction data, rather than logs files and business metrics, to analyze processes. [ABBYY Task Mining](https://tools.techidaily.com/abbyy/products/) analyzes desktop user interaction data and seamlessly links it with process details mined from system event data, so you can see where repetitive and inefficient tasks are slowing your processes and allocate resources in the right places to resolve them.
@@ -76,10 +76,10 @@ Leaders need to understand the day-to-day frustrations employees have with their
 ![Bruce Orcutt ABBYY](https://static5.abbyy.com/abbyycommedia/25719/bruceorcutt-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Bruce Orcutt
@@ -91,10 +91,10 @@ Bruce Orcutt is a veteran Product Marketing and Product Management professional 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -160,16 +160,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-banishing-blackout-blues-from-youtube-videos/"><u>[New] 2024 Approved Banishing Blackout Blues From YouTube Videos</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-efficient-screen-capture-strategies-for-effective-facetime-recording/"><u>[New] Efficient Screen-Capture Strategies for Effective FaceTime Recording</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-curating-the-perfect-mix-a-youtube-playlist-manual/"><u>[New] In 2024, Curating the Perfect Mix A Youtube Playlist Manual</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-pictureweaversierra-blending-apple-media-artfully/"><u>[New] PictureWeaverSierra Blending Apple Media Artfully</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-optimal-window-calls-8-top-rated-titles-4-1/"><u>2024 Approved Optimal Window Calls 8 Top Rated Titles #4-#1</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726220504391-mp4avi-movavi/"><u>無料でMP4をAVIに変換する - Movaviの簡単なガイドブック</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/cant-access-chatgpt-discover-the-five-checkpoints-for-its-status/"><u>Can't Access ChatGPT? Discover the Five Checkpoints for Its Status</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-convertir-rapidamente-tu-video-swf-al-formato-mov-sin-costo-con-movavi/"><u>Cómo Convertir Rápidamente Tu Vídeo SWF Al Formato MOV Sin Costo Con Movavi</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/get-moving-10-best-free-video-speed-controller-apps-for-iphone-and-android/"><u>Get Moving 10 Best Free Video Speed Controller Apps for iPhone and Android</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/upgrade-your-video-collection-seamless-flv-to-m4a-file-conversion-at-no-cost-using-our-web-service/"><u>Upgrade Your Video Collection: Seamless FLV to M4A File Conversion at No Cost Using Our Web Service</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/verslindig-jpeg-format-van-pgm-fotografien-zonder-risico-gratis-met-de-bedrijfsmerk-movavi/"><u>Verslindig JPEG-Format Van PGM-Fotografien Zonder Risico, Gratis Met De Bedrijfsmerk Movavi</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-decoding-the-journey-from-sdr-to-stunning-hdr-images-for-2024/"><u>[New] Decoding the Journey From SDR to Stunning HDR Images for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-integrated-sound-system-guidebook/"><u>[New] Integrated Sound System Guidebook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-rhythm-revivers-guide-to-distorted-beats/"><u>[Updated] The Rhythm Reviver's Guide to Distorted Beats</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-projector-or-tv-optimal-choice-for-excellent-4k-display-experience/"><u>2024 Approved Projector or TV Optimal Choice for Excellent 4K Display Experience</u></a></li>
+<li><a href="https://win-net.techidaily.com/convert-and-save-your-favorite-disclosetv-videos-as-high-quality-mp4-files-with-easy-converter-tools/"><u>Convert and Save Your Favorite Disclose.tv Videos as High-Quality MP4 Files with Easy Converter Tools</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-success-boosting-web-analytics-and-conversion/"><u>Cookiebot-Enabled Success: Boosting Web Analytics and Conversion</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-tracking-solutions/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-optimize-your-websites-analytics-and-personalization/"><u>Cookiebot-Enabled: Optimize Your Website's Analytics and Personalization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhanced-enhance-your-sites-analytics-efficiency/"><u>Cookiebot-Enhanced: Enhance Your Site's Analytics Efficiency</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhanced-the-secure-way-to-personalize-your-website/"><u>Cookiebot-Enhanced: The Secure Way to Personalize Your Website</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oneplus-nord-3-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from OnePlus Nord 3 5G to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/qualcomm-atheros-ar3011-bluetooth-30-download-the-latest-drivers-now/"><u>Qualcomm Atheros AR3011 Bluetooth 3.0: Download the Latest Drivers Now</u></a></li>
 </ul></div>
 

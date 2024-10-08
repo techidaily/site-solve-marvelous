@@ -1,7 +1,7 @@
 ---
 title: "Adapting to Change: The Impact of Quarantine on Modern Working Practices"
-date: 2024-09-29T18:17:09.303Z
-updated: 2024-10-02T21:47:49.694Z
+date: 2024-10-01T18:42:31.355Z
+updated: 2024-10-08T19:29:46.673Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9cbb22dcf88bcb4ceb0ab602c498731d7fd924c3e7f5e5667c887c44d8fe1da7.jpg
@@ -23,30 +23,23 @@ We learned that 82.1% of respondents switched to a remote work setting during th
 
 ![](https://static1.abbyy.com/abbyycommedia/29708/productivity-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Have you been more productive?
 
 Our survey found that 43% of respondents noted they were more productive working from home than in an office, while 32.6% stated that they hadn’t noticed a difference in their level of productivity, and 21.8% claimed that they were less productive. Some respondents shared that they had mixed feeling about working from home.
 
 ![](https://static1.abbyy.com/abbyycommedia/29709/productivity-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _“Mixed - more productive some days, less productive other days”_  
 _“I tried to be as productive as in my work office. The difference was in the time. I had more often pause, then I had worked later, out of worktime.”_  
 _“Depends, some things went better, others worse..”_  
 _“Some of each”_ 
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Have you been more motivated?
 
@@ -66,22 +59,29 @@ _“Working at home while providing full time care has resulted in extremely lon
 _“I will not say I work more or less compared to when things were normal. However, I have noticed that there are lot of time-wasting activities from other colleagues or superiors which rarely comes up when working from home.”_  
 _“Longer hours due to feeling I must perform better under the circumstance of working from home rather than an office building.”_ 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### What is your preferred workplace arrangement when you will be able to return to the office?
 
 Respondents (53%) said that going forward, they would prefer an arrangement that enables flexibility between working from home and working in the office. Many indicated they prefer either splitting their time 50/50 or working mostly from home with some days in the office.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Any advantages?
 
 Participants of the survey pointed out many advantages of remote work. The most popular were:
 
 ![](https://static1.abbyy.com/abbyycommedia/29712/productivity-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Also, some of our users shared their advantages:
 
@@ -99,6 +99,13 @@ _“The lack of in-person communication, in general, makes it less fun to work f
 _“I spend longer periods sitting and not moving around every so often.”_  
 _“Workstation not as powerful as in the Office.”_ 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Work-life balance
 
 The majority of respondents (56%) also noted that working from home has impacted their work-life balance positively. Only 16.3% stated that their work-life balance had been negatively impacted by the lockdown.
@@ -106,18 +113,37 @@ The majority of respondents (56%) also noted that working from home has impacted
 ![](https://static1.abbyy.com/abbyycommedia/29714/productivity-7.jpg)  
 While 40.6% of respondents preferred dispersing work and relaxation throughout the day, 24.8% experienced trouble switching from work to relaxation.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Was it more stressful?
 
 The research showed that working remotely helped 43.8% of respondents to cut down on their stress level, and while 34.5% didn’t notice any changes in their stress level, unfortunately, 20.5% of our users felt more stressed while working from home.
 
 ![](https://static1.abbyy.com/abbyycommedia/29715/productivity-8.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What about your screen time and gadgets usage?
 
@@ -125,23 +151,16 @@ The lockdown made people use their gadgets more, with 65.1% of respondents menti
 
 ![](https://static1.abbyy.com/abbyycommedia/29716/productivity-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 We also asked our users what are their favorite off-screen ways of relaxation. The most important was, to our surprise, watching TV shows and movies, mentioned by 50.6% of respondents. Here are other activities:
 
 ![](https://static1.abbyy.com/abbyycommedia/29717/productivity-10.jpg)  
 Digital Detox, which is a popular term today, is practiced by 21.9%, and 28.8% try to rest from their gadgets, but sometimes fail.  
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 We also wanted to learn if our users follow any blogs or podcasts on meditation, yoga, mindfulness practice, etc. Only 22.2% of survey participants do. Here are some of the named blogs and podcasts; maybe you’ll find something useful for yourself:
@@ -158,13 +177,6 @@ The majority of respondents (51.5%) are 40 – 59 years old. They are specialist
 Thank you everyone that participated in our survey!
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) [Coronavirus](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -229,20 +241,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-exploring-snapseed-a-simple-guide-for-new-users/"><u>[New] 2024 Approved Exploring Snapseed A Simple Guide for New Users</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-going-vertical-post-production-strategies-with-fcpx-and-insta/"><u>[New] In 2024, Going Vertical Post-Production Strategies with FCPX and Insta</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/outube-earning-masterclass-taking-your-streaming-business-to-new-heights-for-2024/"><u>[New] YouTube Earning Masterclass Taking Your Streaming Business to New Heights for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-at-the-joint-conference-on-shared-services-and-outsourcing/"><u>ABBYY at the Joint Conference on Shared Services & Outsourcing</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-clinches-top-position-in-gartners-2023-magic-quadrant-for-advanced-process-mining-solutions/"><u>ABBYY Clinches Top Position in Gartner's 2023 Magic Quadrant for Advanced Process Mining Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-cloud-services-agreement-comprehensive-terms-and-conditions-including-eu-data-protection-regulation-compliance/"><u>ABBYY Cloud Services Agreement: Comprehensive Terms & Conditions Including EU Data Protection Regulation Compliance</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-flexicapture-ai/"><u>ABBYY FlexiCapture - AI駆使した最先端の帳票自動認識プラットフォームについて学ぶ</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-sdk-solutions-for-revolutionizing-package-processing-in-the-transport-industry-insights-from-the-abbyy-blog/"><u>ABBYY SDK Solutions for Revolutionizing Package Processing in the Transport Industry: Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyypwcaiocr/"><u>ABBYYとPwCコンサルティングがAI・OCR技術による新しいパートナーシップを結ぶ</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ai-investments-reaching-3m-by-uk-firms-amidst-strategic-planning-hurdles/"><u>AI Investments Reaching £3M by UK Firms Amidst Strategic Planning Hurdles</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-realme-narzo-n53-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Realme Narzo N53 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-how-to-fix-the-green-screen-on-youtube-on-mac/"><u>In 2024, How to Fix the Green Screen on YouTube on Mac?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-strategies-to-avoid-overuse-of-b-roll-in-cinematography/"><u>In 2024, Strategies to Avoid Overuse of B-Roll in Cinematography</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/printer-setup-solutions-deciphering-and-addressing-the-error-code-30-dilemma/"><u>Printer Setup Solutions: Deciphering and Addressing the 'Error Code -30' Dilemma</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/quick-fixes-solving-pc-problems-using-gpt/"><u>Quick Fixes: Solving PC Problems Using GPT</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ultimate-gopro-studio-steps-for-time-lapse-magic/"><u>[New] Ultimate GoPro Studio Steps for Time Lapse Magic</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-shield-your-snapshots-from-times-tide-explore-cost-effective-solutions/"><u>[Updated] Shield Your Snapshots From Time's Tide - Explore Cost-Effective Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726226530662-mkv-wav-movavi/"><u>網路上自由改建 MKV成 WAV - 使用Movavi音頻編輯器</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726218787890-flvaac-movavi/"><u>無成本線上FLV到AAC格式的直鮮轉換器 - 使用Movavi</u></a></li>
+<li><a href="https://games-able.techidaily.com/an-in-depth-look-at-sonys-online-subscription-pricing/"><u>An In-Depth Look at Sony's Online Subscription Pricing</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/expert-video-extractor-and-downloader-enhanced-firefox-support-for-2024/"><u>Expert Video Extractor & Downloader Enhanced FireFox Support for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/facil-e-gratuit-mudando-mp4-em-ogv-direto-no-movavi-sem-custo-algum/"><u>Fácil E Gratuit@! Mudando MP4 Em OGV Direto No Movavi Sem Custo Algum</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fixing-upside-down-screen-on-windows-11/"><u>Fixing Upside Down Screen on Windows 11</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gratuiti-download-e-conversione-da-mp4-a-m4b-con-movavi-il-tuo-passaggio-online-per-i-podcast-e-gli-audio-libri/"><u>Gratuiti Download E Conversione Da MP4 a M4B Con Movavi – Il Tuo Passaggio Online per I Podcast E Gli Audio Libri</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-nokia-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Nokia Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-oppo-find-x6-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Oppo Find X6 Device</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-smartphone-tools-for-crafting-your-ideal-vocal-sound/"><u>In 2024, Smartphone Tools for Crafting Your Ideal Vocal Sound</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/najlepsi-bezcenne-prekonvertovatelnosti-pro-zakoreny-system-mac/"><u>Najlepší Bezcenné Prekonvertovatelnosti Pro Zákořený Systém - Mac</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/trimming-the-tremble-a-guide-to-smoother-gopro-videos-for-2024/"><u>Trimming the Tremble A Guide to Smoother GoPro Videos for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/avi-mp4-online/"><u>무료 AVI 파일을 MP4로 바꾸기 - Online 변환 도구</u></a></li>
 </ul></div>
 

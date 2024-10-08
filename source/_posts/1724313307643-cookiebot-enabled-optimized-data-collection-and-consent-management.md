@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Optimized Data Collection & Consent Management"
-date: 2024-09-27T03:20:26.597Z
-updated: 2024-10-03T13:05:19.553Z
+date: 2024-10-03T16:23:20.165Z
+updated: 2024-10-08T16:42:37.301Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b3a280654f3cc4ecaa0af8b47827af91d1bc68ec573b9890cc259b048e11faa1.jpg
@@ -20,10 +20,10 @@ Other | Accounts Payable Automation
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Scena automates supplier invoice & credit note processing with ABBYY and Engeneum, saving 60% of processing time with an automated seamless connection to Sage™
@@ -32,16 +32,16 @@ Other | Accounts Payable Automation
 
 ![Sumitomo Warehouse Co. Ltd. & ABBYY](https://static4.abbyy.com/abbyycommedia/31985/02-scena-cover-556x303.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Customer Overview
 
 ![Scena](https://static4.abbyy.com/abbyycommedia/31989/02c-scena-logo-166x30.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | Scena                                          |
 | ------------ | ---------------------------------------------- |
@@ -105,10 +105,10 @@ The solution let’s Scena:
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
@@ -122,10 +122,10 @@ The solution let’s Scena:
 [Read the document](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
@@ -149,17 +149,20 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-high-speed-visual-snapshot-and-voice-commentary-feature/"><u>[New] 2024 Approved High-Speed Visual Snapshot & Voice Commentary Feature</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-top-5-fast-framing-homemade-tips-for-pros-for-2024/"><u>[New] Top 5 Fast-Framing Homemade Tips for Pros for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-pro-tips-navigating-without-watching-edgenuity-content/"><u>[Updated] Pro Tips Navigating Without Watching Edgenuity Content</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-essential-techniques-in-post-production-of-gopro-clips/"><u>2024 Approved Essential Techniques in Post-Production of GoPro Clips</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mp2mov-movavi/"><u>無成本的網路MP2到MOV轉檔工具 - Movavi格式換裝器</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/free-blk-design-system-with-angular-a-comprehensive-ui-kit-compatible-with-bootstrap-and-angularjs/"><u>Free BLK Design System with Angular: A Comprehensive UI Kit Compatible with Bootstrap & AngularJS</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-tecno-spark-20c-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Tecno Spark 20C If I Forgot Security Code or Password? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-lava-agni-2-5g-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Lava Agni 2 5G to PC? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/macmovavi-photoeditor/"><u>Mac用的Movavi PhotoEditor:专业修图与图片编辑解决方案</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/metamorphose-de-fichier-transformez-votre-mp3-gratuitement-en-mp4-sur-internet-via-movavi/"><u>Métamorphose De Fichier : Transformez Votre MP3 Gratuitement en MP4 Sur Internet via Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-gratuite-migration-von-ogg-dateien-zu-mp4-durch-movavi-perfekt-fur-sie/"><u>Online Gratuite Migration Von Ogg-Dateien Zu MP4 Durch Movavi - Perfekt Für Sie!</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-ultimate-guide-to-hardware-and-gadgets/"><u>Tom's Tech Hub: Ultimate Guide to Hardware & Gadgets</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-decoding-sonys-screenshot-system-an-in-depth-look-at-ps4-recording/"><u>[New] In 2024, Decoding Sony's Screenshot System An In-Depth Look at PS4 Recording</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-ending-your-insta-saga-a-comprehensive-guide-to-deactivation/"><u>[New] In 2024, Ending Your Insta Saga A Comprehensive Guide to Deactivation</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-nextgen-codec-battle-is-av1-trumping-vp9-quality/"><u>[Updated] NextGen Codec Battle Is AV1 Trumping VP9 Quality?</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-conversions-with-cookiebot-integration-the-key-to-seo-success/"><u>Enhance Conversions with Cookiebot Integration - The Key to SEO Success!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-user-engagement-powerfully-using-the-advanced-features-of-cookiebot-technology/"><u>Enhance User Engagement Powerfully Using the Advanced Features of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-conversion-tracking-with-our-cutting-edge-cookiebot-system/"><u>Enhanced Conversion Tracking with Our Cutting-Edge Cookiebot System</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-marketing-strategies-with-automated-audience-engagement-the-power-of-cookiebot/"><u>Enhanced Marketing Strategies with Automated Audience Engagement: The Power of Cookiebot</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-user-experience-with-dynamic-content-via-ai-driven-analytics/"><u>Enhanced User Experience with Dynamic Content via AI-Driven Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhancing-digital-footprints-how-our-services-are-powered-by-cookiebot-technology/"><u>Enhancing Digital Footprints: How Our Services Are Powered by Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/harness-the-power-of-cookiebot-for-dynamic-web-analytics-and-conversion-optimization/"><u>Harness the Power of Cookiebot for Dynamic Web Analytics and Conversion Optimization</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/hearth-warming-hear-from-happy-customers-for-2024/"><u>Hearth-Warming Hear From Happy Customers for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Vivo Y78 5G? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-se-2022-with-a-mask-on-drfone-by-drfone-ios/"><u>How to Unlock iPhone SE (2022) with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/put-an-end-to-constant-minecraft-crashes-with-these-6-quick-solutions/"><u>Put an End to Constant Minecraft Crashes with These 6 Quick Solutions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/ultimate-3-fb-movie-extractors-for-2024/"><u>Ultimate 3 Fb Movie Extractors for 2024</u></a></li>
 </ul></div>
 

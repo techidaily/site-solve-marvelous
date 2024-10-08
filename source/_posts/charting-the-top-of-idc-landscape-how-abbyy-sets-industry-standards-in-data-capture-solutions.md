@@ -1,7 +1,7 @@
 ---
 title: Charting the Top of IDC Landscape - How ABBYY Sets Industry Standards in Data Capture Solutions
-date: 2024-09-26T08:20:36.518Z
-updated: 2024-10-02T19:25:43.947Z
+date: 2024-10-07T16:52:30.498Z
+updated: 2024-10-08T17:01:05.964Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e773ad143d0e6a181e98946175694e64ba11aabb2b269c227b4f6fa4a346892f.jpg
@@ -20,10 +20,16 @@ Ce rapport inaugural d’IDC passe en revue les technologies d’IA telles que l
 Le modèle d’analyse des fournisseurs utilisé par IDC MarketScape est conçu pour fournir une vue d’ensemble de la compétitivité des fournisseurs d’ICT (information, communication et technologie) sur un marché donné. Cette méthodologie de recherche utilise une méthode rigoureuse de notation, basée tant sur des critères quantitatifs que qualitatifs, lesquels se traduisent par une illustration graphique unique de la position de chaque prestataire sur un marché donné. Le score de capacité évalue le produit d’un vendeur, sa mise sur le marché et son plan d’exécution à court terme. Le score de stratégie mesure l’alignement des stratégies du fournisseur avec les attentes des clients sur une période de 3 à 5 ans. La part de marché du vendeur est représentée par une icône, plus ou moins grosse.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Merci de votre intérêt pour ABBYY et ses technologies.
@@ -107,17 +113,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-craft-your-vision-essential-windows-10-tips-for-future-directors/"><u>[New] Craft Your Vision Essential Windows 10 Tips for Future Directors</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-rhythm-research-capture-and-review-music-files-for-2024/"><u>[New] Rhythm Research Capture & Review Music Files for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-earnings-insights-for-video-content-surpassing-1-million-views/"><u>[Updated] In 2024, Earnings Insights for Video Content Surpassing 1 Million Views</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/convert-videos-effortlessly-with-movavis-no-cost-nsv-to-mp4-tool-do-it-online/"><u>Convert Videos Effortlessly with Movavi's No-Cost NSV to MP4 Tool - Do It Online!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-and-setup-guide-logitech-driving-simulator-for-windows-7-8-and-10-systems/"><u>Download & Setup Guide: Logitech Driving Simulator for Windows 7, 8 and 10 Systems</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-joining-flv-files-a-step-by-step-guide/"><u>In 2024, Joining FLV Files A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-mastering-fb-free-tools-for-timely-posts/"><u>In 2024, Mastering FB Free Tools for Timely Posts</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/mastering-the-art-of-high-quality-photo-for-free-for-2024/"><u>Mastering the Art of High Quality Photo for Free for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/scarica-e-converti-i-tuoi-amv-in-file-mp3-gratuitamente-con-movavi/"><u>Scarica E Converti I Tuoi AMV in File MP3 Gratuitamente Con Movavi</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solve-update-woes-8-essential-fixes-for-windows-10-error-code-0x800f0922/"><u>Solve Update Woes: 8 Essential Fixes for Windows 10 Error Code 0X800f0922</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transforme-gratuitement-votre-fichier-wmv-en-format-mp4-avec-videosan/"><u>Transforme Gratuitement Votre Fichier WMV en Format MP4 Avec Vidéosan</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/vod-in-ogg-vorbis-format-vob-to-high-quality-lossless-audio-flac-free-conversion-tool-by-movavi/"><u>VOD in Ogg Vorbis Format (VOB) to High-Quality Lossless Audio (FLAC): Free Conversion Tool by Movavi</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-brain-eaters-unleashed-a-compelling-list-for-2024/"><u>[New] Brain-Eaters Unleashed A Compelling List for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-shaping-stories-the-art-of-deformed-photographyvideo-words/"><u>[New] Shaping Stories The Art of Deformed Photography/Video Words</u></a></li>
+<li><a href="https://win-able.techidaily.com/error-0xc0000022-explained-solutions-to-get-your-adobe-app-running-smoothly-again/"><u>Error 0xC0000022 Explained – Solutions to Get Your Adobe App Running Smoothly Again</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ent-monetization-is-it-real-on-youtube-in-2024/"><u>Frequent Monetization Is It Real on YouTube, In 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-everything-from-apple-iphone-se-to-iphone-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Everything from Apple iPhone SE to iPhone | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-4-ways-to-unlock-apple-iphone-se-2022-to-use-usb-accessories-without-passcode-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Unlock Apple iPhone SE (2022) to Use USB Accessories Without Passcode | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-webs-best-vertical-video-editors-a-2023-review/"><u>New Webs Best Vertical Video Editors A 2023 Review</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/next-gen-key-smartwatch-opens-your-mac/"><u>Next-Gen Key Smartwatch Opens Your Mac</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimizing-web-pages-for-maximum-search-engine-visibility/"><u>Optimizing Web Pages for Maximum Search Engine Visibility</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/preparing-your-enterprise-for-cloud-transition-insights-from-the-abbyy-perspective/"><u>Preparing Your Enterprise for Cloud Transition: Insights From the ABBYY Perspective</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/quick-recovery-methods-for-erased-reddit-topics-for-2024/"><u>Quick Recovery Methods for Erased Reddit Topics for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-accounts-payable-the-strategic-alliance-between-siemens-and-abbyy-in-process-automation/"><u>Revolutionizing Accounts Payable: The Strategic Alliance Between Siemens & ABBYY in Process Automation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/sysbus-verstarkung-der-digitalen-fahigkeiten-ihrer-teammitglieder/"><u>Sysbus - Verstärkung Der Digitalen Fähigkeiten Ihrer Teammitglieder</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/the-limits-of-identity-checks-in-fraud-prevention-a-deeper-look-into-effective-strategies/"><u>The Limits of Identity Checks in Fraud Prevention - A Deeper Look Into Effective Strategies</u></a></li>
 </ul></div>
 

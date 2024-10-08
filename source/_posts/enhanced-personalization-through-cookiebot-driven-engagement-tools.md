@@ -1,7 +1,7 @@
 ---
 title: Enhanced Personalization Through Cookiebot-Driven Engagement Tools
-date: 2024-10-01T02:50:58.542Z
-updated: 2024-10-02T20:49:07.686Z
+date: 2024-10-01T18:06:22.716Z
+updated: 2024-10-08T19:23:18.838Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571566316abe24ad6c80cbdaa7.jpeg
@@ -20,10 +20,10 @@ Integrieren Sie KI-basierte OCR-Funktionen in Ihre Applikationen.
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/finereader-engine/fre_visual.jpg?h=500&iar=0&w=2560)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Automatische Dokumentanalyse
@@ -31,10 +31,10 @@ Integrieren Sie KI-basierte OCR-Funktionen in Ihre Applikationen.
 Der automatisierte Schritt der Dokumentenanalyse ist ein entscheidender Teil des gesamten Erkennungsprozesses. Um diesen Schritt mit möglichst hoher Präzision durchzuführen, arbeitet ABBYY FineReader Engine mit einer Vielzahl ausgereifter Algorithmen auf der Grundlage von KI-Methoden. Während der Dokumentenanalyse wird die logische Struktur des Dokuments analysiert – die erste und letzte Dokumentenseite werden identifiziert, Formatierungselemente wie Fußnoten, Kopfzeilen, Fußzeilen und Inhaltsverzeichnis werden erkannt. Gleichzeitig wird das Layout jeder einzelnen Seite analysiert und jede Seite wird in einzelne Objekte wie Textblöcke, Bilder, Tabellen und Tabellenzellen, Barcodes und Trennelemente unterteilt. Zusätzlich erkennen die Analysealgorithmen die Seitenausrichtung, identifizieren Doppelseiten und vertikalen Text und definieren Seitenbereiche, die für den OCR-Prozess nicht relevant sind. Auf diese Weise kann ABBYY FineReader Engine Textbereiche und Felder definieren, die erkannt werden sollten, und Seitenbereiche wie Bilder oder Diagramme, die in ihrer ursprünglichen Form beibehalten werden. Gleichzeitig gehen Informationen über die logische Struktur des Dokuments ein, einschließlich der Formatierung. Diese werden am Ende des OCR-Prozesses verwendet, wenn das Dokument exakt rekonstruiert wird.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Manuelle Blockdefinition für Field Level Erkennung
@@ -42,10 +42,10 @@ Der automatisierte Schritt der Dokumentenanalyse ist ein entscheidender Teil des
 Die Texterkennungsbereiche können manuell festgelegt werden. In diesem Fall wird das relevante Erkennungsfeld direkt definiert und die automatisierte Dokumentenanalyse ist überflüssig. Im späteren Erkennungsschritt erhält der Erkennungsalgorithmus Informationen über die Koordinaten und Eigenschaften der gewünschten Felder und wendet den OCR-Prozess nur auf den festgelegten Bereich an.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Möchten Sie mit unserem Expertenteam sprechen?
@@ -67,19 +67,20 @@ Die Texterkennungsbereiche können manuell festgelegt werden. In diesem Fall wir
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-navigating-the-complexities-of-chroma-removal-kinemaster-edition-for-2024/"><u>[New] Navigating the Complexities of Chroma Removal (KineMaster Edition) for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-exploring-ancient-facebook-tales-your-pcmobile-checklist-for-2024/"><u>[Updated] Exploring Ancient Facebook Tales Your PC/Mobile Checklist for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-in-overwatch-streamlining-the-recording-process/"><u>2024 Approved In Overwatch Streamlining the Recording Process</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-pro-max-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 Pro Max To Other iPhone 14 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Oppo A79 5G? | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/iphone-data-recovery-software-for-mac-recover-deleted-photos-videos-and-contacts/"><u>IPhone Data Recovery Software for Mac. Recover Deleted Photos, Videos, & Contacts</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-looking-forward-to-making-up-your-career-in-video-editing-land-in-here-to-learn-about-the-credibility-of-some-popular-video-editing-course/"><u>New 2024 Approved Looking Forward to Making up Your Career in Video Editing? Land in Here to Learn About the Credibility of some Popular Video Editing Courses</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-divide-and-conquer-the-best-free-wmv-video-splitters/"><u>New In 2024, Divide and Conquer The Best Free WMV Video Splitters</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/rparpaabbyy/"><u>RPA技術の先駆者：日商エレ、RPAテクノロジーズ、ABBYYジャパンの新たな提携</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/significant-financial-boost-abbyy-records-a-25-surge-in-revenue-during-2017/"><u>Significant Financial Boost: ABBYY Records a 25% Surge in Revenue During 2017</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/streamline-client-onboarding-for-increased-devotion-to-your-financial-firm/"><u>Streamline Client Onboarding for Increased Devotion to Your Financial Firm</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/telefonicas-dsl-gesuche-nutzen-abbyy-formreader-schnellere-breitbandverbindungen-bevorstehen/"><u>Telefonicas DSL-Gesuche Nutzen ABBYY FormReader - Schnellere Breitbandverbindungen Bevorstehen</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/tools-that-enhance-your-travel-videos/"><u>Tools That Enhance Your Travel Videos</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/unlock-enhanced-online-performance-with-our-secret-sauce-cookiebot-technology/"><u>Unlock Enhanced Online Performance with Our Secret Sauce - Cookiebot Technology</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-deciphering-the-language-of-youtube-live-images/"><u>[Updated] In 2024, Deciphering the Language of YouTube Live Images</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-huawei-p10-an-overview-of-cutting-edge-mobile-experience/"><u>[Updated] In 2024, The Huawei P10 An Overview of Cutting-Edge Mobile Experience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-creme-de-la-creativite-youtube-subscriber-list/"><u>[Updated] The Crème De La Créativité YouTube Subscriber List</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mp2mov-movavi/"><u>無成本的網路MP2到MOV轉檔工具 - Movavi格式換裝器</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/clearpathstoexpertisewithyoucamcapture/"><u>ClearPathsToExpertiseWithYouCamCapture</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-convertir-video-ts-a-formato-mp4-de-forma-gratuita-online-con-movavi/"><u>Cómo Convertir Video TS a Formato MP4 De Forma Gratuita Online Con Movavi</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/diy-solutions-for-persistent-computer-hangs-and-stops-working-problems/"><u>DIY Solutions for Persistent Computer Hangs and Stops Working Problems</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Poco X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-13-passcode-not-working-by-drfone-ios/"><u>In 2024, How to Fix Apple iPhone 13 Passcode not Working?</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/macmovavi-photoeditor/"><u>Mac用的Movavi PhotoEditor:专业修图与图片编辑解决方案</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/metamorphose-de-fichier-transformez-votre-mp3-gratuitement-en-mp4-sur-internet-via-movavi/"><u>Métamorphose De Fichier : Transformez Votre MP3 Gratuitement en MP4 Sur Internet via Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mettre-en-forme-votre-fichier-audio-aiff-en-format-video-mp4-gratuitement-via-le-site-web-de-movavi/"><u>Mettre en Forme Votre Fichier Audio AIFF en Format Vidéo MP4 Gratuitement via Le Site Web De Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/online-gratuite-migration-von-ogg-dateien-zu-mp4-durch-movavi-perfekt-fur-sie/"><u>Online Gratuite Migration Von Ogg-Dateien Zu MP4 Durch Movavi - Perfekt Für Sie!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-tips-and-tricks-for-efficiently-screenshots-using-google-chromebook-devices/"><u>Ultimate Tips & Tricks for Efficiently Screenshots Using Google Chromebook Devices</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mov-m4v/"><u>무료 MOV M4V 파일 변환기 - 화면을 위한 원활한 이미지로 전환하는 가장 최신 도구</u></a></li>
 </ul></div>
 

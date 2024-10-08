@@ -1,7 +1,7 @@
 ---
 title: "Appointment of Neil Murphy as CSO: How ABBYY Strengthens Its Executive Team"
-date: 2024-10-01T00:34:39.246Z
-updated: 2024-10-03T06:53:00.398Z
+date: 2024-10-05T19:15:06.268Z
+updated: 2024-10-08T16:58:40.935Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5c068034f0080166994d164493cb808318b6f6a0f4d45de0f56404a9b7904a53.jpg
@@ -38,10 +38,10 @@ _Neil Murphy, Chief Sales Officer bei ABBYY._
 Um mehr über ABBYYs intelligente Automatisierungslösungen zu erfahren, besuchen Sie <https://www.abbyy.com/de/company/about-us/>.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -55,10 +55,10 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 14
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -66,10 +66,10 @@ ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, gesch
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -95,19 +95,18 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-downloading-audio-made-simple-with-these-19-top-quality-free-rippers-from-youtube/"><u>[New] 2024 Approved Downloading Audio Made Simple with These 19 Top-Quality Free Rippers From YouTube</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-inside-look-apples-m1-max-attachments/"><u>[New] Inside Look Apple's M1 Max Attachments</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-a-compreenas-guide-to-the-best-6-helmet-attachments-for-gopros/"><u>[Updated] A Compreenas Guide to The Best 6 Helmet Attachments for GOPROs</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-exploring-collaborative-designs-the-best-free-and-paid-apps-in-videomosaic-for-2024/"><u>[Updated] Exploring Collaborative Designs The Best Free & Paid Apps in Videomosaic for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-premium-free-graphic-havens-a-comprehensive-guide-to-top-art-portals/"><u>2024 Approved Premium-Free Graphic Havens A Comprehensive Guide to Top Art Portals</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/advanced-analytics-through-automated-data-collection-the-cookiebot-edge/"><u>Advanced Analytics Through Automated Data Collection: The Cookiebot Edge</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ai/"><u>AI駆動知覚学習: 高度なコンテンツ分析が求められる時代</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/arsenal-womens-fc-champions-abbyy-as-top-tier-cognitive-processing-partner/"><u>Arsenal Womens FC Champions ABBYY as Top-Tier Cognitive Processing Partner</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/convert-iphone-photos-of-documents-into-editable-text-with-scan-and-ocr-finereader-app/"><u>Convert iPhone Photos of Documents Into Editable Text with Scan & OCR - FineReader App</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-solutions-optimize-your-sites-traffic/"><u>Cookiebot-Driven Solutions: Optimize Your Site's Traffic</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/enter-the-contest-for-your-chance-at-a-complimentary-corsair-t2-elite-gaming-seat/"><u>Enter the Contest for Your Chance at a Complimentary Corsair T2 Elite Gaming Seat</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-xiaomi-redmi-note-12-pro-5g-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Xiaomi Redmi Note 12 Pro 5G in Minutes | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-find-my-iphone-without-apple-id-from-your-iphone-6-plus-by-drfone-ios/"><u>In 2024, How to Remove Find My iPhone without Apple ID From your iPhone 6 Plus?</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/selectionnez-les-meilleures-editions-lecteur-de-pdf-gratis-guide-2024/"><u>Sélectionnez Les Meilleures Éditions Lecteur De PDF Gratis: Guide 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-21-pioneering-metaverse-ventures-for-insightful-discussion-for-2024/"><u>[Updated] 21 Pioneering Metaverse Ventures for Insightful Discussion for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724312994221-abbyy/"><u>「ABBYYによる国際調査:ドキュメント内容情報取得技術の最新研究結果」</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-ultimate-guide-mastering-snapchats-call-and-chat-features/"><u>2024 Approved The Ultimate Guide Mastering Snapchat's Call & Chat Features</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-dominates-the-2024-evalgroups-peak-matrix-benchmark/"><u>ABBYY Dominates the 2024 EvalGroup's PEAK Matrix Benchmark</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-japan-sb/"><u>ABBYY Japan ソフトウェア投入に合わせて SBモバイルサービスが新規事業を展開 - プレスリリース</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/achieve-better-engagement-with-websites-optimized-using-the-cookiebot-platform/"><u>Achieve Better Engagement with Websites Optimized Using the Cookiebot Platform</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-video-aesthetics-to-meet-instagram-standards-for-2024/"><u>Elevate Video Aesthetics to Meet Instagram Standards for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-apple-iphone-14-pro-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change GPS Location on Apple iPhone 14 Pro Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-the-best-of-both-worlds-free-and-paid-vlog-video-editing-software-compared/"><u>New 2024 Approved The Best of Both Worlds Free and Paid Vlog Video Editing Software Compared</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-oneplus-nord-3-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/warum-unternehmen-content-kenntnis-erwerben-mussen-um-die-entwicklung-der-intelligenten-prozessautomation-voranzutreiben-eine-abbyy-langzeitstudie-versteht-17/"><u>Warum Unternehmen Content-Kenntnis Erwerben Müssen, Um Die Entwicklung Der Intelligenten Prozessautomation Voranzutreiben – Eine ABBYY-Langzeitstudie Versteht Es</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/what-is-process-mining-and-why-use-it-a-comprehensive-guide/"><u>What Is Process Mining and Why Use It: A Comprehensive Guide</u></a></li>
 </ul></div>
 

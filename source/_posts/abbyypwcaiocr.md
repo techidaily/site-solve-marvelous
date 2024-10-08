@@ -1,7 +1,7 @@
 ---
 title: ABBYYとPwCコンサルティングがAI・OCR技術による新しいパートナーシップを結ぶ
-date: 2024-09-30T19:48:24.829Z
-updated: 2024-10-03T01:49:10.902Z
+date: 2024-10-07T19:01:34.253Z
+updated: 2024-10-08T17:25:47.898Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a88766153a92e1f9e8401a4428c9fb.jpg
@@ -67,27 +67,29 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://solve-marvelous.techidaily.com/1726226530662-mkv-wav-movavi/"><u>網路上自由改建 MKV成 WAV - 使用Movavi音頻編輯器</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726218787890-flvaac-movavi/"><u>無成本線上FLV到AAC格式的直鮮轉換器 - 使用Movavi</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/exceptional-value-premium-asmr-microphones-at-low-costs/"><u>Exceptional Value Premium ASMR Microphones at Low Costs</u></a></li>
-<li><a href="https://program-issues.techidaily.com/expert-advice-for-fixing-persistent-lags-and-freezes-during-deathloop-sessions-on-your-gaming-console-or-pc/"><u>Expert Advice for Fixing Persistent Lags and Freezes During Deathloop Sessions on Your Gaming Console or PC</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-variations-the-main-features-that-set-ipad-and-ipad-air-apart/"><u>Exploring Variations: The Main Features that Set iPad & iPad Air Apart</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/facil-e-gratuit-mudando-mp4-em-ogv-direto-no-movavi-sem-custo-algum/"><u>Fácil E Gratuit@! Mudando MP4 Em OGV Direto No Movavi Sem Custo Algum</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratuiti-download-e-conversione-da-mp4-a-m4b-con-movavi-il-tuo-passaggio-online-per-i-podcast-e-gli-audio-libri/"><u>Gratuiti Download E Conversione Da MP4 a M4B Con Movavi – Il Tuo Passaggio Online per I Podcast E Gli Audio Libri</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-messages-from-your-oppo-by-fonelab-android-recover-messages/"><u>How to recover old messages from your Oppo</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-tecno-camon-20-pro-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Tecno Camon 20 Pro 5G Phone? | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-the-shutters-symphony-top-techniques-for-exquisite-images/"><u>In 2024, The Shutter's Symphony Top Techniques for Exquisite Images</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/najlepsi-bezcenne-prekonvertovatelnosti-pro-zakoreny-system-mac/"><u>Najlepší Bezcenné Prekonvertovatelnosti Pro Zákořený Systém - Mac</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/tackling-windows-store-mishaps-cure-0x80072f30-glitches/"><u>Tackling Windows Store Mishaps: Cure 0X80072F30 Glitches</u></a></li>
-<li><a href="https://win11.techidaily.com/unifying-data-points-merging-text-from-various-excel-cells-into-a-single-cell/"><u>Unifying Data Points: Merging Text From Various Excel Cells Into a Single Cell</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/vyber-bezcenne-vystrihovaci-zelezo-za-2024-aktualizacni-akt-poznamky-movavi-bezcennych-topu-14-nastroju/"><u>Vyber Bezcenné Vystřihovací Železo Za 2024 [Aktualizační Akt] – Poznámky Movavi Bezcenných Topu 14 Nástrojů</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/avi-mp4-online/"><u>무료 AVI 파일을 MP4로 바꾸기 - Online 변환 도구</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-perfect-your-video-a-comprehensive-guide-to-ideal-thumbnail-heights/"><u>[New] In 2024, Perfect Your Video A Comprehensive Guide to Ideal Thumbnail Heights</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-techniques-for-incremental-volume-reduction-in-pro-video-editing/"><u>2024 Approved Techniques for Incremental Volume Reduction in Pro Video Editing</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-performance-mastering-online-marketing-metrics-effortlessly/"><u>Cookiebot-Driven Performance: Mastering Online Marketing Metrics Effortlessly</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-user-experience-and-conversion-rates/"><u>Cookiebot-Enabled: Enhancing User Experience and Conversion Rates</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-sites-analytics-and-personalization/"><u>Cookiebot-Enabled: Enhancing Your Site's Analytics and Personalization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-optimizing-your-site-with-advanced-tracking-technology/"><u>Cookiebot: Optimizing Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-the-secret-ingredient-for-optimized-user-experience/"><u>Cookiebot: The Secret Ingredient for Optimized User Experience</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/creating-user-friendly-navigation-the-power-of-efficient-page-management/"><u>Creating User-Friendly Navigation: The Power of Efficient Page Management</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/drive-more-leads-using-the-efficient-cookiebot-analytics-system/"><u>Drive More Leads Using the Efficient Cookiebot Analytics System</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/driven-with-advanced-cookieless-tracking-technology/"><u>Driven with Advanced Cookieless Tracking Technology</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/essential-upgrades-for-your-ipad-pro-expert-picks-s-must-have-accessories/"><u>Essential Upgrades for Your iPad Pro: Expert Picks 'S Must-Have Accessories</u></a></li>
+<li><a href="https://win-unique.techidaily.com/get-your-hands-on-new-hip-hop-music-downloads-high-quality-mp3-and-flac-options-available-now/"><u>Get Your Hands on New Hip Hop Music Downloads – High-Quality MP3 and FLAC Options Available Now</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-13-pro-without-apple-id-by-drfone-ios/"><u>How to Erase an Apple iPhone 13 Pro without Apple ID?</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-increase-dedicated-video-ram-vram-in-windows-11-and-11/"><u>How to Increase Dedicated Video RAM (VRAM) in Windows 11 and 11</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-realme-11-proplus-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/nest-egg-personalized-steam-picks/"><u>Nest Egg: Personalized Steam Picks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-itel-a70-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Itel A70 Phones</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

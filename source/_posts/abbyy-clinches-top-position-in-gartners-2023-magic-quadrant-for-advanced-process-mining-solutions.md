@@ -1,7 +1,7 @@
 ---
 title: ABBYY Clinches Top Position in Gartner's 2023 Magic Quadrant for Advanced Process Mining Solutions
-date: 2024-09-30T17:00:42.816Z
-updated: 2024-10-03T04:34:02.153Z
+date: 2024-10-05T18:14:36.702Z
+updated: 2024-10-08T17:01:45.933Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/648356b382a636832a6e99201a4517a582a77b906dab7a37be3d640b5bfda50d.jpg
@@ -43,10 +43,10 @@ _1 Gartner® Magic Quadrant™ for Process Mining Tools, March 20, 2023, ID G007
 _2 Gartner, [Forecast Analysis: Process Mining, Worldwide](https://www.gartner.com/en/documents/4007520), Oct. 26, 2021_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -60,10 +60,10 @@ ABBYY is a US-based global company with offices in 14 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -71,10 +71,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -100,22 +100,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-brisk-blueprints-for-scribing-presentations-for-2024/"><u>[New] Brisk Blueprints for Scribing Presentations for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-channel-conclusion-mastery-customized-screens-in-focus/"><u>[New] Channel Conclusion Mastery Customized Screens in Focus</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/aximizing-profits-the-ultimate-guide-to-youtube-revenue-for-2024/"><u>[New] Maximizing Profits The Ultimate Guide to YouTube Revenue for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-depth-look-screen-capture-tools-for-mac-for-2024/"><u>[Updated] In-Depth Look Screen Capture Tools for Mac for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-deciphering-complete-fbm-call-transcripts-guide/"><u>2024 Approved Deciphering Complete FBM Call Transcripts Guide</u></a></li>
-<li><a href="https://extra-information.techidaily.com/are-m1-laptops-setting-the-standard-in-editing-studios-in-2024/"><u>Are M1 Laptops Setting the Standard in Editing Studios, In 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cambia-facilmente-tu-archivo-pbm-a-formato-png-sin-costo-utilizando-el-conversor-web-de-movavi/"><u>Cambia Fácilmente Tu Archivo PBM a Formato PNG Sin Costo Utilizando El Conversor Web De Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-desfondar-fotografias-gratuitamente-usando-software-virtual/"><u>Cómo Desfondar Fotografías Gratuitamente Usando Software Virtual</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/download-movavis-xrecorder-now-premium-free-pc-recording-tool-with-advanced-features/"><u>Download Movavi's XRecorder Now: Premium, FREE PC Recording Tool with Advanced Features</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratuitamente-converte-i-file-nsv-a-formato-wmv-con-movavi-fai-trasformare-le-tue-video/"><u>Gratuitamente Converte I File NSV a Formato WMV Con Movavi - Fai Trasformare Le Tue Video</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on OnePlus 12R? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/kostenloze-online-mpg-conversie-naar-wav-professioneel-door-movavi/"><u>Kostenloze Online Mpg-Conversie Naar Wav - Professioneel Door Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/los-15-mejores-videoplayer-para-ver-mp4-sin-costo-en-pcs-con-windows-10-y-computadoras-mac-gratis/"><u>Los 15 Mejores Videoplayer Para Ver MP4 Sin Costo en PCs Con Windows 10 Y Computadoras Mac - Gratis</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726224729910-movavi/"><u>Movaviでシームレスな画像バックグラウンド作成ガイド</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/sviluppatore-audio-avanzato-software-editoriale-music-per-modifiche-sonore-soluzioni-movavi/"><u>Sviluppatore Audio Avanzato: Software Editoriale Music per Modifiche Sonore - Soluzioni Movavi</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/ultimate-guide-to-editbox-suite-reviewed/"><u>Ultimate Guide to EditBox Suite, Reviewed</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-fusion-of-youtube-beats-and-imovie-editing-magic-for-2024/"><u>[New] Fusion of YouTube Beats and iMovie Editing Magic for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-top-12-clicker-games-on-pc/"><u>[New] In 2024, Top 12 Clicker Games on PC</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-13-best-ways-to-make-money-on-reddit-no-experience-needed/"><u>[Updated] 13 Best Ways to Make Money on Reddit - No Experience Needed</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-vector-databases-accelerate-ai-innovation-and-performance/"><u>How Vector Databases Accelerate AI Innovation and Performance</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-the-arlo-home-defense-system-with-hands-on-tips-and-tricks/"><u>Mastering the Arlo Home Defense System with Hands-On Tips and Tricks</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimized-webpage-strategies-enhancing-your-online-presence/"><u>Optimized Webpage Strategies: Enhancing Your Online Presence</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimizing-with-cookiebot-boosting-your-websites-potential/"><u>Optimizing with Cookiebot: Boosting Your Website's Potential</u></a></li>
+<li><a href="https://games-able.techidaily.com/pathways-of-steam-screenshot-preservation/"><u>Pathways of Steam Screenshot Preservation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionize-automation-through-informed-decisions-discover-how-with-process-and-task-mining-at-abbyys-special-webinar/"><u>Revolutionize Automation Through Informed Decisions: Discover How with Process and Task Mining at ABBYY's Special Webinar</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-wine-selection-how-abbyys-ocr-technology-fuels-vivinos-global-success/"><u>Revolutionizing Wine Selection: How ABBYY's OCR Technology Fuels Vivino's Global Success</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/seamless-user-engagement-boosted-by-innovative-cookiebot-technology-solutions/"><u>Seamless User Engagement Boosted by Innovative Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-the-overzoom-issue-tips-for-adjusting-your-whatsapp-camera-settings/"><u>Solving the Overzoom Issue: Tips for Adjusting Your WhatsApp Camera Settings</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/the-future-is-now-understanding-ai-governance-on-the-ai-pulse-podcast/"><u>The Future Is Now: Understanding AI Governance on the AI Pulse Podcast</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transform-images-into-editable-text-ocr-for-pdfjpg-files-on-ios-via-finereader/"><u>Transform Images Into Editable Text - OCR for PDF/JPG Files on iOS via FineReader</u></a></li>
+<li><a href="https://windows11.techidaily.com/win11-audio-levels-on-your-terms-designing-your-shortcuts/"><u>Win11 Audio Levels on Your Terms: Designing Your Shortcuts</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Elevate Your Accounts Payable: How Scena Achieved a Staggering 60%% Reduction in Invoice & Credit Note Processing with Seamless ABBYY, Engeneum Automation and Sage Integration - Insider Customer Insights"
-date: 2024-09-26T06:04:17.985Z
-updated: 2024-10-02T21:05:40.014Z
+date: 2024-10-07T16:24:43.175Z
+updated: 2024-10-08T17:42:23.289Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b1298562b7193494067b08625dc9c68d20eae1f23bf97adbfc646940ddcb9e4e.jpg
@@ -19,6 +19,13 @@ Other | Accounts Payable Automation
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Scena automates supplier invoice & credit note processing with ABBYY and Engeneum, saving 60% of processing time with an automated seamless connection to Sage™
 
 Other | Accounts Payable Automation 
@@ -26,15 +33,22 @@ Other | Accounts Payable Automation
 ![Sumitomo Warehouse Co. Ltd. & ABBYY](https://static4.abbyy.com/abbyycommedia/31985/02-scena-cover-556x303.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Customer Overview
 
 ![Scena](https://static4.abbyy.com/abbyycommedia/31989/02c-scena-logo-166x30.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | Scena                                          |
 | ------------ | ---------------------------------------------- |
@@ -98,10 +112,10 @@ The solution let’s Scena:
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
@@ -112,21 +126,7 @@ The solution let’s Scena:
 
 [![Download the PDF version](https://static4.abbyy.com/abbyycommedia/31986/02d-scena-cover-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") [PDF Version](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") 
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Read the document](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -149,22 +149,18 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-multiplatform-iptv-live-streaming/"><u>[New] 2024 Approved Multiplatform IPTV Live Streaming</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-unveiling-the-basics-an-approachable-hdr-review/"><u>[Updated] 2024 Approved Unveiling the Basics An Approachable HDR Review</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unmasking-phony-fans-in-social-media/"><u>[Updated] Unmasking Phony Fans in Social Media</u></a></li>
-<li><a href="https://techtrends.techidaily.com/chatgpt-unveiled-how-this-ai-is-transforming-natural-language-processing/"><u>ChatGPT Unveiled: How This AI Is Transforming Natural Language Processing</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-drivers-now-smooth-installation-for-your-microsoft-wireless-mouse-5000/"><u>Download Drivers Now! Smooth Installation for Your Microsoft Wireless Mouse 5000</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/drive-traffic-with-automated-ppc-the-power-of-cookiebot-technology/"><u>Drive Traffic with Automated PPC: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/driven-with-advanced-data-protection-the-power-of-cookiebot-technology/"><u>Driven with Advanced Data Protection: The Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-conversion-tracking-with-customizable-cookiebot-solutions/"><u>Enhanced Conversion Tracking with Customizable Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-site-analytics-with-the-power-of-cookiebot-technology/"><u>Enhanced Site Analytics with the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhancing-your-web-experience-through-cutting-edge-cookiebot-features/"><u>Enhancing Your Web Experience Through Cutting-Edge Cookiebot Features</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/exploring-the-anatomy-of-a-web-page-tips-and-strategies/"><u>Exploring the Anatomy of a Web Page: Tips and Strategies</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/flexicapture-von-abbyy-effiziente-losung-fur-den-abruf-und-die-bearbeitung-digitaler-fahrzeugunterlagen-mit-der-software-gas-geben/"><u>FlexiCapture Von ABBYY: Effiziente Lösung Für Den Abruf Und Die Bearbeitung Digitaler Fahrzeugunterlagen Mit Der Software Gas Geben</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gartners-2023-magic-quadrant-acknowledges-abbyy-as-the-preeminent-leader-in-process-mining-technology/"><u>Gartner's 2023 Magic Quadrant Acknowledges ABBYY as the Preeminent Leader in Process Mining Technology</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Itel P55 5G? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-apple-iphone-se-2020-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock on Apple iPhone SE (2020) or iPad?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-infinix-gt-10-pro-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Infinix GT 10 Pro Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://driver-error.techidaily.com/resolving-enex-driver-not-loading-issue-on-windows-11/"><u>Resolving eNEX Driver Not Loading Issue on Windows 11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-monitoring-your-instagram-exit-strategy/"><u>[New] In 2024, Monitoring Your Instagram Exit Strategy</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-ace-your-youtube-live-with-these-7-powerful-live-streaming-apps-iosandroid-os/"><u>[Updated] Ace Your YouTube LIVE with These 7 Powerful Live Streaming Apps (iOS/Android OS)</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/3gpwmv-movavi/"><u>免費移動中的3GP到WMV格式轉換 - 利用Movavi工具</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/a-lista-dos-8-mestres-gratis-em-gerar-glitch-effects-and-imperfections-for-designers/"><u>A Lista Dos 8 Mestres Grátis Em Gerar Glitch Effects and Imperfections for Designers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/beware-the-google-bard-application-contains-harmful-software/"><u>Beware: The Google Bard Application Contains Harmful Software!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converti-video-mp4-a-formato-libero-aac-sul-web-senza-costi-usando-lapplicazione-di-moveavi/"><u>Converti Video MP4 a Formato Libero AAC Sul Web Senza Costi, Usando L'applicazione Di Moveavi</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-your-ultimate-wireless-driver-solution/"><u>Download Your Ultimate Wireless Driver Solution</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guide-rapide-transformez-vos-fichiers-raw-en-images-de-haute-qualite-au-format-jpeg/"><u>Guide Rapide : Transformez Vos Fichiers RAW en Images De Haute Qualité Au Format JPEG</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-optimally-utilize-a-creative-commons-license/"><u>How to Optimally Utilize a Creative Commons License</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-samsung-galaxy-z-fold-5-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Samsung Galaxy Z Fold 5 to Another | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-pathway-to-perfect-pitches-insights-from-magix-maker/"><u>In 2024, The Pathway to Perfect Pitches Insights From Magix Maker</u></a></li>
+<li><a href="https://video-capture.techidaily.com/step-by-step-guide-changing-aac-to-ac3-format-on-your-videos/"><u>Step-by-Step Guide: Changing AAC to AC3 Format on Your Videos</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mkvavi-wmvm4v/"><u>오픈소스 MKV/AVI를 WMV/M4V로 자유성: 영상 코어 강조</u></a></li>
 </ul></div>
 

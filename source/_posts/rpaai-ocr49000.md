@@ -1,7 +1,7 @@
 ---
 title: RPAと融合したAI OCRテクノロジーで、年間約4万9000時間を省き業務効率革新
-date: 2024-09-27T12:56:21.274Z
-updated: 2024-10-03T03:34:18.847Z
+date: 2024-10-06T19:17:41.273Z
+updated: 2024-10-08T16:11:56.469Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/255abe49d787e06c0ed6c6f504e1d68fdfd70d2804f8cd2447f9f7cced35cd22.jpg
@@ -20,6 +20,13 @@ Oil & Gas | Document Management
 
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## AI OCRを使うことで、紙帳票の業務効率化にも寄与   
  RPAと組み合わせ年間約4万9千時間の削減に成功
 
@@ -27,23 +34,9 @@ Oil & Gas | Document Management
 
 ![](https://static1.abbyy.com/abbyycommedia/35782/itochu-556x303.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### お客様の概要
 
 ![伊藤忠商事株式会社](https://static2.abbyy.com/abbyycommedia/35788/itochu-183x75.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | 氏名     | 伊藤忠商事株式会社                      |
 | ------ | ------------------------------ |
@@ -127,15 +120,22 @@ DXの必要性が謳われ、多くの企業がDXに取り組んでいるが、�
 
 [![ABBYY FlexiCapture](https://static4.abbyy.com/abbyycommedia/35820/flexicapture_360x162_v2.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![ABBYY Vantage](https://static4.abbyy.com/abbyycommedia/35822/vantage_360x162_v2.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
@@ -149,10 +149,10 @@ DXの必要性が謳われ、多くの企業がDXに取り組んでいるが、�
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 専門家に相談する準備はできていますか?
@@ -176,18 +176,14 @@ DXの必要性が謳われ、多くの企業がDXに取り組んでいるが、�
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/new-how-to-stream-on-discord-step-by-step-guide/"><u>[New] How to Stream on Discord [Step-by-Step Guide]</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-step-by-step-guide-to-revamping-youtube-inspired-thumbnails-on-twitter/"><u>[New] Step-by-Step Guide to Revamping YouTube-Inspired Thumbnails on Twitter</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-unlocking-videos-with-a-click-ios-apps-rising-in-the-rankings-on-fb-downloader-list/"><u>[New] Unlocking Videos with a Click IOS Apps Rising in the Rankings on FB Downloader List</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-good-youtube-names-generators-plus-how-to-brainstorm/"><u>[Updated] In 2024, Good YouTube Names Generators [+ How to Brainstorm]</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-jokejuggernaut-top-humor-tool/"><u>2024 Approved JokeJuggernaut - Top Humor Tool</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-install-and-update-device-drivers-manually-on-windows-7-by-drivereasy-guide/"><u>How to install and update device drivers manually on Windows 7</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-realme-c51-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Realme C51 without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/macmovavi-photoeditor/"><u>Mac用的Movavi PhotoEditor:专业修图与图片编辑解决方案</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/metamorphose-de-fichier-transformez-votre-mp3-gratuitement-en-mp4-sur-internet-via-movavi/"><u>Métamorphose De Fichier : Transformez Votre MP3 Gratuitement en MP4 Sur Internet via Movavi</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1723013492368-quick-fix-for-apex-legends-not-opening-top-tips-inside/"><u>Quick Fix for 'Apex Legends Not Opening': Top Tips Inside!</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-apps-and-online-tools-to-track-vivo-g2-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Vivo G2 Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/tudo-sobre-o-cortador-de-mp3-da-movavi-funcionamento-download-e-tecnicas-de-baixar-com-maior-sucesso/"><u>Tudo Sobre O Cortador De Mp3 Da Movavi: Funcionamento, Download E Técnicas De Baixar Com Maior Sucesso</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mov-m4v/"><u>무료 MOV M4V 파일 변환기 - 화면을 위한 원활한 이미지로 전환하는 가장 최신 도구</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-quieting-audio-fades-in-ableton-live/"><u>[New] Quieting Audio Fades in Ableton Live</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-step-by-step-tips-for-turning-gopro-into-professionals-best-work/"><u>[New] Step-by-Step Tips for Turning GoPro Into Professionals' Best Work</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-rectify-faux-face-display-on-social-network-engagements/"><u>[Updated] 2024 Approved Rectify Faux Face Display on Social Network Engagements</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-how-to-create-animated-bouncing-text/"><u>[Updated] In 2024, How to Create Animated Bouncing Text</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/internal-recorder-usage-for-capturing-screens-on-mate-series-and-p-series-mate-1020-p2010-for-2024/"><u>Internal Recorder Usage for Capturing Screens on Mate Series & P Series (Mate 10/20; P20/10) for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/sysbus-verstarkung-der-digitalen-fahigkeiten-ihrer-teammitglieder/"><u>Sysbus - Verstärkung Der Digitalen Fähigkeiten Ihrer Teammitglieder</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/the-limits-of-identity-checks-in-fraud-prevention-a-deeper-look-into-effective-strategies/"><u>The Limits of Identity Checks in Fraud Prevention - A Deeper Look Into Effective Strategies</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-insurance-claims-handling-with-cognitive-scanning-success-stories-from-leading-companies/"><u>Transforming Insurance Claims Handling with Cognitive Scanning - Success Stories From Leading Companies</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-the-future-of-automated-efficiency-a-look-at-the-successful-alliance-between-abbyy-and-uipath/"><u>Transforming the Future of Automated Efficiency: A Look at the Successful Alliance Between ABBYY and UiPath</u></a></li>
 </ul></div>
 

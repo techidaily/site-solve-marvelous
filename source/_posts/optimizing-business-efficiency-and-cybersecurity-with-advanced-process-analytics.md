@@ -1,7 +1,7 @@
 ---
 title: Optimizing Business Efficiency and Cybersecurity with Advanced Process Analytics
-date: 2024-09-26T22:36:06.005Z
-updated: 2024-10-02T18:30:55.672Z
+date: 2024-10-01T16:24:48.382Z
+updated: 2024-10-08T18:00:11.036Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ef0391400737caff934206593a807d314ef3298f397300aa8b766972af1af321.jpg
@@ -28,13 +28,6 @@ By automating the collection and analysis of process data, process mining provid
 
 _Gartner, Magic Quadrant for Process Mining Tools, 20 March 2023_
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Four ways process mining can optimize business processes
 
 1. **Process mining provides organizations with real-time insights into their business processes.** By analyzing data from existing systems and applications, process mining can create a visual representation of the process, revealing bottlenecks, delays, and areas where process improvements can be made. This information can then be used to make data-driven decisions to improve process efficiency and effectiveness.
@@ -43,10 +36,10 @@ _Gartner, Magic Quadrant for Process Mining Tools, 20 March 2023_
 4. **Process mining can improve compliance and governance within an organization.** By automating the collection and analysis of data from multiple sources, process mining can help organizations to stay on top of regulatory requirements, identify areas where there may be potential risk exposures, and make improvements to ensure full compliance with relevant regulatory mandates and regulations.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How organizations use process mining for cyber threat prevention
@@ -54,6 +47,13 @@ _Gartner, Magic Quadrant for Process Mining Tools, 20 March 2023_
 A particularly helpful application of process mining is surfacing, analyzing, and remediating potential cyberthreats. [Cybercrime](https://www.mckinsey.com/capabilities/risk-and-resilience/our-insights/cybersecurity/new-survey-reveals-2-trillion-dollar-market-opportunity-for-cybersecurity-technology-and-service-providers) is forecast to cost organizations globally nearly $11 trillion by 2025\. Threat actors need only to find one vulnerability in an organization’s systems that may span across any of the potential attack surfaces, anywhere from the application, network, and physical layers. Traditional reactive approaches to mitigating cyberthreats are no longer viable. What is needed is a more granular, proactive, and adaptive approach that anticipates how threat actors expose and take advantage of system vulnerabilities.
 
 Process mining provides Cyber Security Incident Response Teams (CSIRTs) with data-driven compliance analysis and auditing of prescribed threat response management processes based on event log data collected from multiple systems. It enables CSIRTs to surface potential compliance gaps (e.g., cybersecurity governance and risk management processes) and to identify and remediate deviations (e.g., incident response management processes across multiple cases, adherence to response and resolution times, and surface outliers).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Q&A on Process Intelligence and the Automation Fabric
 
@@ -74,10 +74,10 @@ Process mining is a valuable tool in the fight against cyber threats. Its abilit
 ![Andrewpery 99X99](https://static1.abbyy.com/abbyycommedia/25715/andrewpery-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Andrew Pery
@@ -89,10 +89,10 @@ Andrew Pery is an AI Ethics Evangelist at intelligent automation company [ABBYY]
 Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-cipp-c-cipp-e-3a536726/).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Additional Insights:
@@ -158,21 +158,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/xclusive-guide-to-affordable-premium-video-editors/"><u>[New] Exclusive Guide to Affordable, Premium Video Editors</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-overcoming-quietness-fixes-for-silent-obs-streams-for-2024/"><u>[Updated] Overcoming Quietness Fixes for Silent OBS Streams for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/avimpeg-movavi/"><u>網路上無償AVI至MPEG格式改變 - Movavi 自動化編解碼器</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/flvwma/"><u>FLVとWMAファイルを完全自由で簡単にオンライン変換 - ムーヴァヴィ</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-imovie-windows-version-download-edit-your-videos-on-pc-without-cost/"><u>Free iMovie Windows Version Download: Edit Your Videos on PC without Cost</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-retrieve-deleted-facetime-pictures-on-your-iphone-or-ipad/"><u>How to Retrieve Deleted FaceTime Pictures on Your iPhone or iPad</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-inside-the-world-of-toolwiz-an-in-depth-software-review/"><u>In 2024, Inside the World of Toolwiz An In-Depth Software Review</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-reel-in-attention-by-emulating-tiktok-stardom-on-instagram/"><u>In 2024, Reel In Attention by Emulating TikTok Stardom on Instagram</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/leading-9-mic-technology-a-comprehensive-analysis-for-2024/"><u>Leading 9 Mic Technology A Comprehensive Analysis for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mac-movavi-mac/"><u>Mac向け動画編集ソフトウェア Movavi - Macユーザーに最適！</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mp4-to-aiff-conversion-tool-no-cost-option-moveave-media/"><u>MP4 to AIFF Conversion Tool - No Cost Option | Moveave Media</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-best-10-volume-boosters-for-windows-increase-volume-right-now/"><u>New Best 10 Volume Boosters for Windows-Increase Volume Right Now</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-free-ts-mp4-movavi/"><u>Online Free TS 프리미우스를 MP4로 자동 변환 - Movavi</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/roblox-stability-hacks-quick-troubleshooting-techniques-for-smooth-gaming-on-your-computer/"><u>Roblox Stability Hacks: Quick Troubleshooting Techniques for Smooth Gaming on Your Computer</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transformez-les-videos-vob-en-mp4-de-qualityguard-pour-la-playstation-gratuitement-online/"><u>Transformez Les Vidéos VOB en MP4 De QualityGuard Pour La PlayStation Gratuitement Online!</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-mac-os-slideshow-creator-turn-memories-into-stunning-videos/"><u>Updated 2024 Approved Mac OS Slideshow Creator Turn Memories Into Stunning Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-make-slow-motion-videos-on-instagram-reels/"><u>[New] 2024 Approved How to Make Slow Motion Videos on Instagram Reels</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-become-the-brand-you-want-with-our-exclusive-set-of-free-graphics-for-2024/"><u>[New] Become the Brand You Want With Our Exclusive Set of FREE Graphics for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-calculating-clickers-contribution-to-youtube-earnings/"><u>[New] In 2024, Calculating Clickers' Contribution to YouTube Earnings</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-how-to-add-motion-blur-to-photos-in-adobe-illustrator/"><u>[Updated] How to Add Motion Blur to Photos In Adobe Illustrator</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-essential-guide-to-asmr-for-sleep-enthusiasts/"><u>[Updated] In 2024, The Essential Guide to ASMR for Sleep Enthusiasts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-tumblr-id-visualization-guide-size-format-duration/"><u>2024 Approved Tumblr ID Visualization Guide Size, Format, Duration</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/elevate-your-site-with-cookiebot-technology-for-targeted-user-engagement/"><u>Elevate Your Site with Cookiebot Technology for Targeted User Engagement</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/empowering-user-confidentiality-through-pets-insights-from-the-abbyy-perspective/"><u>Empowering User Confidentiality Through PETs | Insights From the ABBYY Perspective</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-user-experience-and-track-conversions-using-advanced-cookiebot-solutions/"><u>Enhance User Experience and Track Conversions Using Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-website-insights-with-advanced-cookiebot-technology-platforms/"><u>Enhance Website Insights with Advanced Cookiebot Technology Platforms</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-your-website-with-automated-tracking-powered-by-cockroach/"><u>Enhance Your Website with Automated Tracking: Powered by Cockroach</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-user-engagement-with-customized-advertising-through-advanced-tracking-solutions/"><u>Enhanced User Engagement with Customized Advertising Through Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhancing-robotic-cognition-through-advanced-content-analysis-explore-the-insights-on-abbyys-official-site/"><u>Enhancing Robotic Cognition Through Advanced Content Analysis - Explore the Insights on ABBYY's Official Site</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-download-edit-and-publish-the-essential-online-video-editing-guide/"><u>In 2024, Download, Edit, and Publish The Essential Online Video Editing Guide</u></a></li>
 </ul></div>
 

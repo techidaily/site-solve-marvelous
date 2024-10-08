@@ -1,7 +1,7 @@
 ---
 title: "Masterful Mobile Tools: ABBYY's Guide to Enhancing Smartphone Productivity with OCR"
-date: 2024-09-29T07:23:29.381Z
-updated: 2024-10-03T05:19:13.749Z
+date: 2024-10-04T17:41:28.526Z
+updated: 2024-10-08T19:46:39.449Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0138e2483878b61786c62e2e9ead335ddaa2649c1800ba21659cf76cde33dc5d.jpg
@@ -38,16 +38,16 @@ While performing an action, double-tap on the screen to stop or resume it. For e
 
 ![iOS Teach iPhone to Speak](https://static1.abbyy.com/abbyycommedia/26061/voiceover_on_ios_thumb800-e1509381685695.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Here’s how you activate VoiceOver. Head to **Settings** \> **General** \> **Accessibility** and triple-tap the Home button to start using [VoiceOver](https://www.apple.com/accessibility/iphone/vision/). You will hear a description of everything displayed on the screen: the battery level, the Caller ID, and even the name of the app you are about to open. You can also adjust the speaking rate and pitch.
 
 ![iOS phone speaking VoiceOver](https://static1.abbyy.com/abbyycommedia/26062/9333c52eb32b9d3985a20f54efae8aa9-e1509381782113.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 And a couple of more perks:
 
@@ -58,18 +58,24 @@ And a couple of more perks:
 
 Summing up: [VoiceOver](https://www.apple.com/accessibility/iphone/vision/) helps you to fully control your device without even seeing the screen. The smartphone will tell you what is happening. By the way, all ABBYY-developed apps also support [VoiceOver](https://www.apple.com/accessibility/iphone/vision/), and [TextGrabber](https://textgrabber.app.link/mobilemonday), a must-have for vision-impaired users, is no exception.
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Android Tip: Teaching Your Android Phone to Speak**
 
 Smartphones powered by Android are also capable of speaking to their users and guiding them while they navigate the screen.[TalkBack](https://play.google.com/store/apps/details?id=com.google.android.marvin.talkback&hl=en)is specifically designed as a screen reader that provides spoken feedback and announces notifications and other events.
 
 ![Android teach smartphone to speak TalkBack](https://static1.abbyy.com/abbyycommedia/26063/01140716-83af-4ce3-b3c3-b48dbccd4de9-e1509384509701.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 There are three ways to activate [TalkBack](https://play.google.com/store/apps/details?id=com.google.android.marvin.talkback&hl=en) on your phone:
 
@@ -95,14 +101,14 @@ After activating [TalkBack](https://play.google.com/store/apps/details?id=com.go
 
 ![TalkBack app Android settings](https://static1.abbyy.com/abbyycommedia/26064/android_7_nougat_talkback_fig_10-e1509384740886.png)
 
-For more details on [TalkBack](https://play.google.com/store/apps/details?id=com.google.android.marvin.talkback&hl=en) and its capabilities, please visit [this help page](https://support.google.com/accessibility/android/answer/6283677?hl=en). ABBYY TextGrabber for both Android and iOS uses screen reading features to help vision-impaired users. You can also automatically copy the recognized text to the clipboard and listen to it in your headphones or via third-party apps.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+For more details on [TalkBack](https://play.google.com/store/apps/details?id=com.google.android.marvin.talkback&hl=en) and its capabilities, please visit [this help page](https://support.google.com/accessibility/android/answer/6283677?hl=en). ABBYY TextGrabber for both Android and iOS uses screen reading features to help vision-impaired users. You can also automatically copy the recognized text to the clipboard and listen to it in your headphones or via third-party apps.
 
 ## **ABBYY Tip: Exporting Business Cards From Business Card Reader**
 
@@ -113,20 +119,14 @@ There are two ways to export business cards from [Business Card Reader](https://
 
 ![Abbyy Export Business Cards from BCR iOS](https://static1.abbyy.com/abbyycommedia/26065/img_0009-1-e1509384903646.png)
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Busines Card Reader (Scanner) Abbyy](https://static1.abbyy.com/abbyycommedia/26066/image-1-e1509384965944.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On an Android device:
 
@@ -152,13 +152,6 @@ To open a CSV file with the business cards in MS Excel, choose the file in **Fil
 
 It’s that simple!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **App of The Week: Track Your Working Hours Effectively** 
 
 [Hourly](https://apps.apple.com/us/app/hourly-time-and-task-manager/id1308461936) will help you to control your time spent on every task effectively. Create a to-do list of tasks, count the time spent on each task, and track how productive your work was during the day and month.
@@ -167,6 +160,13 @@ You can use the list of your results to create reports for employers if you work
 
 But that's not all![Hourly](https://apps.apple.com/us/app/hourly-time-and-task-manager/id1308461936) can also send reminders to take breaks, which is also essential. .
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And finally, why Hourly?
 
 1. Create an unlimited number of tracking tasks.
@@ -174,13 +174,6 @@ And finally, why Hourly?
 3. Lovely design.
 4. User-friendly interface.
 5. Voiceover accessible.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **First-Hand Experience:** Advice From a Colleague
 
@@ -197,6 +190,13 @@ Some may think that the iOS counterpart is no different. But it is! In fact, you
 You are welcome.:)
 
 ![undo typing iOS calculator Abbyy](https://static1.abbyy.com/abbyycommedia/26070/calc_2x_1024-e1509385642453.png)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 That’s all for today, guys. As usual, the next issue of this newsletter will be out next Monday. The previous issue is available [here](https://tools.techidaily.com/abbyy/products/).
 
@@ -266,22 +266,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-content-creator-acclaim-through-subscriber-recognition-for-2024/"><u>[New] Content Creator Acclaim Through Subscriber Recognition for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/a-seamless-switch-windows-on-a-steam-deck-journey/"><u>A Seamless Switch: Windows on a Steam Deck Journey</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/convert-videos-effortlessly-with-movavis-no-cost-nsv-to-mp4-tool-do-it-online/"><u>Convert Videos Effortlessly with Movavi's No-Cost NSV to MP4 Tool - Do It Online!</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/eliminating-half-muted-facebook-gaming-videos-2023-fixes/"><u>Eliminating Half-Muted Facebook Gaming Videos (2023 Fixes)</u></a></li>
-<li><a href="https://windows11.techidaily.com/embark-on-cross-platform-development-via-windows-subsystem/"><u>Embark on Cross-Platform Development via Windows Subsystem</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-video-encoding-tools-ranked-discover-the-ultimate-guide-to-optimal/"><u>Free Video Encoding Tools Ranked! Discover the Ultimate Guide to Optimal 무료 동영상 압축 소프트웨어</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/get-started-on-free-video-transformation-seamless-file-converting-using-movavi/"><u>Get Started on Free Video Transformation - Seamless File Converting Using Movavi</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722968162491-get-the-latest-insignia-wireless-networking-dongle-for-xbox-free-driver/"><u>Get the Latest Insignia Wireless Networking Dongle for Xbox - FREE Driver</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-harness-the-power-of-instagrams-hidden-features/"><u>In 2024, Harness the Power of Instagram's Hidden Features</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-prismatic-vistahub-top-tier-unified-4k-screen-systems/"><u>In 2024, Prismatic VistaHub Top-Tier, Unified 4K Screen Systems</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/kostenloze-online-mpe-naar-mp4-transformatie-het-beste-levert-movavi-te-bieden/"><u>Kostenloze Online MPE Naar MP4 Transformatie - Het Beste Levert Movavi Te Bieden</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-konvertie-van-dng-naar-png-kostenloos-en-gemakkelijke-oplossingen-met-movavi/"><u>Online Konvertie Van DNG Naar PNG: Kostenloos en Gemakkelijke Oplossingen Met Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/scarica-e-converti-i-tuoi-amv-in-file-mp3-gratuitamente-con-movavi/"><u>Scarica E Converti I Tuoi AMV in File MP3 Gratuitamente Con Movavi</u></a></li>
-<li><a href="https://discover-community.techidaily.com/the-2024-ultimate-guide-to-free-and-best-screen-capture-tools-top-picks-for-online-use/"><u>The 2024 Ultimate Guide to Free & Best Screen Capture Tools - Top Picks for Online Use</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/tiktok-triumphs-in-twitter-land-toptiktoks-revealed/"><u>TikTok Triumphs in Twitter Land #TopTikToks Revealed</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transforme-gratuitement-votre-fichier-wmv-en-format-mp4-avec-videosan/"><u>Transforme Gratuitement Votre Fichier WMV en Format MP4 Avec Vidéosan</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/vod-in-ogg-vorbis-format-vob-to-high-quality-lossless-audio-flac-free-conversion-tool-by-movavi/"><u>VOD in Ogg Vorbis Format (VOB) to High-Quality Lossless Audio (FLAC): Free Conversion Tool by Movavi</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-video-gathering-made-easy-top-5-no-cost-online-downloaders/"><u>[New] Video Gathering Made Easy Top 5 No-Cost, Online Downloaders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-easy-effective-strategy-immediate-clearance-of-unwanted-youtube-comments-for-2024/"><u>[Updated] Easy, Effective Strategy Immediate Clearance of Unwanted YouTube Comments for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-from-data-to-drama-utilizing-google-trends-in-video-planning/"><u>2024 Approved From Data to Drama Utilizing Google Trends in Video Planning</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-solutions-optimize-your-sites-traffic/"><u>Cookiebot-Driven Solutions: Optimize Your Site's Traffic</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-website-optimization-elevating-your-online-presence/"><u>Cookiebot-Driven Website Optimization: Elevating Your Online Presence</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-customized-user-experience/"><u>Cookiebot-Enabled Customized User Experience</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-success-boosting-web-analytics-and-conversion/"><u>Cookiebot-Enabled Success: Boosting Web Analytics and Conversion</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhance-user-experience-with-personalized-website-analytics/"><u>Cookiebot-Enabled: Enhance User Experience with Personalized Website Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-sites-personalization-and-analytics/"><u>Cookiebot-Enabled: Enhancing Your Site's Personalization & Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-tracking-solutions/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-optimize-your-websites-analytics-and-personalization/"><u>Cookiebot-Enabled: Optimize Your Website's Analytics and Personalization</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/excel-stuck-at-opening-file-0-resolve-performance-issues-by-stellar-guide/"><u>Excel Stuck at Opening File 0 - Resolve Performance Issues</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/from-pcmac-to-the-feed-how-to-efficiently-upload-videos-to-instagram/"><u>From PC/Mac to the Feed How to Efficiently Upload Videos to Instagram</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mac-graphics-revolution-top-10-freeware-drawings-for-2024/"><u>Mac Graphics Revolution Top 10 Freeware Drawings for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/navigating-video-conversion-in-vlc-from-mp4-onward/"><u>Navigating Video Conversion in VLC From MP4 Onward</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/reimagining-stills-as-continuous-motion-sessions/"><u>Reimagining Stills as Continuous Motion Sessions</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-from-apple-iphone-13-pro-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock from Apple iPhone 13 Pro</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Official Statement by Ulf Persson on COVID-19 as CEO of ABBYY Group: Insights and Updates"
-date: 2024-09-30T09:37:57.771Z
-updated: 2024-10-02T18:28:26.674Z
+date: 2024-10-02T16:54:28.056Z
+updated: 2024-10-08T18:15:22.139Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8defa02626cc56415dc50f7d54a716fd558d3dd721a0ce14cdc43e33e2f2d6de.jpg
@@ -47,26 +47,23 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-adding-beats-to-your-instagram-media-a-step-by-step-guide/"><u>[Updated] 2024 Approved Adding Beats to Your Instagram Media A Step-by-Step Guide</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-top-9-androidios-video-chat-platforms-ranked/"><u>[Updated] 2024 Approved Top 9 Android/iOS Video Chat Platforms Ranked</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-ultimate-5-speedy-shot-strategies-right-from-your-living-room-for-2024/"><u>[Updated] Ultimate 5 Speedy Shot Strategies Right From Your Living Room for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-cambiar-tu-video-de-formato-asf-a-mov-sin-coste-con-herramientas-en-linea-tutorial-con-movavi/"><u>Cómo Cambiar Tu Vídeo De Formato ASF a MOV Sin Coste Con Herramientas en Línea: Tutorial Con Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-transformar-archivos-ts-en-formato-line-sin-coste-usando-movavi-tutorial-completo/"><u>Cómo Transformar Archivos TS en Formato LINE Sin Coste Usando Movavi - Tutorial Completo</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/conversione-gratuita-online-converti-i-tuoi-file-mp3-in-formato-ogg-con-lutilita-di-movavi/"><u>Conversione Gratuita Online: Converti I Tuoi File MP3 in Formato OGG Con L'utilità Di Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/converti-video-flv-in-formato-aiff-liberamente-conversiononline/"><u>Converti Video FLV in Formato AIFF Liberamente - ConversionOnline</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/fehlerbeheben-bei-fehlender-filmwiedergabe-auf-ihrem-macbook-pro-schritt-fur-schritt-protokoll/"><u>Fehlerbeheben Bei Fehlender Filmwiedergabe Auf Ihrem MacBook Pro: Schritt-Für-Schritt-Protokoll</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/flvavi/"><u>FLVとAVIファイルの免責コースで簡単な変換 - ムーバヴィ</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-itel-p40plus-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Itel P40+ Phone Screen?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Google Pixel 8 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-from-iphone-8-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock From iPhone 8 You Should Try Out</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-revolutionary-2018-lg-gram-156-laptop-review-striking-balance-between-large-screen-and-ultra-light-design/"><u>The Revolutionary 2018 LG Gram 15.6 Laptop Review: Striking Balance Between Large Screen and Ultra Light Design</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-add-bitmoji-to-keyboard-complete-guide/"><u>2024 Approved How to Add Bitmoji to Keyboard? Complete Guide</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhanced-enhance-your-sites-analytics-efficiency/"><u>Cookiebot-Enhanced: Enhance Your Site's Analytics Efficiency</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhanced-the-secure-way-to-personalize-your-website/"><u>Cookiebot-Enhanced: The Secure Way to Personalize Your Website</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-the-key-driver-behind-efficient-user-analytics-tracking/"><u>Cookiebot: The Key Driver Behind Efficient User Analytics Tracking</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-best-lgbtq-shows-available-on-netflix-this-july/"><u>Discover the Best LGBTQ Shows Available on Netflix This July</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effortlessly-digitize-paperwork-from-iphone-snaps-to-searchable-docs-using-scan-and-ocr-technology-finereader-pro/"><u>Effortlessly Digitize Paperwork From iPhone Snaps to Searchable Docs Using Scan and OCR Technology | FineReader Pro</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-tecno-spark-10c-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Tecno Spark 10C Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y36i-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Vivo Y36i Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Tecno Pova 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/movavi-ram-wav/"><u>MOVAVI 在線自由邊輸出 RAM 到 WAV 格式：直覺上的選擇</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-the-social-maze-tweets-plus-tumble-videos-for-2024/"><u>Navigating the Social Maze Tweets + Tumble Videos for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

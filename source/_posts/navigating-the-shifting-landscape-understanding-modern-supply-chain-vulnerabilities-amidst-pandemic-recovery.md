@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Shifting Landscape: Understanding Modern Supply Chain Vulnerabilities Amidst Pandemic Recovery"
-date: 2024-09-30T19:48:03.496Z
-updated: 2024-10-03T00:05:54.511Z
+date: 2024-10-03T18:29:39.386Z
+updated: 2024-10-08T16:15:27.380Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7e377b50c4e513bd18b3a4caf17d4fa401f54e28db3371c8a6654c909a09f9e7.png
@@ -19,6 +19,13 @@ English
 
 ![51 Georgelawrie 198X198](https://static5.abbyy.com/abbyycommedia/25490/forrester-logo-forspeakers.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![51 Georgelawrie 198X198](https://static4.abbyy.com/abbyycommedia/29847/51-georgelawrie-198x198.png)
 
 ### George Lawrie
@@ -27,27 +34,13 @@ Vice President and Principal Analyst, **Forrester Research**
 
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25498/20-andrewpery-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Andrew Pery
@@ -57,20 +50,6 @@ Digital Intelligence Consultant, **ABBYY**
 ![Marko Kovacevic 198X198](https://static4.abbyy.com/abbyycommedia/30088/dsci-logo-forspeakers.png) 
 
 ![Marko Kovacevic 198X198](https://static4.abbyy.com/abbyycommedia/30085/marko-kovacevic-198x198.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Forrester Research
 
@@ -88,7 +67,21 @@ The first wave of digital disruption enabled brands to sell directly to online c
 * How Process Intelligence empowers organizations to gain visibility to supply chain data from both digital and physical sources, visualize the flow of goods through supply chain process stages to show the delays and bottlenecks, and pinpoint the root cause of non-compliant, unusual, or high-cost supply chain processes.
 * Best practices for automating highly labor-intensive and inefficient document-centric processes associated with the flow of goods such as documentation processes that span certificates of origin, certificate of insurance, packing lists, dangerous goods forms, bills of lading, and customs clearing documentation.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch now
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
@@ -100,13 +93,26 @@ All personal information collected via this method is under full scope of all pr
 [![ABBYY Expert Talks Forrester Webinar 750X421 2](https://static5.abbyy.com/abbyycommedia/30230/abbyy-expert-talks-forrester-webinar-750x421-2.jpg)](https://www.youtube.com/watch?v=bhPVZZUXjFA) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -173,20 +179,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-explore-elite-gaming-opening-tutorials-free-and-premium-alternatives-for-2024/"><u>[New] Explore Elite Gaming Opening Tutorials Free & Premium Alternatives for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-mirthful-modifications-ranked-smartphone-and-pc-photo-apps/"><u>[Updated] 2024 Approved Mirthful Modifications Ranked Smartphone & PC Photo Apps</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1724312994221-abbyy/"><u>「ABBYYによる国際調査:ドキュメント内容情報取得技術の最新研究結果」</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-leading-tips-seamless-youtube-to-mpeg-conversion-guide/"><u>2024 Approved Leading Tips Seamless YouTube-to-MPEG Conversion Guide</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-dominates-the-2024-evalgroups-peak-matrix-benchmark/"><u>ABBYY Dominates the 2024 EvalGroup's PEAK Matrix Benchmark</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-japan-sb/"><u>ABBYY Japan ソフトウェア投入に合わせて SBモバイルサービスが新規事業を展開 - プレスリリース</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/achieve-better-engagement-with-websites-optimized-using-the-cookiebot-platform/"><u>Achieve Better Engagement with Websites Optimized Using the Cookiebot Platform</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/advanced-rag-techniques-enhancing-document-capture-with-abbyy-solutions/"><u>Advanced RAG Techniques: Enhancing Document Capture with ABBYY Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/boosting-your-sites-visibility-using-the-advanced-capabilities-of-cookiebot/"><u>Boosting Your Site's Visibility Using the Advanced Capabilities of Cookiebot</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/four-easy-ways-to-tryout-ais-gpt-4-without-paying/"><u>Four Easy Ways to Tryout AI's GPT-4 Without Paying</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-x5-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of X5 using Video Repair Utility on Windows?</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/kinemaster-zoom-mastery-guide-a-filmmakers-toolkit/"><u>Kinemaster Zoom Mastery Guide A Filmmaker's Toolkit</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximize-your-networking-experience-with-the-asus-ax6000-rt-ax88u-our-comprehensive-review-on-the-latest-smart-wi-fi-6-device/"><u>Maximize Your Networking Experience with The Asus AX6000 RT-AX88U - Our Comprehensive Review on the Latest Smart Wi-Fi 6 Device</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-do-you-want-to-download-slow-motion-apps-that-can-edit-video-professionally-this-article-will-discuss-some-slomo-makers-for-both-ios-and-a/"><u>New 2024 Approved Do You Want to Download Slow-Motion Apps that Can Edit Video Professionally? This Article Will Discuss some Slomo Makers for Both iOS and Android</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/what-is-process-mining-and-why-use-it-a-comprehensive-guide/"><u>What Is Process Mining and Why Use It: A Comprehensive Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-maximizing-conversions-with-targeted-snapad-strategies-for-2024/"><u>[Updated] Maximizing Conversions with Targeted SnapAd Strategies for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-media-with-extraearsound/"><u>2024 Approved Mastering Media with ExtraEarSound</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/acessando-audio-visual-avi-no-windows-nova-versao-graca-gratuita-tutorial-detalhado/"><u>Acessando Áudio-Visual AVI No Windows Nova Versão - Graça Gratuita | Tutorial Detalhado</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/alphabet-awareness-swedens-pronunciation-path/"><u>Alphabet Awareness: Sweden's Pronunciation Path</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/convert-your-memories-with-ease-discover-the-best-vhs-to-dvd-solutions-including-movavi-video-converter/"><u>Convert Your Memories with Ease: Discover the Best VHS-to-DVD Solutions, Including Movavi Video Converter</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/criador-de-slide-show-gratuito-pelo-movavi-facil-download-e-instalacao/"><u>Criador De Slide Show Gratuito Pelo Movavi - Fácil Download E Instalação</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/detailed-review-of-the-versatile-omnicharge-omni-20-portable-power-bank-now-with-qi-wireless-technology/"><u>Detailed Review of the Versatile Omnicharge Omni 20 Portable Power Bank - Now with Qi Wireless Technology!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discovering-personal-email-information-a-comprehensive-guide/"><u>Discovering Personal Email Information: A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/excellence-in-sound-management-on-android/"><u>Excellence in Sound Management on Android</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/geavanceerd-omzetten-van-m2p-folders-vrije-efficient-opsluiting-met-movavi/"><u>Geavanceerd Omzetten Van M2P Folders: Vrije, Efficiënt Opsluiting Met Movavi</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-htc-u23-pro-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast HTC U23 Pro to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-6-must-have-ai-chatbot-plugins-for-enhanced-vscode-experience/"><u>Top 6 Must-Have AI Chatbot Plugins for Enhanced VSCode Experience</u></a></li>
 </ul></div>
 

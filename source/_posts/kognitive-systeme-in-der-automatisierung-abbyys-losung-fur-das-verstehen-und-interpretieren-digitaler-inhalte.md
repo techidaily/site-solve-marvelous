@@ -1,7 +1,7 @@
 ---
 title: "Kognitive Systeme in Der Automatisierung: ABBYYS Lösung Für Das Verstehen Und Interpretieren Digitaler Inhalte"
-date: 2024-09-29T03:50:08.382Z
-updated: 2024-10-02T17:02:50.037Z
+date: 2024-10-02T16:39:54.398Z
+updated: 2024-10-08T16:25:45.699Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/41b7aeaec3f38e6779f59edeed637c2eed317552b4a02a1bbb1edeefc3cb4d99.jpg
@@ -16,16 +16,10 @@ Whitepaper
 ![Wieso es so wichtig ist, Inhalte zu verstehen - ABBYYs Whitepaper](https://static1.abbyy.com/abbyycommedia/33258/24b-inevitable-need-for-understanding-content-de-262x340.png)
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Nutzen Sie den No-Code- / Low-Code-Ansatz, um unstrukturierte Inhalte als Automatisierung­shindernis zu überwinden
@@ -33,16 +27,10 @@ Whitepaper
 Durch die aktuellen Ereignisse ist der Druck auf Unternehmen, die digitale Transformation in ihre strategischen Pläne aufzunehmen, gestiegen. Mit dem Aufkommen von Low-Code- und No-Code-Entwicklungsplattformen entstand die neue Tätigkeit des Laienentwicklers. Technologien wie RPA waren für die ersten Phasen der digitalen Transformation vieler Unternehmen maßgeblich. Unternehmen entwickeln sich jetzt schnell und mit neuer Dringlichkeit weiter, um komplexere, hochwertigere Prozesse zu analysieren und zu automatisieren. Diese wichtigen Prozesse betreffen häufig auch Kunden und beinhalten unweigerlich unstrukturierte Inhalte, die intelligent verarbeitet werden müssen.
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Jetzt herunterladen!
@@ -57,16 +45,10 @@ Laden Sie dieses Whitepaper herunter und erfahren Sie mehr über:
 Lesen Sie dieses Whitepaper, um zu erfahren, wie ABBYY Vantage als intelligente Plattform für die intelligente Dokumentenverarbeitung diesen Bedarf lösen kann. Die Plattform fügt sich in das neue Paradigma der benutzerfreundlichen No-Code- / Low-Code-Implementierung ein, ist auf Laienentwickler abgestimmt und ermöglicht die Integration in RPA- und BPM-Plattformen. Sie erfahren auch, wie Sie wiederverwendbare Komponenten aus dem ABBYY Marketplace schnell in neuen Automatisierungsinitiativen einsetzen können, um innerhalb kurzer Zeit sichtbare Geschäftsergebnisse zu erzielen.
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY.
@@ -76,10 +58,10 @@ Lesen Sie dieses Whitepaper, um zu erfahren, wie ABBYY Vantage als intelligente 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -151,19 +133,21 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-screencast-savvy-a-comprehensive-examination-of-techniques-and-tools/"><u>[New] Screencast Savvy A Comprehensive Examination of Techniques & Tools</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/acessando-audio-visual-avi-no-windows-nova-versao-graca-gratuita-tutorial-detalhado/"><u>Acessando Áudio-Visual AVI No Windows Nova Versão - Graça Gratuita | Tutorial Detalhado</u></a></li>
-<li><a href="https://discover-community.techidaily.com/exclusive-opportunity-grab-your-free-temporary-pass-to-macxdvd-dvd-tool/"><u>Exclusive Opportunity: Grab Your Free, Temporary Pass to MacXDVD DVD Tool!</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/from-freelance-filmmaker-to-full-time-financier-snapchat-storytelling/"><u>From Freelance Filmmaker to Full-Time Financier Snapchat Storytelling</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratis-dng-to-jpg-converteren-via-internet-zoekplaats-voor-professioneel-richtingingskunst/"><u>Gratis DNG-to-JPG Converteren via Internet - Zoekplaats Voor Professioneel Richtingingskunst</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-play-avchd-mts-files-on-14-pro-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to play AVCHD MTS files on 14 Pro?</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-enhance-discoverability-with-effective-video-tags/"><u>In 2024, Enhance Discoverability with Effective Video Tags</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-clean-audio-clear-conscience-how-to-remove-background-noise-in-fcpx/"><u>New Clean Audio, Clear Conscience How to Remove Background Noise in FCPX</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/showcasing-intuitive-ai-solutions-for-enhanced-accounts-payable-efficiency/"><u>Showcasing Intuitive AI Solutions for Enhanced Accounts Payable Efficiency</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/task-and-process-mining-erklart-strategien-fur-verstandnis-und-optimierung/"><u>Task & Process Mining Erklärt: Strategien Für Verständnis Und Optimierung</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-blueprint-of-an-engaging-podcast-blurb/"><u>The Blueprint of an Engaging Podcast Blurb</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/toontown-full-analysis-and-tutorial-24-edition/"><u>ToonTown Full Analysis & Tutorial '24 Edition</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/understanding-the-legal-framework-of-abbyy-flexicapture-online-service-terms-conditions-and-compliance-standards/"><u>Understanding the Legal Framework of ABBYY FlexiCapture Online Service - Terms, Conditions & Compliance Standards</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/at-the-apex-youtube-subscribers-ranking/"><u>Who's at the Apex? YouTube Subscribers Ranking</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-affordable-4k-cameras-guide-(1k-top-picks/"><u>[New] Affordable 4K Cameras Guide (<$1K) - Top Picks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-essential-tactics-for-viral-fb-video-marketing-for-2024/"><u>[New] Essential Tactics for Viral FB Video Marketing for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-endless-viewing-loop-your-iphone-videos-today/"><u>[New] In 2024, Endless Viewing Loop Your iPhone Videos Today</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-building-your-ultimate-youtube-music-list-step-by-step-guide-webmobile/"><u>[Updated] In 2024, Building Your Ultimate YouTube Music List Step-by-Step Guide (Web/Mobile)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-share-the-moment-how-to-post-on-twitter/"><u>2024 Approved Share the Moment How To Post on Twitter</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726225779161-avi-mp4-movavi/"><u>網路直接免費 AVI-MP4 改編工具 - 利用 Movavi 影片編輯軟體</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mpeg-wma-movavi/"><u>在线免费将 MPEG 文件转换为 WMA音频 - 利用 Movavi 软件</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/convertissez-vos-videos-m2ts-en-mp4-sans-frais-via-le-service-de-movavi-en-ligne/"><u>Convertissez Vos Vidéos M2TS en MP4 Sans Frais via Le Service De Movavi en Ligne</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guia-completa-para-la-transformacion-m4b-a-wav-en-linea-gratuitamente-con-convertio-audio-converter/"><u>Guía Completa Para La Transformación M4B a WAV en Línea Gratuitamente Con Convertio Audio Converter</u></a></li>
+<li><a href="https://review-topics.techidaily.com/identify-missing-drivers-with-windows-device-manager-on-windows-10-by-drivereasy-guide/"><u>Identify missing drivers with Windows Device Manager on Windows 10</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-itel-p55t-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Itel P55T Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-precise-voice-adjustments-for-pubg-success/"><u>In 2024, Precise Voice Adjustments for PUBG Success</u></a></li>
+<li><a href="https://discover-great.techidaily.com/step-by-step-guide-converting-video-files-and-extracting-dvd-content-with-handbrake/"><u>Step-by-Step Guide: Converting Video Files & Extracting DVD Content with Handbrake</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transform-nef-photos-to-png-gratis-quick-and-simple-online-tool-by-movavi/"><u>Transform NEF Photos to PNG Gratis - Quick & Simple Online Tool by Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/wifi-ram-mpeg-and-desktop/"><u>무료 WiFi RAM MPEG 변환 - 모바일 & Desktop 호환성</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mp4-on/"><u>무료 이미지 영상을 MP4로 전환하는 방법 - Onラインでトゥーディ</u></a></li>
 </ul></div>
 

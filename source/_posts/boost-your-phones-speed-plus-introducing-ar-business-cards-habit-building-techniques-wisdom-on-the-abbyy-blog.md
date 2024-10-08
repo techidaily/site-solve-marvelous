@@ -1,7 +1,7 @@
 ---
 title: "Boost Your Phone's Speed + Introducing AR Business Cards: Habit Building Techniques | Wisdom on the ABBYY Blog"
-date: 2024-09-26T18:04:04.915Z
-updated: 2024-10-03T10:42:51.512Z
+date: 2024-10-06T17:06:36.014Z
+updated: 2024-10-08T17:55:30.217Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571566316abe24ad6c80cbdaa7.jpeg
@@ -42,10 +42,10 @@ The device is still slow? Try **cleaning up cache in Safari**. The browser store
 Would you care to make it even faster? Well, there’s only one option left then. The method of last resort here is to **restore a backup** that was made in the past—back when your device worked perfectly fast. If you do not remember how to restore the back up, consult with [one of our previous issues](https://tools.techidaily.com/abbyy/products/). If you are disinclined to read the whole article, here’s how you do it in brief: connect your iPhone to your laptop, launch iTunes, select the copy that you wish to restore, and install it back on your device.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Android Tip: Speeding up Your Android Device**
@@ -56,6 +56,13 @@ For openers, check whether your phone runs the **latest operating system**. User
 
 ![Android Speed up Android Device](https://static1.abbyy.com/abbyycommedia/26277/whatsapp-image-2018-05-28-at-162014-576x1024.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your software is fine, try **transferring data from** **your phone to an SD card**. To do this, open **Settings** \> **Memory** and migrate all your apps and media files to an external memory device. You can also try clearing app cache — this might also speed up your phone a tad.
 
 Constant **synchronization with services, background app refresh** — all of this affects both your battery life and system performance. If you want to get rid of this annoyance, simply jump to **Settings** \> **Accounts** and disable unnecessary features.
@@ -63,10 +70,10 @@ Constant **synchronization with services, background app refresh** — all of th
 And the last thing that slows your phone down is **unused apps**. Most apps feature services that are launched together with the phone and access its memory. If you believe your phone has more important tasks to accomplish, close them down. Go to **Settings** \> **Apps** \> **Active** services and disable the services that steal from your phone’s memory. But be careful! You must keep system utilities running, otherwise your phone may stop working.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **ABBYY Tip: Creating Business Cards out of Thin Air**
@@ -86,13 +93,6 @@ Do you promise yourself to start a new life on Monday but never actually do? Try
 
 ![App Loop habit tracker control time](https://static1.abbyy.com/abbyycommedia/26278/prilozhenie-nedeli.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In addition to a convenient list of habits themselves, the app helps to calculate the “power” of your habits. Each repetition results in the stronger power and if you miss a day the power gets weaker. And a nice feature is that you can add a notification to each habit, so you don’t miss a day. The app enables you to mark as completed, skip or snooze the repetition of the action to consolidate the habit right from the notification.
 
 The app is available on [Android](https://play.google.com/store/apps/details?id=org.isoron.uhabits&hl=en).
@@ -104,16 +104,10 @@ P.S. The previous issue is available [here](https://tools.techidaily.com/abbyy/p
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -179,17 +173,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-mp3-essentials-guide-10-online-converters-reviewed/"><u>[Updated] The MP3 Essentials Guide #10 Online Converters Reviewed</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhance-conversion-rates-discover-the-power-of-cookiebot-analytics/"><u>Enhance Conversion Rates: Discover the Power of Cookiebot Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhance-web-traffic-insights-with-advanced-cookiebot-solutions/"><u>Enhance Web Traffic Insights with Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhance-your-sites-analytics-using-the-advanced-cookiebot-system/"><u>Enhance Your Site's Analytics Using the Advanced Cookiebot System</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-conversion-rates-with-our-cutting-edge-cookiebot-technology/"><u>Enhanced Conversion Rates with Our Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-infinix-smart-8-hd-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-passcode-screen-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 Passcode Screen?</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/optimizing-your-fb-live-on-zoom-stream/"><u>Optimizing Your FB Live on Zoom Stream</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolving-playstation-portable-game-stability-mastering-samurai-warriors-5-on-pc/"><u>Resolving PlayStation Portable Game Stability: Mastering Samurai Warriors #5 on PC</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/top-12-gratis-dvd-extraktoren-fur-mac-im-jahr-2-cu2023-vollversionen-finden/"><u>Top 12 Gratis DVD-Extraktoren Für Mac Im Jahr 2 Cu2023 - Vollversionen Finden</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-zero-cost-wonder-top-5-free-wmv-video-editors-for-2024/"><u>Updated Zero-Cost Wonder Top 5 Free WMV Video Editors for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-eliminate-quiet-vids-tweet-audio-revival/"><u>[New] Eliminate Quiet Vids Tweet Audio Revival</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solved-everspace-2-crashing-on-pc/"><u>[SOLVED] Everspace 2 Crashing on PC</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-how-to-record-audio-on-windows-10/"><u>[Updated] 2024 Approved How To Record Audio on Windows 10?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-transformative-techniques-to-enhance-your-powerpoint-recordings/"><u>[Updated] In 2024, Transformative Techniques to Enhance Your PowerPoint Recordings</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-tag-with-your-favorite-show-podcast-on-ig/"><u>[Updated] Tag with Your Favorite Show Podcast on IG</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726225848630-mpeg-mp4-movavi/"><u>互联网自由转码 MPEG MP4 高效率工具 - Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/conversao-e-transformacao-ao-vivo-em-flac-de-dts-sem-cobranca-site-gratis-da-movavi/"><u>Conversão E Transformação Ao Vivo Em FLAC De DTS Sem Cobrança - Site Grátis Da Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-converter-change-mp3-files-into-m4a-format-with-ease/"><u>Free Online Converter - Change MP3 Files Into M4A Format with Ease</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-converter-transform-flv-files-into-editable-gifs-with-ease/"><u>Free Online Converter: Transform FLV Files Into Editable GIFs with Ease</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guia-completa-para-la-transformacion-m4b-a-wav-en-linea-gratuitamente-con-convertio-audio-converter/"><u>Guía Completa Para La Transformación M4B a WAV en Línea Gratuitamente Con Convertio Audio Converter</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-tecno-phantom-v-fold-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Tecno Phantom V Fold Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-5-tips-to-get-more-views-with-youtube-optimization-free-checklist/"><u>In 2024, 5 Tips to Get More Views with YouTube Optimization [Free Checklist]</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/key-elements-in-constructing-a-podcast-rss-feed/"><u>Key Elements in Constructing a Podcast RSS Feed</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavi-mac/"><u>Movavi Mac用プログラムアカウント作成手順</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/snap-the-scene-comprehensive-no-cost-pcmac-capture-tools/"><u>Snap the Scene Comprehensive, No-Cost PC/Mac Capture Tools</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformar-mp3-en-archivos-de-video-avi-gratuito-en-linea-con-convertidor-quick-video/"><u>Transformar MP3 en Archivos De Vídeo AVI Gratuito en Línea Con Convertidor Quick Video</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unveiling-intels-new-chip-battlemage-eco-friendly-power-consumption-at-100w-less-than-ice-lake-generation-and-robust-overclocking-in-light-of-latest-raptor-43/"><u>Unveiling Intel's New Chip - Battlemage, Eco-Friendly Power Consumption at 100W Less Than Ice Lake Generation and Robust Overclocking in Light of Latest Raptor Lake Updates</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726224643087-3gp-mp3-movavi/"><u>온라인에서 3GP 파일을 안전하게 MP3로 변환하는 가장 좋은 방법: Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mp3m4bmovavi/"><u>オンラインで楽にMP3をM4Bに変換：Movaviの優れたサービスと無料アプリ</u></a></li>
 </ul></div>
 

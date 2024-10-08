@@ -1,7 +1,7 @@
 ---
 title: "1. IPhone Xs & X: Comparative Review with Enhanced Scanning Features on the ABBEYY Blog"
-date: 2024-09-30T08:52:35.662Z
-updated: 2024-10-03T07:26:59.690Z
+date: 2024-10-02T19:15:05.859Z
+updated: 2024-10-08T18:48:00.652Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/64727a6fb30fc85eb70a4052d7d6ea68ac41c9b68c8e82ebf0f07967ea3707f2.jpg
@@ -83,19 +83,6 @@ The iPhone XS has an [IP Code](https://en.wikipedia.org/wiki/IP%5FCode) of IP68,
 
 The iPhone XS has a smaller battery capacity than the iPhone X, but it will last 30 minutes longer thanks to the new energy-efficient A12 Bionic chip.
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Android Tips: Galaxy S10 Rumours**
 
 The Samsung Galaxy S10, to be launched in the first quarter of 2019, is poised to be the main rival of the iPhone XS. Here’s what we may expect.
@@ -117,10 +104,10 @@ The S10 will launch with Android Pie on board. We must say that this latest Andr
 Of course, its all rumours at the moment, but one thing we can be certain of: after the controversial Galaxy S9, Samsung will make every effort not to disappoint. All we can do now is wait a couple of months until the official launch, when the specs and reviews will be available all over the Internet.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **ABBYY Tip: FineScanner Gets a Makeover**
@@ -138,21 +125,22 @@ Here’s how [FineScanner](http://qrs.ly/mg4z2wm) looks now:
 ![abbyy finescanner new design](https://static1.abbyy.com/abbyycommedia/26141/image-from-ios-2.jpg) ![abbyy finescanner recognize](https://static1.abbyy.com/abbyycommedia/26140/image-from-ios-4.jpg) ![abbyy finescanner scan and ocr](https://static1.abbyy.com/abbyycommedia/26572/image-from-ios-3.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Isn’t it beautiful?
 
 [Download or update](http://qrs.ly/mg4z2wm) your copy of FineScanner and tell us what you think about the new design in AppStore.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **App of the Week: Happy Glass**
 
@@ -175,16 +163,10 @@ That’s all from us for today. Until next Monday! P.S. You can find the previou
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -251,22 +233,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-15-simple-steps-to-convert-youtube-to-mpeg-effortlessly/"><u>2024 Approved 15 Simple Steps to Convert YouTube to MPEG Effortlessly</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-close-up-clarity-mastering-the-art-of-intense-focus/"><u>2024 Approved Close-Up Clarity Mastering the Art of Intense Focus</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-leveraging-tiktok-videos-for-twitter-audiences/"><u>2024 Approved Leveraging TikTok Videos for Twitter Audiences</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726226880430-wav-m4a-movavi/"><u>線上無償 WAV 到 M4A 轉換服務：Movavi 音頻編碼工具</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gsmmp4movavi/"><u>在线无需付钱：自动转换GSM视频为MP4，使用Movavi解决方案</u></a></li>
-<li><a href="https://extra-information.techidaily.com/achieving-visual-precision-with-the-right-4k-display-selection-for-2024/"><u>Achieving Visual Precision with the Right 4K Display Selection for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/best-buys-for-extreme-weather-shooting-top-7-edition-for-2024/"><u>Best Buys for Extreme Weather Shooting, Top 7 Edition for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/downloadable-mkaaac-video-transcoder-tool-by-movavi-no-cost-use-anywhere/"><u>Downloadable MKA/AAC Video Transcoder Tool by Movavi - No Cost, Use Anywhere!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/full-dynamics-review-2023/"><u>Full Dynamics Review 2023</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/guia-para-convertir-archivos-de-audio-wav-a-mp3-sin-costo-alguno-mediante-movavi/"><u>Guía Para Convertir Archivos De Audio WAV a MP3 Sin Costo Alguno Mediante Movavi</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/how-to-see-someones-location-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>How to See Someones Location on Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-tecno-camon-20-pro-5g-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Tecno Camon 20 Pro 5G Phone without Any Data Loss</u></a></li>
-<li><a href="https://review-topics.techidaily.com/identify-missing-your-hardware-drivers-with-windows-device-manager-in-windows-1110-by-drivereasy-guide/"><u>Identify missing your hardware drivers with Windows Device Manager in Windows 11/10</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726225557529-mp3-movavi/"><u>Mp3ファイルビットレート変更手順 - Movaviで簡単に実行!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/telechargez-et-convertissez-votre-fichier-voc-en-wmv-pour-gratuit-conversion-video-rapide-en-ligne-a-laide-de-movavi/"><u>Téléchargez Et Convertissez Votre Fichier VOC en WMV Pour Gratuit – Conversion Vidéo Rapide en Ligne À L'aide De Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transform-your-3gp-videos-into-webm-with-ease-using-movavis-cost-free-tool/"><u>Transform Your 3GP Videos Into WebM with Ease Using Movavi’s Cost-Free Tool</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transformez-vos-fichiers-swf-en-avi-sans-frais-grace-au-convertisseur-en-ligne-movavi-solution-optimisee-seo/"><u>Transformez Vos Fichiers SWF en AVI Sans Frais Grâce Au Convertisseur en Ligne Movavi - Solution Optimisée SEO</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-telehealth-advancements-with-vr-integrations/"><u>[Updated] 2024 Approved Telehealth Advancements with VR Integrations</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-novice-to-vlogger-top-tips-to-enhance-your-tiktok-videos/"><u>[Updated] From Novice to Vlogger Top Tips to Enhance Your TikTok Videos</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-innovates-unveils-state-of-the-art-indian-randd-hub/"><u>ABBYY Innovates: Unveils State-of-the-Art Indian R&D Hub</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-realise-sustains-double-digit-growth-streak-for-third-consecutive-year/"><u>ABBYY Réalise Sustains Double-Digit Growth Streak for Third Consecutive Year</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-und-xerox-formen-eine-strategische-partnerschaft-erste-lizenzierungsvereinbarung-geschlossen/"><u>ABBYY Und Xerox Formen Eine Strategische Partnerschaft - Erste Lizenzierungsvereinbarung Geschlossen!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyys-senior-vice-president-joins-elite-aiim-fellowship/"><u>ABBYY's Senior Vice President Joins Elite AIIM Fellowship</u></a></li>
+<li><a href="https://win-able.techidaily.com/dealing-with-frozen-rust-projects-pro-tips-and-fixes-for-swift-recovery-in-amo/"><u>Dealing with Frozen Rust Projects: Pro Tips & Fixes for Swift Recovery in Amo</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-update-guide-intel-wi-fi-ax210-drivers/"><u>Download and Update Guide: Intel Wi-Fi AX210 Drivers</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723209815930-harmonizing-display-and-timing-monitor-support-now-restored/"><u>Harmonizing Display and Timing - Monitor Support Now Restored!</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Xiaomi 13 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-snappy-side-hustles-earning-with-snapchat/"><u>In 2024, Snappy Side Hustles Earning with Snapchat</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-xiaomi-redmi-note-13-proplus-5g-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Xiaomi Redmi Note 13 Pro+ 5G Phones</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlocking-features-of-finescanner-in-ios-12-expert-insights-from-the-abbyy-community/"><u>Unlocking Features of FineScanner in iOS 12 - Expert Insights From the ABBYY Community</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-the-power-of-assist-controller-on-ps5/"><u>Unlocking the Power of Assist Controller on PS5</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/utilizing-cookiebot-technology-for-improved-online-engagement-analysis/"><u>Utilizing Cookiebot Technology for Improved Online Engagement Analysis</u></a></li>
 </ul></div>
 

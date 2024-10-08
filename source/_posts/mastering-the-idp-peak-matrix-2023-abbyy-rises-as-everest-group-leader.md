@@ -1,7 +1,7 @@
 ---
 title: "Mastering the IDP Peak Matrix 2023: ABBYY Rises as Everest Group Leader"
-date: 2024-10-02T09:04:41.728Z
-updated: 2024-10-02T18:35:56.682Z
+date: 2024-10-05T19:22:08.015Z
+updated: 2024-10-08T18:52:26.395Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/07be777ce45c307461ad22ca534398f5c53e5285da087031d4c184f1389088d2.jpg
@@ -14,30 +14,23 @@ Rapport
 ## Évaluation PEAK Matrix® 2023 d’Everest Group sur les produits de Traitement Intelligent des Documents
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Everest Group a désigné ABBYY comme l’un des Leaders des produits de Traitement Intelligent des Documents dans son évaluation PEAK Matrix® 2023
 
 ![](https://static1.abbyy.com/abbyycommedia/37866/intelligent-document-processing-2023-peak-matrix-award-logo-leader.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://static1.abbyy.com/abbyycommedia/37865/peak-2023-idp-products-abbyy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ABBYY a été reconnu, pour la quatrième année consécutive, comme l’un des leaders du marché des produits IDP (traitement intelligent des documents) par Everest Group, dans son évaluation PEAK Matrix 2023.
@@ -54,13 +47,20 @@ La PEAK Matrix donne un cadre pour évaluer la réussite relative sur le marché
 
 _Vaibhav Bansal, Vice-Président, Everest Group_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Request information
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Merci de votre intérêt pour ABBYY.
@@ -134,22 +134,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/21-edition-exploration-mastering-vegas-pro-for-gambling/"><u>'21 Edition Exploration – Mastering Vegas Pro for Gambling</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/editing-essentials-rectify-faded-iphone-hdr-with-4-key-techniques-in-premiere-pro/"><u>[Editing Essentials] Rectify Faded iPhone HDR with 4 Key Techniques in Premiere Pro</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-creators-uniting-for-marvels-digital-future/"><u>[New] Creators Uniting for Marvel's Digital Future</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-syncing-soundscapes-to-pixelated-portraits/"><u>[New] Syncing Soundscapes to Pixelated Portraits</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-mastering-text-overlays-on-photos-in-windows-10s-photos-app-for-2024/"><u>[Updated] Mastering Text Overlays on Photos in Windows 10'S Photos App for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-perfectpic-pro-high-quality-windowsmac-images/"><u>[Updated] PerfectPic Pro High-Quality Windows/Mac Images</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harnessing-the-power-of-cookiebot-for-superior-online-traffic-insights/"><u>Harnessing the Power of Cookiebot for Superior Online Traffic Insights</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-infinix-smart-7-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Infinix Smart 7 Devices</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-success-pushing-your-video-into-top-charts/"><u>In 2024, Crafting Success Pushing Your Video Into Top Charts</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-vivo-x-flip-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Vivo X Flip FRP</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/innovating-supply-chains-leveraging-document-management-in-the-age-of-digital-evolution/"><u>Innovating Supply Chains: Leveraging Document Management in the Age of Digital Evolution</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/introducing-our-latest-innovations-digital-cookbook-solutions-and-image-transformation-explore-the-abbyy-universe/"><u>Introducing Our Latest Innovations: Digital Cookbook Solutions & Image Transformation - Explore the ABBYY Universe</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leverage-advanced-analytics-with-our-cookiebot-integration-services-for-website-optimization/"><u>Leverage Advanced Analytics with Our Cookiebot Integration Services for Website Optimization</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mastering-data-with-abbyy-and-arsenal-women-cutting-edge-ai-insights/"><u>Mastering Data with ABBYY & Arsenal Women: Cutting-Edge AI Insights</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mastering-networking-with-bcr-for-ios-nv-10-unveiling-latest-features-by-abbyy-exclusive-tips-from-our-companys-blog/"><u>Mastering Networking with BCR for iOS Nv 10: Unveiling Latest Features by ABBYY | Exclusive Tips From Our Company's Blog</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimized-by-cookiebot-enhanced-sales-funnel-management-and-analytics/"><u>Optimized by Cookiebot: Enhanced Sales Funnel Management and Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/paragon-customer-communications-advances-with-abbyys-digital-intelligence-for-comprehensive-digital-overhaul/"><u>Paragon Customer Communications Advances with ABBYY's Digital Intelligence for Comprehensive Digital Overhaul</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-affordable-video-grabbing-tools-tested-on-pcs-for-2024/"><u>[New] Affordable Video Grabbing Tools Tested on PCs for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-mastering-fbs-viral-hits-10-songs-that-scored-big/"><u>[Updated] 2024 Approved Mastering FB's Viral Hits - 10 Songs That Scored Big</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-counteract-fake-views-boosting-genuine-audience-size/"><u>[Updated] Counteract Fake Views Boosting Genuine Audience Size</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-make-every-moment-count-with-these-15-engaging-activities-while-listening-to-talk-shows/"><u>[Updated] Make Every Moment Count with These 15 Engaging Activities While Listening to Talk Shows</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-premium-fb-videograbber-suite-high-quality-downloads-fast-and-secure-for-2024/"><u>[Updated] Premium FB Videograbber Suite High-Quality Downloads, Fast & Secure for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-transform-your-footage-techniques-for-outstanding-gopro-edits/"><u>2024 Approved Transform Your Footage Techniques for Outstanding GoPro Edits</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/global-sales-surge-by-15-in-abbyys-2018-annual-performance-official-statement/"><u>Global Sales Surge by 15% in ABBYY's 2018 Annual Performance - Official Statement</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/go-paperless-with-abbyys-exciting-ocr-solution-for-instant-mobile-loan-sanctions/"><u>Go Paperless with ABBYY's Exciting OCR Solution for Instant Mobile Loan Sanctions!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/harnessing-cookiebot-technology-for-superior-web-analytics/"><u>Harnessing Cookiebot Technology for Superior Web Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/how-rhenus-enhances-operational-speed-using-abbyys-advanced-scanning-technology/"><u>How Rhenus Enhances Operational Speed Using ABBYY's Advanced Scanning Technology</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-infinix-note-30-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Infinix Note 30</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-realme-v30t-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Realme V30T to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/introducing-abbyys-comprehensive-finereader-engine-n-the-ultimate-ocr-solution-for-simulated-and-cloud-settings/"><u>Introducing ABBYY's Comprehensive FineReader Engine N - The Ultimate OCR Solution for Simulated and Cloud Settings</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/levolution-recente-de-la-logiciel-capturflex-avec-abbyy/"><u>L'Évolution Récente De La Logiciel CapturFlex Avec ABBYY</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/navigating-new-horizons-in-talent-acquisition-with-artificial-intelligence-in-hr/"><u>Navigating New Horizons in Talent Acquisition with Artificial Intelligence in HR.</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/navigating-the-shifting-landscape-understanding-modern-supply-chain-vulnerabilities-amidst-pandemic-recovery/"><u>Navigating the Shifting Landscape: Understanding Modern Supply Chain Vulnerabilities Amidst Pandemic Recovery</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimize-with-cookiebot-boosting-traffic-and-conversions-on-your-website/"><u>Optimize with Cookiebot: Boosting Traffic and Conversions on Your Website</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722968350268-ultimate-guide-to-downloading-and-updating-rndis-usb-network-adapter-for-windows-now-resolved/"><u>Ultimate Guide to Downloading and Updating RNDIS USB Network Adapter for Windows - Now Resolved!</u></a></li>
 </ul></div>
 

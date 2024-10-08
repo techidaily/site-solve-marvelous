@@ -1,7 +1,7 @@
 ---
 title: "Pioneering a Future with Secure AI: ABBYY's Global Campaign for Responsible Innovation"
-date: 2024-09-30T09:29:54.765Z
-updated: 2024-10-03T11:36:05.620Z
+date: 2024-10-05T19:12:15.758Z
+updated: 2024-10-08T18:12:26.393Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a24327de3f954b0afa1a21a400dc142c840e7eb4a1e199fa6e8f6bfec8524954.jpg
@@ -82,35 +82,28 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-no-more-glitches-working-obs-cameras-for-2024/"><u>[Updated] No More Glitches Working OBS Cameras for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-unveiling-the-finest-9-free-youtube-brand-tools-online/"><u>2024 Approved Unveiling the Finest 9 Free YouTube Brand Tools Online</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/3gpwmv-movavi/"><u>免費移動中的3GP到WMV格式轉換 - 利用Movavi工具</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/a-lista-dos-8-mestres-gratis-em-gerar-glitch-effects-and-imperfections-for-designers/"><u>A Lista Dos 8 Mestres Grátis Em Gerar Glitch Effects and Imperfections for Designers</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/chuckle-filled-creativity-crafting-7-side-splitting-youtube-sets-for-2024/"><u>Chuckle-Filled Creativity Crafting 7 Side-Splitting YouTube Sets for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-converter-video-mp4-a-fotos-jpg-de-manera-gratuita-en-linea-guia-paso-a-paso-con-herramienta-movavi/"><u>Cómo Converter Video MP4 a Fotos JPG De Manera Gratuita en Línea - Guía Paso a Paso Con Herramienta Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/converti-video-mp4-a-formato-libero-aac-sul-web-senza-costi-usando-lapplicazione-di-moveavi/"><u>Converti Video MP4 a Formato Libero AAC Sul Web Senza Costi, Usando L'applicazione Di Moveavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/guia-passo-a-passo-para-criar-e-gravar-videoaulas-em-windows-ou-macos/"><u>Guia Passo-a-Passo Para Criar E Gravar VideoAulas Em Windows Ou macOS</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/guide-rapide-transformez-vos-fichiers-raw-en-images-de-haute-qualite-au-format-jpeg/"><u>Guide Rapide : Transformez Vos Fichiers RAW en Images De Haute Qualité Au Format JPEG</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-apple-iphone-12-mini-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the Apple iPhone 12 mini Without Previous Owner?</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/momentframe-connectx-review-quality-above-budget/"><u>MomentFrame ConnectX Review: Quality Above Budget</u></a></li>
-<li><a href="https://network-issues.techidaily.com/nvidia-geforce-210-drivers-update-for-windows-11/"><u>NVIDIA GeForce 210 Drivers Update for Windows 11</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-vivo-y78-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Vivo Y78 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/saying-bonjour-the-elegant-way-to-express-happiness-and-goodwill/"><u>Saying 'Bonjour': The Elegant Way to Express Happiness & Goodwill</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-6-substitutes-for-windows-movie-maker-a-comprehensive-guide/"><u>Top 6 Substitutes for Windows Movie Maker : A Comprehensive Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-best-budget-laptop-a-comprehensive-guide-to-the-acer-aspire-e/"><u>Unveiling the Best Budget Laptop: A Comprehensive Guide to the Acer Aspire E</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mkvavi-wmvm4v/"><u>오픈소스 MKV/AVI를 WMV/M4V로 자유성: 영상 코어 강조</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-how-to-change-name-in-google-meet/"><u>[New] How to Change Name in Google Meet?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tep-by-step-method-for-extracting-video-portions-from-youtube-for-2024/"><u>[New] Step-by-Step Method for Extracting Video Portions From YouTube for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-unveiling-the-best-video-player-apps-for-idevices-top-10-for-2024/"><u>[New] Unveiling the Best Video Player Apps for iDevices (Top 10) for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-hidden-facebook-data-and-protecting-yourself-online/"><u>[Updated] Unveiling Hidden Facebook Data & Protecting Yourself Online</u></a></li>
+<li><a href="https://media-tips.techidaily.com/1727404308517-mp4windows-10macos/"><u>絕對無損解析的優秀MP4播放器：免費版本及Windows 10/macOS用户下载方便指南</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhancing-user-experience-with-cookiebots-customized-marketing-tools/"><u>Enhancing User Experience with Cookiebot's Customized Marketing Tools</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/experience-customized-content-delivery-the-power-of-the-latest-cookiebot-solutions/"><u>Experience Customized Content Delivery: The Power of the Latest Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/harness-the-power-of-cookiebot-for-advanced-seo-optimization/"><u>Harness the Power of Cookiebot for Advanced SEO Optimization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/harnessing-cloud-power-for-advanced-document-recognition-a-deep-dive-into-ocr-sdk-scalability-on-the-abbyy-blog/"><u>Harnessing Cloud Power for Advanced Document Recognition: A Deep Dive Into OCR SDK Scalability on the ABBYY Blog</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-audience-targeting/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and Audience Targeting</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/harnessing-the-power-of-cookiebot-technology-for-effective-web-analytics-and-seo-strategies/"><u>Harnessing the Power of Cookiebot Technology for Effective Web Analytics and SEO Strategies</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/maximize-your-online-visibility-with-cookiebots-seo-solutions/"><u>Maximize Your Online Visibility with Cookiebot's SEO Solutions</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-s-top-animation-software-10-best-2d-tools-for-beginners-and-pros/"><u>New In 2024, S Top Animation Software 10 Best 2D Tools for Beginners and Pros</u></a></li>
+<li><a href="https://extra-information.techidaily.com/optimizing-your-creative-process-windows-movie-maker-on-windows-8-unveiled/"><u>Optimizing Your Creative Process Windows Movie Maker on Windows 8 Unveiled</u></a></li>
+<li><a href="https://android-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-huawei-nova-y91-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Huawei Nova Y91 FRP</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 7 Plus | Dr.fone</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

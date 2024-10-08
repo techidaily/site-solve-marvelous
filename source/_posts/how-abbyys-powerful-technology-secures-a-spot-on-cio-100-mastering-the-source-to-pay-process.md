@@ -1,7 +1,7 @@
 ---
 title: "How ABBYY's Powerful Technology Secures a Spot on CIO 100: Mastering the Source-to-Pay Process"
-date: 2024-10-02T11:19:59.315Z
-updated: 2024-10-03T10:16:59.127Z
+date: 2024-10-02T19:41:21.905Z
+updated: 2024-10-08T18:45:42.464Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e99583f6b5b06e719853b0ad4d8e79890585ba4f6bebb22736b51161b0bbe49e.jpg
@@ -18,16 +18,10 @@ September 27, 2022
 ![](https://static1.abbyy.com/abbyycommedia/36021/15013_smm_cio-award_jll_linkedin_4.png) 
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Helping the Fortune 500 company achieve organizational excellence has also won ABBYY recognition with CIO Magazine
@@ -51,10 +45,10 @@ It was an enormous project that achieved high automation goals and improved thei
 _Bruce Orcutt, SVP of Product Marketing at ABBYY_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Let Intelligent Process Automation Work for You
@@ -70,10 +64,10 @@ ABBYY’s [intelligent process automation platform](https://tools.techidaily.com
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -139,21 +133,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-efficient-thumbnail-generation-with-your-phone-for-video-content/"><u>[New] 2024 Approved Efficient Thumbnail Generation with Your Phone for Video Content</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-economical-pc-screen-grab-utilities-for-2024/"><u>[New] Economical PC Screen Grab Utilities for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-excellence-in-voice-modification-tools-featuring-magic/"><u>[New] Excellence in Voice Modification Tools, Featuring Magic</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-from-fixed-frames-to-dynamic-circles-in-videos/"><u>[New] From Fixed Frames to Dynamic Circles in Videos</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-transformative-srt-editing-techniques-for-apple-devices/"><u>[New] Transformative SRT Editing Techniques for Apple Devices</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-unveiling-the-secrets-to-profitable-brands-partnerships-on-youtube/"><u>[New] Unveiling the Secrets to Profitable Brands Partnerships on YouTube</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-jump-into-action-how-to-start-someones-tiktok-session/"><u>2024 Approved Jump Into Action How To Start Someone's TikTok Session</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gsmmp4movavi/"><u>在线无需付钱：自动转换GSM视频为MP4，使用Movavi解决方案</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/effortless-access-to-zdf-media-exclusive-desktop-apps-for-quick-downloads-on-windows-and-macos/"><u>Effortless Access to ZDF Media: Exclusive Desktop Apps for Quick Downloads on Windows & macOS</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-online-swf-to-mkv-converter-movavi-video-editor/"><u>Free Online Swf to Mkv Converter - Movavi Video Editor</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-vrijetijdige-converteren-van-trp-naar-mpg-met-movavi/"><u>Online Vrijetijdige Converteren Van TRP Naar MPG Met MOVAVI</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/psychological-safety-in-the-workplace-encourages-employees-to-share-their-thoughts-openly-leading-to-increased-creativity/"><u>Psychological Safety in the Workplace Encourages Employees to Share Their Thoughts Openly, Leading to Increased Creativity.</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/step-by-step-guide-recording-your-screen-with-ease-using-movavi/"><u>Step-by-Step Guide: Recording Your Screen with Ease Using Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-12-outils-danimation-open-source-en-2024-solutions-de-modelisation-et-animation-3d/"><u>Top 12 Outils D'Animation Open Source en 2024 - Solutions De Modélisation Et Animation 3D</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transform-your-3gp-videos-into-webm-with-ease-using-movavis-cost-free-tool/"><u>Transform Your 3GP Videos Into WebM with Ease Using Movavi’s Cost-Free Tool</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transformation-facile-et-gratuite-de-fichiers-mka-en-wav-en-ligne-decouvrez-la-solution-de-movavi/"><u>Transformation Facile Et Gratuite De Fichiers MKA en WAV en Ligne - Découvrez La Solution De Movavi</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-drone-evolution-a-deep-look-at-djis-mavic-pro/"><u>[New] The Drone Evolution A Deep Look at DJI's Mavic Pro</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-apk-essentials-start-playing-funimate-now-for-2024/"><u>[Updated] APK Essentials Start Playing Funimate Now for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>A Detailed VPNa Fake GPS Location Free Review On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyys-senior-vice-president-joins-elite-aiim-fellowship/"><u>ABBYY's Senior Vice President Joins Elite AIIM Fellowship</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abtyy-zeichnet-dritte-reihe-von-jahren-mit-zweiseitiger-umsatzsteigerung-auf/"><u>ABTYY Zeichnet Dritte Reihe Von Jahren Mit Zweiseitiger Umsatzsteigerung Auf</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/adrian-jones-elevated-to-cro-position-at-abbyy-leading-revenue-innovation/"><u>Adrian Jones Elevated to CRO Position at ABBYY - Leading Revenue Innovation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/appointment-of-neil-murphy-as-cso-how-abbyy-strengthens-its-executive-team/"><u>Appointment of Neil Murphy as CSO: How ABBYY Strengthens Its Executive Team</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/automate-your-leads-with-cookiebot-the-powerful-conversion-optimizer/"><u>Automate Your Leads with Cookiebot: The Powerful Conversion Optimizer</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/boost-your-document-management-capabilities-with-tangro-and-abbyy-integration/"><u>Boost Your Document Management Capabilities with Tangro and ABBYY Integration</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722883563072-discover-whats-new-at-samsung-unpacked-2025-release-dates-announcements-and-rumored-gadgets-revealed/"><u>Discover What's New at Samsung Unpacked 2025 - Release Dates, Announcements & Rumored Gadgets Revealed!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-pictures-from-motorola-moto-g24-by-fonelab-android-recover-pictures/"><u>Easy steps to recover deleted pictures from Motorola Moto G24.</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-windows-related-roblox-error-403/"><u>Fixing Windows-Related Roblox Error 403</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/starting-your-own-platform-a-guide-to-critiquing-home-essentials/"><u>Starting Your Own Platform A Guide to Critiquing Home Essentials</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-complete-guide-to-tecno-spark-20-pro-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Tecno Spark 20 Pro FRP Bypass Everything You Need to Know</u></a></li>
 </ul></div>
 

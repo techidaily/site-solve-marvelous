@@ -1,7 +1,7 @@
 ---
 title: Innovative Strategies for Advancing Process Enhancement Amidst COVID-19 & Future Challenges
-date: 2024-09-29T02:48:52.657Z
-updated: 2024-10-02T20:26:26.433Z
+date: 2024-10-04T18:02:49.604Z
+updated: 2024-10-08T17:25:28.309Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8a9fe07be68597eb9b7713ab.jpg
@@ -15,22 +15,15 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 
 English
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### New Techniques in Process Improvement
 
 Pen and paper-based value stream mapping (VSM) is the established tool for recording processes, identifying waste, and deriving recommendations for action. However, its application in the healthcare industry today requires a high level of effort and is challenging due to process complexity, variations, and siloed information. Compounding the problem, COVID-19 has made it extremely difficult for process improvement specialists to conduct in-person assessments and Kaizen events.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Learning Points:
@@ -41,38 +34,39 @@ Pen and paper-based value stream mapping (VSM) is the established tool for recor
 * Building business cases for identified improvement opportunities with evidence-based ROI that can be measured by time and cost savings
 * Tracking compliance with improvement initiatives post-implementation
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Watch now
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Thank you, enjoy your webinar!
 
 [![14 A Guide To Achieving Process Excellence During COVID & Beyond](https://static4.abbyy.com/abbyycommedia/29631/14-a-guide-to-achieving-process-excellence-during-covid-beyond.jpg)](https://www.youtube.com/watch?v=VoLSbg-urvE) 
 
-![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -139,22 +133,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-oppo-find-x7-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Oppo Find X7 to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/7-ways-to-unlock-a-locked-nokia-c32-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Nokia C32 Phone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726226880430-wav-m4a-movavi/"><u>線上無償 WAV 到 M4A 轉換服務：Movavi 音頻編碼工具</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/downloadable-mkaaac-video-transcoder-tool-by-movavi-no-cost-use-anywhere/"><u>Downloadable MKA/AAC Video Transcoder Tool by Movavi - No Cost, Use Anywhere!</u></a></li>
-<li><a href="https://win-latest.techidaily.com/effective-strategies-for-managing-and-reusing-e-book-themes-with-flipbook/"><u>Effective Strategies for Managing and Reusing E-Book Themes with FlipBook</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/guia-para-convertir-archivos-de-audio-wav-a-mp3-sin-costo-alguno-mediante-movavi/"><u>Guía Para Convertir Archivos De Audio WAV a MP3 Sin Costo Alguno Mediante Movavi</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/high-end-hardware-a-showcase-of-excellence-for-2024/"><u>High-End Hardware A Showcase of Excellence for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-tecno-spark-10-4g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Tecno Spark 10 4G Phones? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-resolve-your-apple-iphone-8-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>In 2024, Resolve Your Apple iPhone 8 Keeps Asking for Outlook Password | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726225557529-mp3-movavi/"><u>Mp3ファイルビットレート変更手順 - Movaviで簡単に実行!</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/no-fluff-just-facts-the-verdict-on-recordcast/"><u>No Fluff, Just Facts The Verdict on RecordCast</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/streamline-your-archive-broadcast-pre-recorded-videos-live-on-facebook-for-2024/"><u>Streamline Your Archive Broadcast Pre-Recorded Videos Live on Facebook for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/switch-audio-formats-effortlessly-convert-ogg-to-wmv-for-free-using-the-best-online-tools/"><u>Switch Audio Formats Effortlessly - Convert OGG to WMV for Free Using the Best Online Tools</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/telechargez-et-convertissez-votre-fichier-voc-en-wmv-pour-gratuit-conversion-video-rapide-en-ligne-a-laide-de-movavi/"><u>Téléchargez Et Convertissez Votre Fichier VOC en WMV Pour Gratuit – Conversion Vidéo Rapide en Ligne À L'aide De Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transformez-vos-fichiers-swf-en-avi-sans-frais-grace-au-convertisseur-en-ligne-movavi-solution-optimisee-seo/"><u>Transformez Vos Fichiers SWF en AVI Sans Frais Grâce Au Convertisseur en Ligne Movavi - Solution Optimisée SEO</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unbeatable-deals-on-pre-owned-computer-gear-why-now-is-the-perfect-moment/"><u>Unbeatable Deals on Pre-Owned Computer Gear: Why Now Is the Perfect Moment</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/vyber-bezcenne-vystrihovaci-zelezo-za-2024-aktualizacni-akt-poznamky-movavi-bezcennych-topu-14-nastroju/"><u>Vyber Bezcenné Vystřihovací Železo Za 2024 [Aktualizační Akt] – Poznámky Movavi Bezcenných Topu 14 Nástrojů</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-effortlessly-stream-mp3-to-youtube-with-3-key-steps/"><u>[New] 2024 Approved Effortlessly Stream MP3 to YouTube with 3 Key Steps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-highest-performance-graphics-for-uhd-media/"><u>[New] 2024 Approved Highest Performance Graphics for UHD Media</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-step-by-step-for-novices-utilizing-facebook-insights/"><u>[New] 2024 Approved Step-by-Step for Novices Utilizing Facebook Insights</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-conquer-your-screen-top-10-simple-youtube-projects-for-all-creators/"><u>[Updated] In 2024, Conquer Your Screen Top 10 Simple YouTube Projects for All Creators</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-marketing-automation-solutions/"><u>Cookiebot Driven Marketing Automation Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-performance-mastering-online-marketing-metrics-effortlessly/"><u>Cookiebot-Driven Performance: Mastering Online Marketing Metrics Effortlessly</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-user-experience-and-conversion-rates/"><u>Cookiebot-Enabled: Enhancing User Experience and Conversion Rates</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-sites-analytics-and-personalization/"><u>Cookiebot-Enabled: Enhancing Your Site's Analytics and Personalization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-optimizing-your-site-with-advanced-tracking-technology/"><u>Cookiebot: Optimizing Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-the-secret-ingredient-for-optimized-user-experience/"><u>Cookiebot: The Secret Ingredient for Optimized User Experience</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-aloneness-in-depth-review-of-3dr-tech-for-2024/"><u>Navigating Aloneness In-Depth Review of '3DR' Tech for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/perfected-text-templates-for-professional-use/"><u>Perfected Text Templates for Professional Use</u></a></li>
+<li><a href="https://games-able.techidaily.com/swift-steps-securing-and-setting-up-mojang-maps/"><u>Swift Steps: Securing & Setting up Mojang Maps</u></a></li>
 </ul></div>
 

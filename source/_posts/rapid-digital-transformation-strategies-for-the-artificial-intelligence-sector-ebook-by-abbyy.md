@@ -1,7 +1,7 @@
 ---
 title: Rapid Digital Transformation Strategies for the Artificial Intelligence Sector – eBook by ABBYY
-date: 2024-10-01T12:26:17.676Z
-updated: 2024-10-02T23:20:20.313Z
+date: 2024-10-01T18:14:16.318Z
+updated: 2024-10-08T18:33:15.924Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b97d0ebad54511b61b45570cc2aa70ceb4b57e4382ef455cbbee6f6a39f5f377.jpg
@@ -13,15 +13,22 @@ eBook
 
 ## Offrez une Expérience Client Exceptionnelle Grâce à l’automatisation
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Comment les compagnies d’assurance peuvent-elles bénéficier d’un avantage compétitif à l’ère du numérique ?
 
 ![eBook : Accélérer l’agilité numérique dans le secteur de l’assurance](https://static1.abbyy.com/abbyycommedia/32700/08b-accelerating-digital-agility-in-insurance-fr-360x232.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Le service client est le principal vecteur d’avantage compétitif pour les compagnies d’assurance. C’est la raison pour laquelle la transformation numérique peut être source de perturbations.
@@ -29,10 +36,10 @@ Le service client est le principal vecteur d’avantage compétitif pour les com
 L’approche d’ABBYY consiste à acquérir de nouveaux clients et à les fidéliser, et repose sur un principe simple : On ne peut améliorer ce que l’on ne comprend pas.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Télécharger maintenant!
@@ -45,10 +52,10 @@ Dans cet eBook, vous découvrirez :
 * Comment surmonter les obstacles à la réussite des initiatives de transformation numérique, d’automatisation et d’expérience client.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Merci de votre intérêt pour ABBYY.
@@ -56,19 +63,6 @@ Dans cet eBook, vous découvrirez :
 [Lire l’eBook](https://digital.abbyy.com/hubfs/content/ebook-digitalintelligence-insurance-fr.pdf "Lire l’eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -139,18 +133,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-gopro-hero5-a-comprehensive-footage-study/"><u>[New] GoPro Hero5 A Comprehensive Footage Study</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-achieving-excellent-illumination-on-youtube-videos/"><u>2024 Approved Achieving Excellent Illumination on YouTube Videos</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-best-vr-and-action-cameras-beyond-gopros-realm/"><u>2024 Approved Best VR and Action Cameras Beyond GoPro's Realm</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-website-optimization-elevating-your-online-presence/"><u>Cookiebot-Driven Website Optimization: Elevating Your Online Presence</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-customized-user-experience/"><u>Cookiebot-Enabled Customized User Experience</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhance-user-experience-with-personalized-website-analytics/"><u>Cookiebot-Enabled: Enhance User Experience with Personalized Website Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-sites-personalization-and-analytics/"><u>Cookiebot-Enabled: Enhancing Your Site's Personalization & Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-tracking-solutions/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Solutions</u></a></li>
-<li><a href="https://fox-that.techidaily.com/fixing-a-broken-iphone-qr-reader-in-just-10-steps/"><u>Fixing a Broken iPhone QR Reader in Just 10 Steps</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-realme-v30-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Realme V30 Back to Operation | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/solving-iphone-email-issues-a-comprehensive-guide-for-users/"><u>Solving iPhone Email Issues: A Comprehensive Guide for Users</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-12-prominent-honor-x9b-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Honor X9b Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-enhancing-your-youtube-profiles-a-guide-to-crafting-descriptions/"><u>[New] 2024 Approved Enhancing Your YouTube Profiles A Guide to Crafting Descriptions</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-peak-psd-gradient-innovations/"><u>[New] Peak PSD Gradient Innovations</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-essential-blueprint-for-finding-and-enjoying-premium-cricket-streams/"><u>[New] The Essential Blueprint for Finding and Enjoying Premium Cricket Streams</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-your-key-to-unlocking-advanced-tracking-features-on-websites/"><u>Cookiebot: Your Key to Unlocking Advanced Tracking Features on Websites</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/discover-abbyy-one-your-key-to-next-generation-innovative-workflow-automation-solutions/"><u>Discover ABBYY One: Your Key to Next-Generation Innovative Workflow Automation Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effective-strategies-for-boosting-web-page-visibility-and-traffic/"><u>Effective Strategies for Boosting Web Page Visibility and Traffic</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/efficient-health-management-top-5-advantages-of-implementing-automated-referrals/"><u>Efficient Health Management: Top 5 Advantages of Implementing Automated Referrals</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/elevate-web-analytics-effortlessly-discover-tools-beyond-traditional-cookies/"><u>Elevate Web Analytics Effortlessly: Discover Tools Beyond Traditional Cookies!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/elevate-your-accounts-payable-how-scena-achieved-a-staggering-60-reduction-in-invoice-and-credit-note-processing-with-seamless-abbyy-engeneum-automation-and11/"><u>Elevate Your Accounts Payable: How Scena Achieved a Staggering 60% Reduction in Invoice & Credit Note Processing with Seamless ABBYY, Engeneum Automation and Sage Integration - Insider Customer Insights</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-your-site-performance-with-the-robust-capabilities-of-cookiebot-technology/"><u>Enhance Your Site Performance with the Robust Capabilities of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-performance-through-personalization-the-cookiebot-advantage/"><u>Enhanced Performance Through Personalization: The Cookiebot Advantage</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-canvas-to-cryptos-select-7-nft-creating-powerhouses-for-2024/"><u>From Canvas to Cryptos Select 7 NFT-Creating Powerhouses for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Xiaomi Redmi Note 12R? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/1715860198079-in-2024-your-comprehensive-manual-for-creating-an-accessible-and-effective-chat-room-within-skype-compatible-with-both-windows-and-macos-platforms/"><u>In 2024, Your Comprehensive Manual for Creating an Accessible and Effective Chat Room Within Skype, Compatible with Both Windows & MacOS Platforms.</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-samsung-galaxy-s24plus-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Samsung Galaxy S24+</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-true-value-of-linkedins-elite-subscription/"><u>The True Value of LinkedIn's Elite Subscription</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ultimate-visual-guide-for-setting-up-bluetooth-audio-on-playstation-4/"><u>Ultimate Visual Guide for Setting Up Bluetooth Audio on PlayStation 4</u></a></li>
 </ul></div>
 

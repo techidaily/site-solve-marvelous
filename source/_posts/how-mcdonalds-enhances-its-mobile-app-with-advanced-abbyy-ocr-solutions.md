@@ -1,7 +1,7 @@
 ---
 title: How McDonald's Enhances Its Mobile App with Advanced ABBYY OCR Solutions
-date: 2024-09-28T23:02:35.604Z
-updated: 2024-10-03T00:36:50.367Z
+date: 2024-10-02T19:01:25.142Z
+updated: 2024-10-08T17:35:37.805Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/551b9b29030807808fecbd021cc6b8c9595b15c77a4f336ad0c59913e2c5001a.jpg
@@ -19,6 +19,13 @@ Wholesale & Retail Trade | Food and Beverage | Mobile Capture | Cloud-based Docu
 
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## McDonald’s s’appuie sur la technologie OCR d’ABBYY pour supporter l’application mobile
 
 Commerce de gros et de détail | Capture mobile 
@@ -26,10 +33,10 @@ Commerce de gros et de détail | Capture mobile
 ![](https://static1.abbyy.com/abbyycommedia/16263/cs-mcd-556x303.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Aperçu du client
@@ -37,10 +44,10 @@ Commerce de gros et de détail | Capture mobile
 ![McDonald’s](https://static1.abbyy.com/abbyycommedia/15837/mcdonalds_150x80.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Prénom               | McDonald’s                                     |
@@ -66,22 +73,15 @@ Au cours de la Coupe du monde de la FIFA, McDonald's Allemagne a lancé une prom
 ![](https://static1.abbyy.com/abbyycommedia/5311/screenshot-90-mcdonalds_450px.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ###### Like, share or repost
 
 Partager  True ?  : "" 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -104,19 +104,17 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-unlocking-instagrams-power-essential-5-tips-and-examples-from-pros/"><u>[New] 2024 Approved Unlocking Instagram's Power Essential 5 Tips & Examples From Pros</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-easily-download-your-favorites-handpicked-tools-reviewed/"><u>[New] In 2024, Easily Download Your Favorites Handpicked Tools Reviewed</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-leading-sites-for-extracting-text-aesthetics-packs/"><u>[New] In 2024, Leading Sites for Extracting Text Aesthetics Packs</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-peek-into-personality-traits-top-6-quizzes-to-determine-youtuber-preferences/"><u>[New] In 2024, Peek Into Personality Traits Top 6 Quizzes to Determine YouTuber Preferences</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-premium-selection-of-apple-and-android-camera-slow-motion-apps/"><u>2024 Approved Premium Selection of Apple & Android Camera Slow-Motion Apps</u></a></li>
-<li><a href="https://fox-that.techidaily.com/blurry-iphone-camera-try-these-7-fixes-now/"><u>Blurry iPhone Camera? Try These 7 Fixes Now!</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/capture-save-and-share-mastering-playstation-4-recordings/"><u>Capture, Save & Share Mastering PlayStation 4 Recordings</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/disena-y-perfecciona-su-material-visual-la-solucion-de-edicion-online-libre-de-costo-por-movavi/"><u>Diseña Y Perfecciona Su Material Visual: La Solución De Edición Online Libre De Costo Por Movavi.</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/migrating-your-google-images-library-to-apples-icloud-storage-a-step-by-step-guide/"><u>Migrating Your Google Images Library to Apple's iCloud Storage: A Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/navigating-the-shifting-landscape-understanding-modern-supply-chain-vulnerabilities-amidst-pandemic-recovery/"><u>Navigating the Shifting Landscape: Understanding Modern Supply Chain Vulnerabilities Amidst Pandemic Recovery</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimize-with-cookiebot-boosting-traffic-and-conversions-on-your-website/"><u>Optimize with Cookiebot: Boosting Traffic and Conversions on Your Website</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/personalized-engagement-with-our-services-powered-by-the-advanced-technology-of-cookiebot/"><u>Personalized Engagement with Our Services, Powered by the Advanced Technology of Cookiebot</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/protection-renforcee-pour-votre-gestion-documentaire-grace-a-tangro-avec-technologie-abbyy/"><u>Protection Renforcée Pour Votre Gestion Documentaire Grâce À Tangro® Avec Technologie ABBYY</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-efficiency-unlocking-the-power-of-automation-for-uk-companpsies-findings-by-abbyy-analysis/"><u>Revolutionizing Efficiency: Unlocking the Power of Automation for UK Companpsies - Findings by ABBYY Analysis</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-monetization-metrics-viewers-contribution-to-earnings/"><u>2024 Approved Monetization Metrics Viewers' Contribution to Earnings</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/beatback-bungalow-recordings-downloads-and-reviews-for-2024/"><u>Beatback Bungalow Recordings Downloads & Reviews for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/clique-aqui-para-converter-seu-mp3-em-wav-gratuitamente-ao-vivo-tecnicas-de-conversao-pela-web/"><u>Clique Aqui Para Converter Seu MP3 Em WAV Gratuitamente Ao Vivo - Técnicas De Conversão Pela Web</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-vivo-y27-5g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Vivo Y27 5G</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-audio-transformer-compatible-with-windows-and-macos/"><u>Free Online Audio Transformer: Compatible with Windows and macOS</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-conversion-swf-file-to-3gp-movavi-solution/"><u>Free Online Conversion: SWF File to 3GP - Movavi Solution</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Honor Magic 6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/online-veilig-mgk-naar-mp4-omzetten-kostenloos-diensten-von-movavi-bereikbaar/"><u>Online Veilig MGK Naar MP4 Omzetten - Kostenloos Diensten Von Movavi Bereikbaar</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/subtitle-savant-strategies-for-unparalleled-srt-file-creation-for-2024/"><u>Subtitle Savant Strategies for Unparalleled SRT File Creation for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-5-methods-for-capturing-computer-sound-insights-from-movavi/"><u>Top 5 Methods for Capturing Computer Sound: Insights From Movavi</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: ABBYY FlexiCapture - AI駆使した最先端の帳票自動認識プラットフォームについて学ぶ
-date: 2024-09-30T07:25:56.873Z
-updated: 2024-10-03T05:13:40.700Z
+date: 2024-10-07T18:31:40.333Z
+updated: 2024-10-08T16:37:07.648Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/670a3d23e314a574aa8e5af4448af6d1aaae629960eef8dd3da5be3e28617436.jpg
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/670a3d23e314a574aa8e5af4448af6d1aaae62996
 
 #### 4\. 外部接続・連携
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. スケーラビリティ・アベイラビリティ
 
 ABBYY FlexiCaptureは、最大で以下のような構成を組むことが可能となっており、高トランザクション、高可用性対応が可能な帳票処理ソリューションです。
@@ -43,14 +50,14 @@ ABBYY FlexiCaptureは、最大で以下のような構成を組むことが可�
 
 ![Processing CPU cores per pages](https://static1.abbyy.com/abbyycommedia/29914/flexicapture-rpa-image2-diagram.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 また、冗長化構成によりHA/DR (High Availability/Disaster Recovery)も実現可能となっています。
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. セキュリティ
 
@@ -61,10 +68,10 @@ ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件�
 ![secure FlexiCapture platofrm](https://static1.abbyy.com/abbyycommedia/29915/image-3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **\- データレベル**
@@ -88,10 +95,10 @@ ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件�
 ![FlexiCapture ユーザーロール管理](https://static1.abbyy.com/abbyycommedia/29917/image-5.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. 様々なワークフローへの対応
@@ -99,13 +106,6 @@ ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件�
 ABBYY FlexiCaptureは、ビジネスにおける様々な業務フローに合わせ、柔軟にワークフローを設定する事が可能です。
 
 ![FlexiCapture 様々なワークフローへの対応](https://static1.abbyy.com/abbyycommedia/29918/image-6.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 例えば上記のようなビジネスプロセスを実現するため、以下のようにワークフローの順番を変更したり、追加、カスタマイズが可能となっています。
 
@@ -133,13 +133,6 @@ ABBYY FlexiCaptureは日本語の手書き文字認識はサポートしてお�
 
 ![他社エンジンとの連携 FlexiCapture](https://static1.abbyy.com/abbyycommedia/29920/image-9.png)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 以上、今回はABBYY FlexiCaptureのAI-OCRプラットフォーム（基盤）としての特長についてご紹介いたしました。
 
 ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせは[こちら](https://tools.techidaily.com/abbyy/products/)から承ります。
@@ -149,6 +142,13 @@ ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせ�
 ![ABBYY logo circle](https://static5.abbyy.com/abbyycommedia/29971/abbyy-logo-2021-blog-99x99.png)
 
 ABBYY Japan エンジニアリングチーム
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
 
@@ -213,21 +213,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/new-transformative-srt-to-txt-guide-for-time-saving/"><u>[New] Transformative SRT to TXT Guide for Time-Saving</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-five-steps-to-enhance-your-screenplay-narration/"><u>[Updated] Five Steps to Enhance Your Screenplay Narration</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-game-plan-to-trendsetting-video-content-for-2024/"><u>[Updated] The Game Plan to Trendsetting Video Content for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-luts-guide-to-professional-movie-coloring/"><u>2024 Approved Luts Guide to Professional Movie Coloring</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gsmmp4movavi/"><u>在线无需付钱：自动转换GSM视频为MP4，使用Movavi解决方案</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-online-swf-to-mkv-converter-movavi-video-editor/"><u>Free Online Swf to Mkv Converter - Movavi Video Editor</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratuit-gebaseerd-webm-inpakt-movavi-naar-mpeg-converseren-online/"><u>Gratuit Gebaseerd Webm-Inpakt Movavi Naar MPEG - Converseren Online</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-oneplus-11r-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your OnePlus 11R Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-s17-phone-without-pin-by-drfone-android/"><u>How to Unlock Vivo S17 Phone without PIN</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/humorhub-imagery-mememagic-inc-for-2024/"><u>HumorHub Imagery MemeMagic Inc for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/less-hassle-more-joy-mastery-in-making-with-gpt/"><u>Less Hassle, More Joy: Mastery in Making with GPT</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-vrijetijdige-converteren-van-trp-naar-mpg-met-movavi/"><u>Online Vrijetijdige Converteren Van TRP Naar MPG Met MOVAVI</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/section-2c-five-similar-questions/"><u>Section 2C: Five Similar Questions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/step-by-step-guide-recording-your-screen-with-ease-using-movavi/"><u>Step-by-Step Guide: Recording Your Screen with Ease Using Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-12-outils-danimation-open-source-en-2024-solutions-de-modelisation-et-animation-3d/"><u>Top 12 Outils D'Animation Open Source en 2024 - Solutions De Modélisation Et Animation 3D</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transformation-facile-et-gratuite-de-fichiers-mka-en-wav-en-ligne-decouvrez-la-solution-de-movavi/"><u>Transformation Facile Et Gratuite De Fichiers MKA en WAV en Ligne - Découvrez La Solution De Movavi</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-simplifying-post-production-using-luts-in-after-effects/"><u>2024 Approved Simplifying Post Production Using LUTs in After Effects</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-und-xerox-formen-eine-strategische-partnerschaft-erste-lizenzierungsvereinbarung-geschlossen/"><u>ABBYY Und Xerox Formen Eine Strategische Partnerschaft - Erste Lizenzierungsvereinbarung Geschlossen!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyys-senior-vice-president-joins-elite-aiim-fellowship/"><u>ABBYY's Senior Vice President Joins Elite AIIM Fellowship</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abtyy-zeichnet-dritte-reihe-von-jahren-mit-zweiseitiger-umsatzsteigerung-auf/"><u>ABTYY Zeichnet Dritte Reihe Von Jahren Mit Zweiseitiger Umsatzsteigerung Auf</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/adrian-jones-elevated-to-cro-position-at-abbyy-leading-revenue-innovation/"><u>Adrian Jones Elevated to CRO Position at ABBYY - Leading Revenue Innovation</u></a></li>
+<li><a href="https://win-forum.techidaily.com/como-transformar-archivos-wmv-a-formato-webm-sin-costo-con-online-tools/"><u>Cómo Transformar Archivos WMV a Formato WebM Sin Costo Con Online Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-budget-friendly-thermopro-tp67-an-affordable-choice-with-reliability-concerns/"><u>In-Depth Analysis of the Budget-Friendly ThermoPro TP67: An Affordable Choice with Reliability Concerns</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-tab-s7plus-a-comprehensive-look-at-this-high-end-android-device/"><u>Samsung Galaxy Tab S7+ - A Comprehensive Look at This High-End Android Device</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-future-of-smartphones-delving-into-speculations-on-price-launch-date-and-advanced-specs-of-galaxy-s2n/"><u>The Future of Smartphones: Delving Into Speculations on Price, Launch Date & Advanced Specs of Galaxy S2n</u></a></li>
 </ul></div>
 

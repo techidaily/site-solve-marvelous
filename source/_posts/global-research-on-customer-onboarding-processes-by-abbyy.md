@@ -1,7 +1,7 @@
 ---
 title: Global Research on Customer Onboarding Processes by ABBYY
-date: 2024-10-01T11:52:16.775Z
-updated: 2024-10-03T12:00:26.847Z
+date: 2024-10-05T18:47:36.507Z
+updated: 2024-10-08T18:03:54.924Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/91640d3f48e05abf1077e677bdbbda7bdefb1b3ddb9865f38230cf758116e95e.jpg
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/91640d3f48e05abf1077e677bdbbda7bdefb1b3dd
 6. 顧客の離脱による影響として、日本企業の半数以上は新規顧客の獲得に苦しんでいる
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ▼調査目的
@@ -48,16 +48,23 @@ thumbnail: https://thmb.techidaily.com/91640d3f48e05abf1077e677bdbbda7bdefb1b3dd
 これらの外部環境の変化を受け、ABBYYは、顧客のオンボーディングプロセスおよび顧客のプロセス離脱対策としてどの程度テクノロジーを導入しているかを調査することで、日本と世界の企業による顧客のオンボーディングプロセスへの取り組みや意識の差を明らかにしました。
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ▼調査方法
 
 本調査は、英国、米国、フランス、ドイツ、日本のIT意思決定者1,623人（日本：200人）を対象に、2022年9月に実施したオンライン調査です。新規顧客の獲得および顧客の離脱に対して、どの様に企業がテクノロジーを活用しているかを尋ねました。対象者の業界、役割の上位3種は以下の通りです  
 ![](https://static1.abbyy.com/abbyycommedia/36334/2022-11-24_onboarding_survey_jp-table.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### ▼グローバル調査結果トピックスの詳細
 
@@ -69,21 +76,14 @@ thumbnail: https://thmb.techidaily.com/91640d3f48e05abf1077e677bdbbda7bdefb1b3dd
 ![](https://static1.abbyy.com/abbyycommedia/36330/2022-11-24_onboarding_survey_jp-image-2.png?width=801&height=335)
 3. 「顧客のオンボーディングプロセスに変更を加えたことがありますか？」という質問に対して、世界平均の96%は何らかのテクノロジーを活用したオンボーディングを行っていますが、日本は67%に留まり、大きく後進していることがわかりました。「当てはまらない」に関しては、日本が27%で世界平均の3%を大きく上回っており、日本の企業は顧客のオンボーディングプロセスを変えていない、つまりより改善する取り組みを行っていない可能性が高いことが明らかになりました。また、全体として少数ではあるものの、完全に人手での対応に変更した企業も8%と世界平均の2倍以上の数字となっており、日本企業はいまだテクノロジーではなく人手に頼る傾向が世界平均より強いといえます。  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://static1.abbyy.com/abbyycommedia/36331/2022-11-24_onboarding_survey_jp-image-3.png?width=800&height=447)
 4. 「顧客のオンボーディングプロセス中での離脱率は何%ですか？」という質問に対して、「わからない」「該当なし」と回答した企業が世界平均は4%でしたが、日本は26%と顧客の離脱率に対する意識が日本は低い傾向があることがわかりました。  
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://static1.abbyy.com/abbyycommedia/36332/2022-11-24_onboarding_survey_jp-image-4.png?width=800&height=362)
@@ -92,13 +92,6 @@ thumbnail: https://thmb.techidaily.com/91640d3f48e05abf1077e677bdbbda7bdefb1b3dd
 6. 「昨年、顧客の離脱によりどの様なビジネス上の結果／余波がありましたか？」という質問に対して、「新規顧客獲得に苦しんだ」と回答した企業が世界平均の28%に対して日本では半数を超えており、日本企業が特に悩みを抱えている部分であり、喫緊の課題であることがわかりました。  
 ![](https://static1.abbyy.com/abbyycommedia/36333/2022-11-24_onboarding_survey_jp-image-5.png?width=800&height=375)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### ▼ABBYYグループCEO/取締役 ウルフ・パーソンのコメント
 
 「顧客のデジタルオンボーディングの重要性と、それによるビジネスへのプラス効果が、日本ではあまり認識されていない様に見受けられます。半数以上の企業が顧客獲得に悩まれていると調査では回答している訳ですが、オンボーディングプロセスを改善することで顧客の離脱率を下げ、そして結果として新規の顧客獲得を大きく改善できる、ということをもっと知って頂きたいです。ABBYYのインテリジェント・プロセス・オートメーションのテクノロジーで、デジタルオンボーディングプロセスと総合的なカスタマーエクスペリエンスを大きく向上できる余地が、日本にはまだまだ残されていると思います。」
@@ -106,6 +99,13 @@ thumbnail: https://thmb.techidaily.com/91640d3f48e05abf1077e677bdbbda7bdefb1b3dd
 ### ▼ABBYYジャパン代表取締役社長 前田まりこのコメント
 
 「日本の企業は、IT部門とビジネス部門が更に協力体制を強める必要があると思います。日本では、IT担当者が新規顧客の獲得に関わっていないケースもしばしばお見受けしますが、現代のローコード・プラットフォームを活用して、IT担当者がビジネスの目標達成をサポートすることは非常に重要になってきていると感じます。顧客の本人確認手続きのデジタル化などは、ITがビジネスを改善していくまず最初の重要なステップではないかと考えます。」
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### ABBYYについて
 
@@ -143,17 +143,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-perfected-methods-for-capturing-live-hulu-on-different-devices-for-2024/"><u>[Updated] Perfected Methods for Capturing Live Hulu on Different Devices for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-personalization-through-cookiebot-driven-engagement-tools/"><u>Enhanced Personalization Through Cookiebot-Driven Engagement Tools</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-personalization-with-dynamic-cookiebot-technology/"><u>Enhanced Personalization with Dynamic Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-tracking-with-cookiebot-technology/"><u>Enhanced Tracking with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-traffic-with-cookiebot-technology-boost-your-sites-performance/"><u>Enhanced Traffic with Cookiebot Technology: Boost Your Site's Performance</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-c67-4g-bootloader-easily-by-drfone-android/"><u>How to Unlock Realme C67 4G Bootloader Easily</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-innovative-ways-to-capture-authenticity-in-customer-reviews/"><u>In 2024, Innovative Ways to Capture Authenticity in Customer Reviews</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/safely-erase-sensitive-data-with-ios-wiping-software/"><u>Safely Erase Sensitive Data with iOS Wiping Software</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/score-big-savings-acers-stunning-34-inch-curved-monitor-goes-down-to-200-at-newegg/"><u>Score Big Savings: Acer's Stunning 34-Inch Curved Monitor Goes Down to $200 at Newegg!</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-10-international-movies-boosting-language-learning/"><u>Top 10 International Movies Boosting Language Learning</u></a></li>
-<li><a href="https://fox-that.techidaily.com/top-8-tips-to-boost-iphone-wireless-network-speed/"><u>Top 8 Tips to Boost iPhone Wireless Network Speed</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/visual-storytelling-with-immersive-titles-in-ae/"><u>Visual Storytelling with Immersive Titles in AE</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevating-your-youtube-comments-with-emoji-skills-for-2024/"><u>[New] Elevating Your YouTube Comments with Emoji Skills for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-peak-performance-fps-in-deliberate-movements/"><u>[Updated] 2024 Approved Peak Performance FPS in Deliberate Movements</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-discord-streaming-essentials-a-comprehensive-beginners-tutorial/"><u>[Updated] Discord Streaming Essentials A Comprehensive Beginner's Tutorial</u></a></li>
+<li><a href="https://video-capture.techidaily.com/aac-2024/"><u>使いやすさと音質が求められるAACエンコーダ - 2024年のお勧め機種!</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/acid-pro-alternatives-a-comprehensive-guide/"><u>ACID Pro Alternatives A Comprehensive Guide</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-convertir-nsv-a-avi-online-de-forma-gratuita-con-herramientas-de-movavi/"><u>Cómo Convertir NSV a AVI Online De Forma Gratuita Con Herramientas De Movavi</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/computational-math-chatgpts-role/"><u>Computational Math: ChatGPT’s Role</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/convert-videos-effortlessly-with-movavis-no-cost-nsv-to-mp4-tool-do-it-online/"><u>Convert Videos Effortlessly with Movavi's No-Cost NSV to MP4 Tool - Do It Online!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converti-file-ts-in-mp4-gratuitamente-online-con-movavi/"><u>Converti File TS in MP4 Gratuitamente Online Con Movavi</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-vivo-s17t-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Vivo S17t to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-motorola-g54-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Motorola G54 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/scarica-e-converti-i-tuoi-amv-in-file-mp3-gratuitamente-con-movavi/"><u>Scarica E Converti I Tuoi AMV in File MP3 Gratuitamente Con Movavi</u></a></li>
+<li><a href="https://techidaily.com/top-8-solutions-what-to-do-when-your-laptop-wont-charge-despite-being-connected/"><u>Top 8 Solutions: What To Do When Your Laptop Won't Charge Despite Being Connected</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforme-gratuitement-votre-fichier-wmv-en-format-mp4-avec-videosan/"><u>Transforme Gratuitement Votre Fichier WMV en Format MP4 Avec Vidéosan</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/trasforma-pbm-in-formato-bmp-online-gratuitamente-il-guida-completa-di-movavi/"><u>Trasforma PBM in Formato BMP Online Gratuitamente: Il Guida Completa Di Movavi!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/vod-in-ogg-vorbis-format-vob-to-high-quality-lossless-audio-flac-free-conversion-tool-by-movavi/"><u>VOD in Ogg Vorbis Format (VOB) to High-Quality Lossless Audio (FLAC): Free Conversion Tool by Movavi</u></a></li>
 </ul></div>
 

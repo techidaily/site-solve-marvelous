@@ -1,7 +1,7 @@
 ---
 title: ABBYY Japan ソフトウェア投入に合わせて SBモバイルサービスが新規事業を展開 - プレスリリース
-date: 2024-10-01T06:03:11.991Z
-updated: 2024-10-02T20:51:28.030Z
+date: 2024-10-04T18:15:28.060Z
+updated: 2024-10-08T19:13:22.006Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d6e8710c36c5978badec227a1052e8c4e84f42f10c18f1adcfe6fd4f956e57b1.jpg
@@ -18,10 +18,10 @@ thumbnail: https://thmb.techidaily.com/d6e8710c36c5978badec227a1052e8c4e84f42f10
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ～OCRとプロセスマイニングでDXの推進を加速～
@@ -71,24 +71,16 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-essential-tips-effective-screenrec-usage-on-laptops/"><u>[New] In 2024, Essential Tips Effective ScreenRec Usage on Laptops</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-next-step-in-virtual-reality-jaunt-vr-review/"><u>[New] The Next Step in Virtual Reality Jaunt VR Review</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-photoquilt-supreme-eightfold-creation-engine-for-2024/"><u>[Updated] PhotoQuilt Supreme Eightfold Creation Engine for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1-iphone-xs-and-x-comparative-review-with-enhanced-scanning-features-on-the-abbeyy-blog/"><u>1. IPhone Xs & X: Comparative Review with Enhanced Scanning Features on the ABBEYY Blog</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-innovates-unveils-state-of-the-art-indian-randd-hub/"><u>ABBYY Innovates: Unveils State-of-the-Art Indian R&D Hub</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-realise-sustains-double-digit-growth-streak-for-third-consecutive-year/"><u>ABBYY Réalise Sustains Double-Digit Growth Streak for Third Consecutive Year</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-und-xerox-formen-eine-strategische-partnerschaft-erste-lizenzierungsvereinbarung-geschlossen/"><u>ABBYY Und Xerox Formen Eine Strategische Partnerschaft - Erste Lizenzierungsvereinbarung Geschlossen!</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/explore-the-leading-open-source-ai-image-creation-software-of/"><u>Explore the Leading Open-Source AI Image Creation Software Of</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-gionee-f3-pro-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Gionee F3 Pro Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/how-to-fund-your-steam-wallet-and-buy-games/"><u>How to Fund Your Steam Wallet and Buy Games</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-realme-12-5g-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Realme 12 5G</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-quick-and-easy-increase-or-decrease-story-video-speed/"><u>In 2024, Quick and Easy Increase or Decrease Story Video Speed</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/perfecting-your-video-content-for-instagram-feed-for-2024/"><u>Perfecting Your Video Content for Instagram Feed for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-xiaomi-redmi-k70-pro-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Xiaomi Redmi K70 Pro and Browser | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transforming-jobs-tomorrow-insightful-analysis-on-rpas-impact-and-abbyys-forecast-white-paper/"><u>Transforming Jobs Tomorrow: Insightful Analysis on RPA's Impact and ABBYY's Forecast [White Paper]</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transforming-legal-text-analysis-with-abbyys-advanced-docs-enhanced-capabilities-and-seamless-rag-sync/"><u>Transforming Legal Text Analysis with ABBYY's Advanced Docs: Enhanced Capabilities and Seamless RAG Sync</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/understanding-the-distinctions-between-process-intelligence-and-bi-techniques-for-strategic-decision-making/"><u>Understanding the Distinctions Between Process Intelligence and BI Techniques for Strategic Decision-Making</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/unlocking-features-of-finescanner-in-ios-12-expert-insights-from-the-abbyy-community/"><u>Unlocking Features of FineScanner in iOS 12 - Expert Insights From the ABBYY Community</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/utilizing-cookiebot-technology-for-improved-online-engagement-analysis/"><u>Utilizing Cookiebot Technology for Improved Online Engagement Analysis</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-navigating-the-world-of-fbx-for-gamers/"><u>[Updated] In 2024, Navigating the World of FBX for Gamers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-by-step-guide-to-implementing-borders-on-instagram-images/"><u>[Updated] Step-by-Step Guide to Implementing Borders on Instagram Images</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/10-best-practices-for-boosting-srt-on-pc-and-macos-for-2024/"><u>10 Best Practices for Boosting SRT on PC & macOS for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/exploring-the-giants-of-social-networking-facebooktwitterinstagramyoutube-overview/"><u>Exploring the Giants of Social Networking: Facebook/Twitter/Instagram/YouTube Overview</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-s23-ultra-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy S23 Ultra Phone FRP Lock</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/navigating-the-essentials-of-kyc-regulations-in-depth-strategies-for-successful-implementation/"><u>Navigating the Essentials of KYC Regulations: In-Depth Strategies for Successful Implementation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/neuer-methodik-von-abbyy-fur-die-prazise-einordnung-von-schriftstucken/"><u>Neuer Methodik Von ABBYY Für Die Präzise Einordnung Von Schriftstücken</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimisation-et-traitement-efficace-des-documents-grace-a-la-solution-abbyy-enterprise-capture-par-les-systemes-arvato/"><u>Optimisation Et Traitement Efficace Des Documents Grâce À La Solution ABBYY Enterprise Capture Par Les Systèmes Arvato</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/rapid-digital-transformation-strategies-for-the-artificial-intelligence-sector-ebook-by-abbyy/"><u>Rapid Digital Transformation Strategies for the Artificial Intelligence Sector – eBook by ABBYY</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Oppo A79 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/bes-mini-millionaire-how-a-kid-earned-big-bucks-daily/"><u>YouTube's Mini Millionaire How a Kid Earned Big Bucks Daily</u></a></li>
 </ul></div>
 

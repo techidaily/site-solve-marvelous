@@ -1,7 +1,7 @@
 ---
 title: Halve Your Bill Payment Workload with Norco's Innovative Solutions
-date: 2024-10-06T18:29:06.401Z
-updated: 2024-10-08T17:48:50.698Z
+date: 2024-10-11T19:49:42.818Z
+updated: 2024-10-15T00:27:54.815Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e24c6a589d856da0a108fb73ed8aea987528294a85122e6caa68a425ef40bc26.jpg
@@ -23,13 +23,6 @@ Cutting data entry labor in half has significant value for the members of Norco�
 
 Sandra Hollands, General Manager - ICT
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Challenge
 
 Norco was processing up to 300,000 invoices manually across two ERP systems each year. Invoices associated with a PO would be emailed to individual stores and head offices, summarizing goods shipped to different locations. After data entry, each location needed to send email approval to confirm goods have been received prior to vendor payment. Norco was looking for an automated solution that met their requirements for:
@@ -50,6 +43,13 @@ They now have a complete audit trail of the information flowing between systems.
 
 The flexibility of ABBYY IDP makes it easy to use to streamline additional back-end processes. 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Value
 
 * Labor savings of up to 80 percent.
@@ -63,18 +63,18 @@ The flexibility of ABBYY IDP makes it easy to use to streamline additional back-
 
 ![FC_1](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### ABBYY Solutions for Accounts Payable Automation
 
 [Learn more](https://tools.techidaily.com/abbyy/products/)
 
 ![overview image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image.jpg?h=800&iar=0&w=1392)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### PDF Version
 
@@ -83,17 +83,17 @@ The flexibility of ABBYY IDP makes it easy to use to streamline additional back-
 ![laptop mug](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to speak with an expert?
@@ -115,22 +115,17 @@ The flexibility of ABBYY IDP makes it easy to use to streamline additional back-
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-the-infographic-spectacle-of-youtubes-2017-data/"><u>[New] 2024 Approved The Infographic Spectacle of YouTube's 2017 Data</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-building-a-successful-youtube-channel-sidestep-these-8-frequent-faux-pas/"><u>[New] In 2024, Building a Successful YouTube Channel Sidestep These 8 Frequent Faux Pas</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-discover-the-top-10-streaming-giants-for-live-tv/"><u>[Updated] 2024 Approved Discover the Top 10 Streaming Giants for Live TV</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-visual-branding-on-youtubes-iconography-and-images/"><u>[Updated] Visual Branding on YouTubes Iconography and Images</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-transformar-archivos-ts-en-formato-line-sin-coste-usando-movavi-tutorial-completo/"><u>Cómo Transformar Archivos TS en Formato LINE Sin Coste Usando Movavi - Tutorial Completo</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/conversione-gratuita-online-converti-i-tuoi-file-mp3-in-formato-ogg-con-lutilita-di-movavi/"><u>Conversione Gratuita Online: Converti I Tuoi File MP3 in Formato OGG Con L'utilità Di Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/converti-video-flv-in-formato-aiff-liberamente-conversiononline/"><u>Converti Video FLV in Formato AIFF Liberamente - ConversionOnline</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/enhance-visual-engagement-creating-pip-videos-on-macos-systems/"><u>Enhance Visual Engagement Creating PIP Videos on macOS Systems</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/flvavi/"><u>FLVとAVIファイルの免責コースで簡単な変換 - ムーバヴィ</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-video-encoding-tools-ranked-discover-the-ultimate-guide-to-optimal/"><u>Free Video Encoding Tools Ranked! Discover the Ultimate Guide to Optimal 무료 동영상 압축 소프트웨어</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/get-started-on-free-video-transformation-seamless-file-converting-using-movavi/"><u>Get Started on Free Video Transformation - Seamless File Converting Using Movavi</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-from-your-iphone-se-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card from Your iPhone SE Apple ID and Apple Pay</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-oppo-a58-4g-to-mac-drfone-by-drfone-android/"><u>How to Mirror Oppo A58 4G to Mac? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Huawei Nova Y91? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/kostenloze-online-mpe-naar-mp4-transformatie-het-beste-levert-movavi-te-bieden/"><u>Kostenloze Online MPE Naar MP4 Transformatie - Het Beste Levert Movavi Te Bieden</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-konvertie-van-dng-naar-png-kostenloos-en-gemakkelijke-oplossingen-met-movavi/"><u>Online Konvertie Van DNG Naar PNG: Kostenloos en Gemakkelijke Oplossingen Met Movavi</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-zoom-problems-identifying-if-its-user-error-or-technical-glitches/"><u>Troubleshooting Zoom Problems - Identifying if It's User Error or Technical Glitches</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-charting-the-course-for-unmatched-cloud-storage/"><u>[Updated] In 2024, Charting the Course for Unmatched Cloud Storage</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-leading-list-the-10-cost-effective-mobile-video-conferencing-for-2024/"><u>[Updated] Leading List The 10 Cost-Effective Mobile Video Conferencing for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-adventure-essentials-ultimate-guide-to-1-10-gopro-protectors/"><u>2024 Approved Adventure Essentials - Ultimate Guide to #1-10 GoPro Protectors</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-harmonizing-soundscape-and-unboxing-footage/"><u>2024 Approved Harmonizing Soundscape and Unboxing Footage</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/detailed-review-of-doctorsim-unlock-service-for-iphone-6s-by-drfone-ios/"><u>Detailed Review of doctorSIM Unlock Service For iPhone 6s</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/efficient-data-capture-with-abbyy-integrating-flexicapture-and-laserfiche-technologies/"><u>Efficient Data Capture with ABBYY: Integrating FlexiCapture and Laserfiche Technologies</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/elevate-user-experience-with-our-advanced-cookiebot-technology-solutions/"><u>Elevate User Experience with Our Advanced Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/elite-mortgage-firms-streamlining-processes-for-swift-convenient-client-solutions/"><u>Elite Mortgage Firms: Streamlining Processes for Swift, Convenient Client Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/empowered-through-innovative-automated-conversion-optimization/"><u>Empowered Through Innovative Automated Conversion Optimization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-conversions-with-cookiebot-integration-the-key-to-seo-success/"><u>Enhance Conversions with Cookiebot Integration - The Key to SEO Success!</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-rise-and-challenges-of-video-streaming-profits/"><u>In 2024, The Rise and Challenges of Video Streaming Profits</u></a></li>
+<li><a href="https://media-tips.techidaily.com/streaming-wars-decoded-how-does-apple-tvplus-stack-up-against-the-big-players/"><u>Streaming Wars Decoded: How Does Apple TV+ Stack Up Against the Big Players?</u></a></li>
 </ul></div>
 

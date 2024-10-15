@@ -1,7 +1,7 @@
 ---
 title: "Innovating Supply Chains: Leveraging Document Management in the Age of Digital Evolution"
-date: 2024-10-01T17:32:43.713Z
-updated: 2024-10-08T19:24:32.084Z
+date: 2024-10-10T01:38:25.798Z
+updated: 2024-10-14T21:50:42.113Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6751e55bdf4c2e1662ce3bd78f4508fbf0de25f71771d5991b60c224831a5c83.jpg
@@ -37,28 +37,15 @@ Named entity recognition (NER) offers maximum flexibility in managing the high v
 
 ![Automation in transportation and logistics](https://static1.abbyy.com/abbyycommedia/35070/skills-for-transportation2-content-848x444.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Low-code / no-code solutions take NER flexibility even further by removing the burden of having to lay down a complex application infrastructure for IT to implement and maintain. Pre-trained low-code / no-code “[document skills](https://tools.techidaily.com/abbyy/products/)” (pre-built readings of known document types–bills of lading, for example) can be plugged into existing applications and be up and running in hours or minutes versus their traditional OCR counterparts.
 
 Since many shippers do not have the IT budget to add yet another big system application, low-code / no-code IDP solutions can be implemented directly by your operations group, on the front line where agility is most needed.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Automating logistics operations with pre-built document skills
@@ -83,6 +70,13 @@ Available now in the [ABBYY Vantage Marketplace](https://tools.techidaily.com/ab
 
 Vantage pre-built containerized document [skills for Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) deliver the adaptability, straight-through processing automation, and lowest-cost solutions needed to respond to ever tighter SLAs in a world where supply chain disruptions have become normal business. Now, automation is in reach of shippers with the most constrained budgets.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Looking to optimize your Transportation & Logistics operations for rapid change?
 
 We have a skill for that.
@@ -90,10 +84,10 @@ We have a skill for that.
 [Visit ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## A marketplace approach
@@ -109,10 +103,10 @@ Learn more about how ABBYY is helping [Transportation and Logistics providers](h
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Reginald J. Twigg
@@ -180,16 +174,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/updated-budget-friendly-edits-made-easy-with-vimeos-free-tools/"><u>[Updated] Budget-Friendly Edits Made Easy with Vimeo's Free Tools</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-learning-the-art-of-softly-amplifying-audio-tracks/"><u>[Updated] Learning the Art of Softly Amplifying Audio Tracks</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mp2mov-movavi/"><u>無成本的網路MP2到MOV轉檔工具 - Movavi格式換裝器</u></a></li>
-<li><a href="https://games-able.techidaily.com/explosive-fps-selecting-best-gaming-data-links/"><u>Explosive FPS: Selecting Best Gaming Data Links</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/ideal-ict-equipment-educators-top-10-lecture-capturers/"><u>Ideal ICT Equipment Educators' Top 10 Lecture Capturers</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-enlightening-your-iphone-images-through-effective-hdr-methods/"><u>In 2024, Enlightening Your iPhone Images Through Effective HDR Methods</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/key-elements-for-compelling-facebook-ad-textual-content/"><u>Key Elements for Compelling Facebook Ad Textual Content</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/macmovavi-photoeditor/"><u>Mac用的Movavi PhotoEditor:专业修图与图片编辑解决方案</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/metamorphose-de-fichier-transformez-votre-mp3-gratuitement-en-mp4-sur-internet-via-movavi/"><u>Métamorphose De Fichier : Transformez Votre MP3 Gratuitement en MP4 Sur Internet via Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-gratuite-migration-von-ogg-dateien-zu-mp4-durch-movavi-perfekt-fur-sie/"><u>Online Gratuite Migration Von Ogg-Dateien Zu MP4 Durch Movavi - Perfekt Für Sie!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mov-m4v/"><u>무료 MOV M4V 파일 변환기 - 화면을 위한 원활한 이미지로 전환하는 가장 최신 도구</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-understanding-and-leveraging-telegram-browser-features/"><u>[New] Understanding and Leveraging Telegram Browser Features</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-essential-guide-to-producing-quality-igtv-on-smartphonesdslrs/"><u>[Updated] Essential Guide to Producing Quality IGTV on Smartphones/DSLRs</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/elevate-security-with-7-best-no-charge-window-tools/"><u>Elevate Security with 7 Best No-Charge Window Tools</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fresh-start-on-your-iphone-15-heres-how-to-perform-a-smooth-reboot/"><u>Fresh Start on Your iPhone 15? Here’s How to Perform a Smooth Reboot!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-effectively-copy-your-excel-data-tips-for-making-full-and-partial-copies-including-formula-replication-options/"><u>How To Effectively Copy Your Excel Data: Tips for Making Full and Partial Copies, Including Formula Replication Options</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-vivo-y27-5g-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Vivo Y27 5G</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-digitizing-memories-from-stillness-to-movement/"><u>In 2024, Digitizing Memories From Stillness to Movement</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-screen-unresponsive-error-on-windows-11/"><u>Overcoming 'Screen Unresponsive' Error on Windows 11</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/seamless-user-engagement-boosted-by-innovative-cookiebot-technology-solutions/"><u>Seamless User Engagement Boosted by Innovative Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/the-future-is-now-understanding-ai-governance-on-the-ai-pulse-podcast/"><u>The Future Is Now: Understanding AI Governance on the AI Pulse Podcast</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-9-complimentary-sites-for-mastering-new-languages/"><u>Top 9 Complimentary Sites for Mastering New Languages</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transform-images-into-editable-text-ocr-for-pdfjpg-files-on-ios-via-finereader/"><u>Transform Images Into Editable Text - OCR for PDF/JPG Files on iOS via FineReader</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-jobs-tomorrow-insightful-analysis-on-rpas-impact-and-abbyys-forecast-white-paper/"><u>Transforming Jobs Tomorrow: Insightful Analysis on RPA's Impact and ABBYY's Forecast [White Paper]</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-legal-text-analysis-with-abbyys-advanced-docs-enhanced-capabilities-and-seamless-rag-sync/"><u>Transforming Legal Text Analysis with ABBYY's Advanced Docs: Enhanced Capabilities and Seamless RAG Sync</u></a></li>
 </ul></div>
 

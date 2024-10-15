@@ -1,7 +1,7 @@
 ---
 title: \\[\\Text{coefficient of Kinetic Friction} = \\Frac{(v^2 - U^2)}{(2s \\Cdot G)} \\
-date: 2024-10-06T16:19:39.432Z
-updated: 2024-10-08T18:28:54.426Z
+date: 2024-10-09T16:51:21.170Z
+updated: 2024-10-15T02:14:48.940Z
 categories:
   - movavi
 thumbnail: https://thmb.techidaily.com/3df80ed0f3ba1234db4e3fe9b6b618140f5c8ecbd00a02e86f21f161aa5eef49.jpg
@@ -162,16 +162,16 @@ Afficher plus
 
 Un facteur clé qui peut ralentir votre expérience de jeu est l'utilisation d'un enregistreur de qualité inférieure pendant le jeu. C'est pourquoi notre choix spécial pour optimiser votre PC pour les jeux sur Windows 10 est Gecata by Movavi. Ce programme peut enregistrer le gameplay en 4K et jusqu'à 120 FPS sans perte de performance. Il est facile à utiliser et est livré avec une version d'essai gratuite.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Qu'est-ce qu'un FPS faible et comment puis-je le vérifier ?
 
 ![](https://cdn.staticont.net/pages/0013/24/1698d2ec33be3cf4f4bedd243e199c87dbd8ac34.webp)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Si votre jeu commence à ralentir et que l'image est saccadée, surtout lorsqu'elle bouge, c'est que votre taux d'images par seconde (IPS) est faible. Cela se produit lorsque le matériel de votre ordinateur a du mal à faire fonctionner votre jeu ou fait des heures supplémentaires. S'il travaille trop, la vitesse du jeu ralentit.
 
@@ -190,13 +190,6 @@ Comment rendre Windows 10 plus rapide pour les jeux (corrections rapides)
 ![](https://cdn.staticont.net/pages/0013/24/d54a84e68415bc2949ca1ec30e4cf5f5b067a4e1.webp)
 
 Vous voulez savoir comment rendre Windows 10 plus rapide pour jouer avec une solution rapide ? Suivez ces conseils et recommencez à jouer !
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Régler les paramètres graphiques d'un jeu
 
@@ -292,6 +285,13 @@ Par ailleurs, les jeux sur Steam sont mis à jour en permanence et il arrive sou
 
 Pour ramener la version d'un jeu à celle dont vous avez besoin, ouvrez Steam, faites un clic droit sur le jeu, choisissez **Propriétés** et allez dans l'onglet **Bêta**. Choisissez la version souhaitée dans le menu déroulant.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Désactiver les notifications
 
 Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent nuire à votre champ de vision pendant le jeu. Suivez les étapes suivantes pour désactiver toutes les notifications avant de jouer :
@@ -300,13 +300,6 @@ Les notifications au milieu d'un jeu consomment de la puissance CPU et peuvent n
 2. Tapez "Notifications" dans la barre de recherche et sélectionnez **Notifications et paramètres d'actions** dans les résultats.
 3. Lorsque la nouvelle fenêtre s'ouvre, mettez le commutateur à bascule situé à côté de l'option **Obtenir des notifications d'applications et d'autres expéditeurs** sur **Désactivé**. Vos notifications sont maintenant désactivées.
 4. Vous pouvez également faire défiler la liste et désactiver les notifications par application.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Régler le panneau de contrôle NVIDIA
 
@@ -331,13 +324,6 @@ Les cartes graphiques AMD ont également beaucoup de paramètres. Certains disen
 
 Cette solution entre facilement dans la catégorie des "solutions rapides". Parfois, votre système ne peut tout simplement pas gérer un jeu, et vous n'avez pas le temps de chercher des solutions à plus long terme. Allez dans les paramètres système du jeu et réduisez la résolution d'un niveau. Surveillez ensuite votre FPS jusqu'à ce que les choses s'améliorent.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Désactiver l'accélération de la souris
 
 Celui-ci n'a rien à voir avec l'amélioration des performances de votre PC en matière de jeu, mais il s'agit plutôt d'un conseil pour vous permettre d'améliorer vos performances personnelles en matière de jeu. L'accélération de la souris est un paramètre qui fait bouger votre souris en se basant non seulement sur la détection des mouvements physiques mais aussi sur la vitesse. Cette option rend en fait les mouvements de votre souris moins précis, car elle ajoute un paramètre supplémentaire au mouvement que vous transmettez à la souris. Étant donné que la précision est cruciale pour la précision de la visée dans les jeux de tir à la première personne, si vous êtes un fan de Call of Duty, Counter-Strike ou Overwatch, vous devriez absolument désactiver cette option.
@@ -346,6 +332,13 @@ Pour ce faire, appuyez sur la   **touche Windows** \+ **I**. Tapez "pointeur de 
 
 Vous pouvez également modifier le curseur de la vitesse du pointeur pour créer la configuration qui vous convient le mieux.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 
 
 Comment améliorer les performances de jeu sur Windows 10 (corrections avancées)
@@ -353,6 +346,19 @@ Comment améliorer les performances de jeu sur Windows 10 (corrections avancées
 ![](https://cdn.staticont.net/pages/0013/24/72b5f58442a79243cce53c3224e26755b436a620.webp)
 
 Vous ne savez toujours pas comment rendre Windows 10 plus rapide pour les jeux ? Utilisez ces correctifs avancés pour une solution à long terme.
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Optez pour un SSD
 
@@ -380,6 +386,19 @@ De nombreux jeux requièrent une mémoire vive de 8 Go, mais ce chiffre augmente
 
 Si vous voulez rester en tête de la courbe, 16 Go suffiront pour l'instant. Mais si vous voulez utiliser des services de streaming en arrière-plan comme Twitch, Discord et YouTube, vous devrez passer à 32 Go pour pouvoir tout faire fonctionner sans problème.
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Désactiver l'algorithme de Nagle
 
 En gros, l'algorithme de Nagle améliore l'efficacité des réseaux TCP/IP en créant des paquets de données, ce qui réduit le nombre de paquets à envoyer sur le réseau. Ce processus affecte votre connexion Internet, la rendant moins stable. La désactivation de cet algorithme sur votre PC peut contribuer à des problèmes de latence lorsque vous jouez à des jeux en ligne.
@@ -402,10 +421,10 @@ Pour overclocker :
 4. Jouez à un jeu et vérifiez les performances.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Désactiver SysMain et Prefetch
@@ -437,13 +456,6 @@ Comment accélérer l'exécution des jeux sur un ordinateur portable Windows 10
 ![](https://cdn.staticont.net/pages/0013/24/e045d566ab9cee25f15459463af7614838747945.webp)
 
 Vous voulez savoir comment améliorer les performances de jeu sur un ordinateur portable Windows 10 ? Ces conseils vous aideront à accélérer les choses !
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Utiliser une alimentation externe
 
@@ -498,10 +510,10 @@ Logiciel d'enregistrement de jeux et de streaming gratuit et simple
 ![Gecata&nbsp;by Movavi](https://cdn.staticont.net/products/0023/55/189f02c8904c7cafef6bd153dc2ff5755f569030.webp)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 
@@ -560,10 +572,10 @@ Ce n'est pas parce que vous dépensez de l'argent pour un ordinateur qu'il est �
 ![Avez-vous des questions&nbsp;?](https://cdn.staticont.net/global/0023/54/e832fd4fe897893df1de795a67cafcd74a13283a.webp)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Avez-vous des questions ?
@@ -601,24 +613,20 @@ En vous inscrivant, vous acceptez de recevoir nos courriels de marketing et acce
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-elevate-your-earning-game-youtube-on-facebook-revenue-strategies-for-2024/"><u>[Updated] Elevate Your Earning Game YouTube on Facebook Revenue Strategies for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-six-simplest-strategies-to-craft-your-mc-dwelling/"><u>[Updated] In 2024, Six Simplest Strategies to Craft Your MC Dwelling</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-snipping-video-time-a-youtube-editors-handbook/"><u>[Updated] In 2024, Snipping Video Time A YouTube Editors' Handbook</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-kinemaster-way-to-enthralling-transitions/"><u>[Updated] The Kinemaster Way to Enthralling Transitions</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-ultimate-guide-instagrams-video-maximum-length-rule/"><u>[Updated] Ultimate Guide Instagram's Video Maximum Length Rule</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726225779161-avi-mp4-movavi/"><u>網路直接免費 AVI-MP4 改編工具 - 利用 Movavi 影片編輯軟體</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mpeg-wma-movavi/"><u>在线免费将 MPEG 文件转换为 WMA音频 - 利用 Movavi 软件</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/clique-aqui-para-converter-seu-mp3-em-wav-gratuitamente-ao-vivo-tecnicas-de-conversao-pela-web/"><u>Clique Aqui Para Converter Seu MP3 Em WAV Gratuitamente Ao Vivo - Técnicas De Conversão Pela Web</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/convertissez-vos-videos-m2ts-en-mp4-sans-frais-via-le-service-de-movavi-en-ligne/"><u>Convertissez Vos Vidéos M2TS en MP4 Sans Frais via Le Service De Movavi en Ligne</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-online-conversion-swf-file-to-3gp-movavi-solution/"><u>Free Online Conversion: SWF File to 3GP - Movavi Solution</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/guia-completa-para-la-transformacion-m4b-a-wav-en-linea-gratuitamente-con-convertio-audio-converter/"><u>Guía Completa Para La Transformación M4B a WAV en Línea Gratuitamente Con Convertio Audio Converter</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-breaking-down-snapchats-new-highlight-functionality/"><u>In 2024, Breaking Down Snapchat's New Highlight Functionality</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-realme-10t-5g-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Realme 10T 5G Devices</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-the-ultimate-list-of-free-windows-screenshot-apps/"><u>In 2024, The Ultimate List of Free Windows Screenshot Apps</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ng-10-capture-applications-for-online-tutorials-for-2024/"><u>Leading 10 Capture Applications for Online Tutorials for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/nextorages-revolutionary-handheld-ssd-for-gamers-experience-unprecedented-speeds-of-up-to-7400mbs/"><u>Nextorage's Revolutionary Handheld SSD for Gamers: Experience Unprecedented Speeds of Up to 7,400MB/S</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transform-nef-photos-to-png-gratis-quick-and-simple-online-tool-by-movavi/"><u>Transform NEF Photos to PNG Gratis - Quick & Simple Online Tool by Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/wifi-ram-mpeg-and-desktop/"><u>무료 WiFi RAM MPEG 변환 - 모바일 & Desktop 호환성</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mp4-on/"><u>무료 이미지 영상을 MP4로 전환하는 방법 - Onラインでトゥーディ</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-saving-youtube-videos-a-legal-overview/"><u>[New] 2024 Approved Saving YouTube Videos A Legal Overview</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-unlocking-the-power-of-words-in-google-meet-discussions/"><u>[New] In 2024, Unlocking the Power of Words in Google Meet Discussions</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-ultimate-handbook-for-flawless-snapchat-boomers-for-2024/"><u>[New] The Ultimate Handbook for Flawless Snapchat Boomers for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/dvd-dvd/"><u>【最新情報】DVD保存手順: 高画質維持方法と信頼できるDVD作成ソフト推奨リスト!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-stand-out-in-the-stream-top-name-generators-reviewed/"><u>2024 Approved Stand Out in the Stream Top Name Generators Reviewed</u></a></li>
+<li><a href="https://win-forum.techidaily.com/comparing-major-platforms-the-battle-of-facebook-twitter-instagram-and-youtube/"><u>Comparing Major Platforms: The Battle of Facebook, Twitter, Instagram and YouTube</u></a></li>
+<li><a href="https://win11.techidaily.com/dxvk-boosting-performance-why-it-matters-on-windows/"><u>DXVK: Boosting Performance - Why It Matters on Windows</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/kognitive-systeme-in-der-automatisierung-abbyys-losung-fur-das-verstehen-und-interpretieren-digitaler-inhalte/"><u>Kognitive Systeme in Der Automatisierung: ABBYYS Lösung Für Das Verstehen Und Interpretieren Digitaler Inhalte</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/konvertieren-sie-ihre-prozesse-abbyy-vantage-2-und-neue-ki-marketplatz-fuhren-sie-schnell-zur-digitalen-revolution/"><u>Konvertieren Sie Ihre Prozesse: ABBYY Vantage 2 Und Neue KI-Marketplatz Führen Sie Schnell Zur Digitalen Revolution</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/levolution-rapide-des-relations-bancarieres-comment-la-crise-enfonce-le-clavier/"><u>L'Evolution Rapide Des Relations Bancarières: Comment La Crise Enfonce Le Clavier</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/laserfiche-integration-with-abbyys-flexicapture-advanced-document-capture-software-solution/"><u>Laserfiche Integration with ABBYY's FlexiCapture: Advanced Document Capture Software Solution</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-superior-site-performance-and-seo-results/"><u>Leveraging Cookiebot Technology for Superior Site Performance and SEO Results</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/linda-ameur-ascend-as-new-director-general-of-commerce-at-abbyy-france-latest-news/"><u>Linda Ameur Ascend as New Director-General of Commerce at ABBYY France – Latest News</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/social-laughter-downloaded-iphoneandroid-tutorial-for-gifs-for-2024/"><u>Social Laughter Downloaded IPhone/Android Tutorial for GIFS for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/subscribe-savvy-double-your-audience-in-pocket-change/"><u>Subscribe Savvy Double Your Audience in Pocket Change</u></a></li>
 </ul></div>
 

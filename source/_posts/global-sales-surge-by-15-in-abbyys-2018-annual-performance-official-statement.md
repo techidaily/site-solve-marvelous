@@ -1,7 +1,7 @@
 ---
 title: Global Sales Surge by 15%% in ABBYY's 2018 Annual Performance - Official Statement
-date: 2024-10-02T17:45:04.127Z
-updated: 2024-10-08T16:52:41.176Z
+date: 2024-10-10T18:19:15.965Z
+updated: 2024-10-15T02:14:52.088Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/33904527a6e1718a50027f53fe767c2c1eedacdbdef4cb5558c43f077a848c48.jpg
@@ -64,27 +64,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-aim-higher-than-xsplit-top-video-editors-reviewed/"><u>[New] Aim Higher than Xsplit Top Video Editors Reviewed</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-seamless-multiplayer-sessions-with-xbox-zoom-support/"><u>[New] Seamless Multiplayer Sessions with Xbox Zoom Support</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-the-complete-guide-to-facebooks-live-feature-how-to-and-best-practices/"><u>[Updated] 2024 Approved The Complete Guide to Facebook's Live Feature How-To & Best Practices</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-do-nubia-z50s-pro-screen-sharing-drfone-by-drfone-android/"><u>How To Do Nubia Z50S Pro Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leveraging-innovative-analytics-solutions-for-optimized-engagement/"><u>Leveraging Innovative Analytics Solutions for Optimized Engagement</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/masterclass-in-crafting-high-performance-digital-pages-for-maximum-seo-impact/"><u>Masterclass in Crafting High-Performance Digital Pages for Maximum SEO Impact</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/navigating-the-essentials-of-kyc-regulations-in-depth-strategies-for-successful-implementation/"><u>Navigating the Essentials of KYC Regulations: In-Depth Strategies for Successful Implementation</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/neuer-methodik-von-abbyy-fur-die-prazise-einordnung-von-schriftstucken/"><u>Neuer Methodik Von ABBYY Für Die Präzise Einordnung Von Schriftstücken</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimisation-et-traitement-efficace-des-documents-grace-a-la-solution-abbyy-enterprise-capture-par-les-systemes-arvato/"><u>Optimisation Et Traitement Efficace Des Documents Grâce À La Solution ABBYY Enterprise Capture Par Les Systèmes Arvato</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/playful-escape-the-ultimate-relief-list-for-2024/"><u>Playful Escape The Ultimate Relief List for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/rapid-digital-transformation-strategies-for-the-artificial-intelligence-sector-ebook-by-abbyy/"><u>Rapid Digital Transformation Strategies for the Artificial Intelligence Sector – eBook by ABBYY</u></a></li>
-<li><a href="https://techidaily.com/recover-apple-iphone-7-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 7 Data From iOS iTunes | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revamping-your-online-presence-mastering-the-art-of-page-optimization/"><u>Revamping Your Online Presence: Mastering the Art of Page Optimization</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/samsungs-big-reveal-2025-dates-latest-headlines-product-launches-and-speculations/"><u>Samsung's Big Reveal 2025: Dates, Latest Headlines, Product Launches & Speculations</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-from-ordinary-to-amazing-the-ultimate-video-enhancement-tool/"><u>Updated From Ordinary to Amazing The Ultimate Video Enhancement Tool</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2023-how-to-share-twitter-videos-on-facebook-in-2024/"><u>[Updated] 2023 | How to Share Twitter Videos on Facebook, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-ultimate-test-in-cinematography-gopro-vs-x1000v-action-cam/"><u>[Updated] In 2024, The Ultimate Test in Cinematography GoPro Vs. X1000V Action Cam?</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/comment-faciliter-la-restauration-des-fichiers-utilisant-une-sauvegarde-de-windows-7/"><u>Comment Faciliter La Restauration Des Fichiers Utilisant Une Sauvegarde De Windows 7</u></a></li>
+<li><a href="https://driver-download.techidaily.com/downloading-the-newest-geforce-rtx/"><u>Downloading the Newest GeForce RTX</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/exclusive-2017-festive-season-freebies-win-big-in-our-holiday-gift-draw-and-competition-bonanza/"><u>Exclusive 2017 Festive Season Freebies: Win Big in Our Holiday Gift Draw & Competition Bonanza</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/handbrake-and-av1-is-it-compatible-for-encoding/"><u>HandBrake and AV1: Is It Compatible for Encoding?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-game-based-youtube-earning-guide/"><u>In 2024, Game-Based YouTube Earning Guide</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavi-video-composer-fast-and-effortless-editing-software/"><u>Movavi Video Composer: Fast & Effortless Editing Software</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/schlusselkompetenzen-in-der-videobearbeitung-mit-movavi-kompetente-handhabungsanleitungen-stap-fur-stap-lernen-sie-schritt-fur-schritt/"><u>Schlüsselkompetenzen in Der Videobearbeitung Mit Movavi: Kompetente Handhabungsanleitungen Stap-Für-Stap - Lernen Sie Schritt Für Schritt</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/solutions-to-spy-on-apple-iphone-12-mini-with-and-without-jailbreak-drfone-by-drfone-virtual-ios/"><u>Solutions to Spy on Apple iPhone 12 mini with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformez-vos-fichiers-wtv-en-wmv-gratuitement-sur-internet-utilisation-simple-de-movavi/"><u>Transformez Vos Fichiers WTV en WMV Gratuitement Sur Internet - Utilisation Simple De Movavi</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/why-is-my-computers-fuser-app-keeps-crashing-and-how-to-stop-it/"><u>Why Is My Computer's Fuser App Keeps Crashing and How to Stop It?</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726224009566-wmawebm-movavi/"><u>WMA/WEBM 파일을 원격으로 무료 대체 - Movavi 소프트</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

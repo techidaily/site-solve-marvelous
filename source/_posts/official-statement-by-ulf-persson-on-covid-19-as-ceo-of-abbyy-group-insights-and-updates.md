@@ -1,7 +1,7 @@
 ---
 title: "Official Statement by Ulf Persson on COVID-19 as CEO of ABBYY Group: Insights and Updates"
-date: 2024-10-02T16:54:28.056Z
-updated: 2024-10-08T18:15:22.139Z
+date: 2024-10-11T20:34:25.623Z
+updated: 2024-10-15T02:46:32.159Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8defa02626cc56415dc50f7d54a716fd558d3dd721a0ce14cdc43e33e2f2d6de.jpg
@@ -47,23 +47,26 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-add-bitmoji-to-keyboard-complete-guide/"><u>2024 Approved How to Add Bitmoji to Keyboard? Complete Guide</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhanced-enhance-your-sites-analytics-efficiency/"><u>Cookiebot-Enhanced: Enhance Your Site's Analytics Efficiency</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhanced-the-secure-way-to-personalize-your-website/"><u>Cookiebot-Enhanced: The Secure Way to Personalize Your Website</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-the-key-driver-behind-efficient-user-analytics-tracking/"><u>Cookiebot: The Key Driver Behind Efficient User Analytics Tracking</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/discover-the-best-lgbtq-shows-available-on-netflix-this-july/"><u>Discover the Best LGBTQ Shows Available on Netflix This July</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/effortlessly-digitize-paperwork-from-iphone-snaps-to-searchable-docs-using-scan-and-ocr-technology-finereader-pro/"><u>Effortlessly Digitize Paperwork From iPhone Snaps to Searchable Docs Using Scan and OCR Technology | FineReader Pro</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-resolve-tecno-spark-10c-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Tecno Spark 10C Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y36i-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Vivo Y36i Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Tecno Pova 5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/movavi-ram-wav/"><u>MOVAVI 在線自由邊輸出 RAM 到 WAV 格式：直覺上的選擇</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/navigating-the-social-maze-tweets-plus-tumble-videos-for-2024/"><u>Navigating the Social Maze Tweets + Tumble Videos for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-elevate-your-green-screen-skills-with-this-kinemaster-guide-for-2024/"><u>[New] Elevate Your Green Screen Skills with This Kinemaster Guide for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-launch-a-captivating-livestream-with-minimal-subscribers/"><u>[New] Launch a Captivating Livestream with Minimal Subscribers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-crafting-perfect-youtube-short-content-lessons/"><u>[Updated] 2024 Approved Crafting Perfect YouTube Short Content Lessons</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-capture-and-save-your-next-google-meet-with-iphoneandroid-for-2024/"><u>[Updated] Capture & Save Your Next Google Meet with iPhone/Android for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2-winxvideo-ai-technical-insight-expert-review-and-full-feature-breakdown/"><u>2. WinXVideo AI Technical Insight: Expert Review & Full Feature Breakdown</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-efficiently-record-your-screen-with-io-screen-recorder/"><u>2024 Approved Efficiently Record Your Screen with IO Screen Recorder</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-oppo-find-x6-pro-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Oppo Find X6 Pro to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-innovative-analytics-solutions-for-optimized-engagement/"><u>Leveraging Innovative Analytics Solutions for Optimized Engagement</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/masterclass-in-crafting-high-performance-digital-pages-for-maximum-seo-impact/"><u>Masterclass in Crafting High-Performance Digital Pages for Maximum SEO Impact</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/navigating-the-essentials-of-kyc-regulations-in-depth-strategies-for-successful-implementation/"><u>Navigating the Essentials of KYC Regulations: In-Depth Strategies for Successful Implementation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/neuer-methodik-von-abbyy-fur-die-prazise-einordnung-von-schriftstucken/"><u>Neuer Methodik Von ABBYY Für Die Präzise Einordnung Von Schriftstücken</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimisation-et-traitement-efficace-des-documents-grace-a-la-solution-abbyy-enterprise-capture-par-les-systemes-arvato/"><u>Optimisation Et Traitement Efficace Des Documents Grâce À La Solution ABBYY Enterprise Capture Par Les Systèmes Arvato</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/solucion-integral-para-sincronizar-la-biblioteca-de-apple-music-con-tu-mac/"><u>Solución Integral Para Sincronizar La Biblioteca De Apple Music Con Tu Mac</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Infinix Hot 30i | Dr.fone</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

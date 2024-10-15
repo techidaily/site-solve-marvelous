@@ -1,7 +1,7 @@
 ---
 title: Driven with Advanced Cookieless Tracking Technology
-date: 2024-10-01T19:35:03.674Z
-updated: 2024-10-08T16:00:50.070Z
+date: 2024-10-08T20:38:07.662Z
+updated: 2024-10-15T00:39:13.575Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/84523bff91adaad5f05da4dc5462c4e758d2c84a6b7c5d09810fe5f525ef9fc4.jpg
@@ -20,10 +20,10 @@ Wholesale & Retail Trade | Food and Beverage | Mobile Capture | Cloud-based Docu
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## McDonald's setzt auf ABBYY OCR Technologie für weltmeisterliche Mobile App
@@ -33,16 +33,10 @@ Groß- und Einzelhandel | Mobile Capture
 ![](https://static1.abbyy.com/abbyycommedia/16263/cs-mcd-556x303.jpg) 
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Über den Kunden
@@ -50,10 +44,10 @@ Groß- und Einzelhandel | Mobile Capture
 ![McDonald’s](https://static1.abbyy.com/abbyycommedia/15837/mcdonalds_150x80.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name                  | McDonald’s                                     |
@@ -85,10 +79,10 @@ Weitere Informationen zu den ABBYY FineReader Engines für Entwickler von Softwa
 Teilen  True ?  : "" 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
@@ -112,20 +106,22 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-exclusive-insta-stories-for-private-eyes/"><u>[New] Exclusive Insta Stories for Private Eyes</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-biting-snippets-to-captivating-narratives-an-experts-guide-to-youtube-edits/"><u>[New] In 2024, From Biting Snippets to Captivating Narratives An Expert's Guide to Youtube Edits</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-navigating-win11-a-detailed-look-at-zoom-functions/"><u>[Updated] 2024 Approved Navigating Win11 A Detailed Look at Zoom Functions</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-capture-and-conquer-speedy-photos-on-windows-11-for-2024/"><u>[Updated] Capture & Conquer Speedy Photos on Windows 11 for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-easy-steps-for-perfect-screen-capture-with-mobizen-for-2024/"><u>[Updated] Easy Steps for Perfect Screen Capture with Mobizen for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-instagram-strategists-toolkit-understanding-metrics-trends-and-user-insights-for-2024/"><u>[Updated] The Instagram Strategist’s Toolkit Understanding Metrics, Trends & User Insights for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-snap-worthy-success-logging-galaxy-gaming-stories/"><u>2024 Approved Snap-Worthy Success Logging Galaxy Gaming Stories</u></a></li>
-<li><a href="https://windows11.techidaily.com/guide-to-batch-heic-image-change-to-jpeg-in-windows-11/"><u>Guide to Batch HEIC Image Change to JPEG in Windows 11</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-13-to-other-iphone-15-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 13 To Other iPhone 15 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-tailored-content-delivery-and-seo-success/"><u>Leveraging Cookiebot Technology for Tailored Content Delivery and SEO Success</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-tailored-web-experiences/"><u>Leveraging Cookiebot Technology for Tailored Web Experiences</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leveraging-innovative-analytics-solutions-for-optimized-engagement/"><u>Leveraging Innovative Analytics Solutions for Optimized Engagement</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/masterclass-in-crafting-high-performance-digital-pages-for-maximum-seo-impact/"><u>Masterclass in Crafting High-Performance Digital Pages for Maximum SEO Impact</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/navigating-the-essentials-of-kyc-regulations-in-depth-strategies-for-successful-implementation/"><u>Navigating the Essentials of KYC Regulations: In-Depth Strategies for Successful Implementation</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/neuer-methodik-von-abbyy-fur-die-prazise-einordnung-von-schriftstucken/"><u>Neuer Methodik Von ABBYY Für Die Präzise Einordnung Von Schriftstücken</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-how-to-vlog-confidently-like-popular-youtubers/"><u>2024 Approved How to Vlog Confidently Like Popular YouTubers?</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726225779161-avi-mp4-movavi/"><u>網路直接免費 AVI-MP4 改編工具 - 利用 Movavi 影片編輯軟體</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/collaborative-innovation-in-brand-and-media-synergy/"><u>Collaborative Innovation in Brand and Media Synergy</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/conversao-e-transformacao-ao-vivo-em-flac-de-dts-sem-cobranca-site-gratis-da-movavi/"><u>Conversão E Transformação Ao Vivo Em FLAC De DTS Sem Cobrança - Site Grátis Da Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/convertissez-vos-videos-m2ts-en-mp4-sans-frais-via-le-service-de-movavi-en-ligne/"><u>Convertissez Vos Vidéos M2TS en MP4 Sans Frais via Le Service De Movavi en Ligne</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guia-completa-para-la-transformacion-m4b-a-wav-en-linea-gratuitamente-con-convertio-audio-converter/"><u>Guía Completa Para La Transformación M4B a WAV en Línea Gratuitamente Con Convertio Audio Converter</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-on-the-iphone-15-plus-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock On the iPhone 15 Plus Without Previous Owner?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-15-without-passcode-4-easy-methods-by-drfone-ios/"><u>How To Unlock Apple iPhone 15 Without Passcode? 4 Easy Methods</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-inside-the-revamped-sony-bdp-s6700/"><u>In 2024, Inside the Revamped Sony BDP-S6700</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavi-mac/"><u>Movavi Mac用プログラムアカウント作成手順</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-instructions-for-updating-your-microsoft-sculpt-ergonomic-keyboard-drivers/"><u>Step-by-Step Instructions for Updating Your Microsoft Sculpt Ergonomic Keyboard Drivers</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transform-nef-photos-to-png-gratis-quick-and-simple-online-tool-by-movavi/"><u>Transform NEF Photos to PNG Gratis - Quick & Simple Online Tool by Movavi</u></a></li>
+<li><a href="https://article-tips.techidaily.com/transform-your-mac-interaction-innovative-text-to-speech-apps-uncovered/"><u>Transform Your Mac Interaction Innovative Text-to-Speech Apps Uncovered</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformar-mp3-en-archivos-de-video-avi-gratuito-en-linea-con-convertidor-quick-video/"><u>Transformar MP3 en Archivos De Vídeo AVI Gratuito en Línea Con Convertidor Quick Video</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/turn-off-intrusive-bluetooth-in-windows-10/"><u>Turn Off Intrusive Bluetooth in Windows 10</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/your-go-to-source-for-micromobility-trends-important-dates-fresh-news-rumors-afloat-and-full-scopes/"><u>Your Go-To Source for Micromobility Trends: Important Dates, Fresh News, Rumors Afloat, and Full Scopes</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mp3m4bmovavi/"><u>オンラインで楽にMP3をM4Bに変換：Movaviの優れたサービスと無料アプリ</u></a></li>
 </ul></div>
 

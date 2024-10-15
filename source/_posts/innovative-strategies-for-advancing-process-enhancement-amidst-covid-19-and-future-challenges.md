@@ -1,7 +1,7 @@
 ---
 title: Innovative Strategies for Advancing Process Enhancement Amidst COVID-19 & Future Challenges
-date: 2024-10-04T18:02:49.604Z
-updated: 2024-10-08T17:25:28.309Z
+date: 2024-10-13T00:06:56.759Z
+updated: 2024-10-14T18:14:11.336Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8a9fe07be68597eb9b7713ab.jpg
@@ -15,15 +15,22 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 
 English
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### New Techniques in Process Improvement
 
 Pen and paper-based value stream mapping (VSM) is the established tool for recording processes, identifying waste, and deriving recommendations for action. However, its application in the healthcare industry today requires a high level of effort and is challenging due to process complexity, variations, and siloed information. Compounding the problem, COVID-19 has made it extremely difficult for process improvement specialists to conduct in-person assessments and Kaizen events.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Learning Points:
@@ -37,10 +44,10 @@ Pen and paper-based value stream mapping (VSM) is the established tool for recor
 ### Watch now
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Get in touch with us
@@ -48,22 +55,15 @@ Pen and paper-based value stream mapping (VSM) is the established tool for recor
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Thank you, enjoy your webinar!
 
 [![14 A Guide To Achieving Process Excellence During COVID & Beyond](https://static4.abbyy.com/abbyycommedia/29631/14-a-guide-to-achieving-process-excellence-during-covid-beyond.jpg)](https://www.youtube.com/watch?v=VoLSbg-urvE) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
@@ -133,18 +133,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-effortlessly-stream-mp3-to-youtube-with-3-key-steps/"><u>[New] 2024 Approved Effortlessly Stream MP3 to YouTube with 3 Key Steps</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-highest-performance-graphics-for-uhd-media/"><u>[New] 2024 Approved Highest Performance Graphics for UHD Media</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-step-by-step-for-novices-utilizing-facebook-insights/"><u>[New] 2024 Approved Step-by-Step for Novices Utilizing Facebook Insights</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-conquer-your-screen-top-10-simple-youtube-projects-for-all-creators/"><u>[Updated] In 2024, Conquer Your Screen Top 10 Simple YouTube Projects for All Creators</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-marketing-automation-solutions/"><u>Cookiebot Driven Marketing Automation Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-performance-mastering-online-marketing-metrics-effortlessly/"><u>Cookiebot-Driven Performance: Mastering Online Marketing Metrics Effortlessly</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-user-experience-and-conversion-rates/"><u>Cookiebot-Enabled: Enhancing User Experience and Conversion Rates</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-sites-analytics-and-personalization/"><u>Cookiebot-Enabled: Enhancing Your Site's Analytics and Personalization</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-optimizing-your-site-with-advanced-tracking-technology/"><u>Cookiebot: Optimizing Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-the-secret-ingredient-for-optimized-user-experience/"><u>Cookiebot: The Secret Ingredient for Optimized User Experience</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/navigating-aloneness-in-depth-review-of-3dr-tech-for-2024/"><u>Navigating Aloneness In-Depth Review of '3DR' Tech for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/perfected-text-templates-for-professional-use/"><u>Perfected Text Templates for Professional Use</u></a></li>
-<li><a href="https://games-able.techidaily.com/swift-steps-securing-and-setting-up-mojang-maps/"><u>Swift Steps: Securing & Setting up Mojang Maps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-cutting-edge-4k-panels-top-10-revealed-list/"><u>[New] In 2024, Cutting-Edge 4K Panels Top 10 Revealed List</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-creating-smooth-audio-flows-with-pp/"><u>[Updated] Creating Smooth Audio Flows with PP</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-cutting-edge-techniques-for-capturing-stellar-interviews-on-idevices/"><u>2024 Approved Cutting-Edge Techniques for Capturing Stellar Interviews on iDevices</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/avimpeg-movavi/"><u>網路上無償AVI至MPEG格式改變 - Movavi 自動化編解碼器</u></a></li>
+<li><a href="https://techtrends.techidaily.com/clear-view-again-a-comprehensive-fix-for-lines-appearing-on-your-television-screen/"><u>Clear View Again: A Comprehensive Fix for Lines Appearing on Your Television Screen</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-cambiar-tu-video-de-formato-asf-a-mov-sin-coste-con-herramientas-en-linea-tutorial-con-movavi/"><u>Cómo Cambiar Tu Vídeo De Formato ASF a MOV Sin Coste Con Herramientas en Línea: Tutorial Con Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-transformar-archivos-ts-en-formato-line-sin-coste-usando-movavi-tutorial-completo/"><u>Cómo Transformar Archivos TS en Formato LINE Sin Coste Usando Movavi - Tutorial Completo</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/conversione-gratuita-online-converti-i-tuoi-file-mp3-in-formato-ogg-con-lutilita-di-movavi/"><u>Conversione Gratuita Online: Converti I Tuoi File MP3 in Formato OGG Con L'utilità Di Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converti-video-flv-in-formato-aiff-liberamente-conversiononline/"><u>Converti Video FLV in Formato AIFF Liberamente - ConversionOnline</u></a></li>
+<li><a href="https://win11.techidaily.com/essential-steps-to-resolve-security-error-in-windows-11/"><u>Essential Steps to Resolve Security Error in Windows 11</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/flvavi/"><u>FLVとAVIファイルの免責コースで簡単な変換 - ムーバヴィ</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-video-encoding-tools-ranked-discover-the-ultimate-guide-to-optimal/"><u>Free Video Encoding Tools Ranked! Discover the Ultimate Guide to Optimal 무료 동영상 압축 소프트웨어</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/get-started-on-free-video-transformation-seamless-file-converting-using-movavi/"><u>Get Started on Free Video Transformation - Seamless File Converting Using Movavi</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-poco-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Poco Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-lava-yuva-3-pro-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Lava Yuva 3 Pro</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mac-movavi-mac/"><u>Mac向け動画編集ソフトウェア Movavi - Macユーザーに最適！</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/quick-guide-youtube-videos-for-your-instagram-story-for-2024/"><u>Quick Guide YouTube Videos for Your Instagram Story for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-issues-when-a-webpage-wont-show/"><u>Resolving Issues When a Webpage Won't Show</u></a></li>
+<li><a href="https://win-dash.techidaily.com/seamless-setup-how-to-rapidly-download-your-lexar-usb-drivers/"><u>Seamless Setup: How to Rapidly Download Your Lexar USB Drivers</u></a></li>
 </ul></div>
 

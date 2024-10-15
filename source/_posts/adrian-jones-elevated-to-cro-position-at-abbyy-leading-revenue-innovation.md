@@ -1,7 +1,7 @@
 ---
 title: Adrian Jones Elevated to CRO Position at ABBYY - Leading Revenue Innovation
-date: 2024-10-02T17:29:15.614Z
-updated: 2024-10-08T18:37:12.197Z
+date: 2024-10-13T18:22:17.659Z
+updated: 2024-10-15T01:20:23.103Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e72e3b0a0f444d85893166713d9b69e6e7d31b3a9fab3ca00a257d1b8cf9aa38.jpg
@@ -32,10 +32,16 @@ Jones ist derzeit als Senior Advisor für das Private-Equity-Unternehmen Warburg
 1 IDC, Worldwide Intelligent Process Automation Market Shares, 2020: Solid Growth Across Cloud Segments, Doc # US47469221, June 2021.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -45,10 +51,10 @@ ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Ges
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -56,10 +62,10 @@ ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeich
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -85,20 +91,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-from-footage-to-followers-uploading-on-twitter/"><u>[New] 2024 Approved From Footage to Followers Uploading on Twitter</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-the-compreeved-guide-to-optimizing-space-and-pc-for-vr-for-2024/"><u>[Updated] The Compreeved Guide to Optimizing Space & PC for VR for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-stepwise-blueprint-converting-everyday-gifs-to-sticker-status-in-discord-and-other-chat-apps/"><u>2024 Approved Stepwise Blueprint Converting Everyday GIFs to Sticker Status in Discord & Other Chat Apps</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-your-focusrite-scarlett-2i2-installed-on-windows-free-download/"><u>Get Your Focusrite Scarlett 2I2 Installed on Windows - Free Download</u></a></li>
-<li><a href="https://video-capture.techidaily.com/hands-on-approaches-to-archive-vimeo-video/"><u>Hands-On Approaches to Archive Vimeo Video</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-realme-gt-neo-5-se-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Realme GT Neo 5 SE without App | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mastering-data-with-abbyy-and-arsenal-women-cutting-edge-ai-insights/"><u>Mastering Data with ABBYY & Arsenal Women: Cutting-Edge AI Insights</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mastering-networking-with-bcr-for-ios-nv-10-unveiling-latest-features-by-abbyy-exclusive-tips-from-our-companys-blog/"><u>Mastering Networking with BCR for iOS Nv 10: Unveiling Latest Features by ABBYY | Exclusive Tips From Our Company's Blog</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimized-by-cookiebot-enhanced-sales-funnel-management-and-analytics/"><u>Optimized by Cookiebot: Enhanced Sales Funnel Management and Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/paragon-customer-communications-advances-with-abbyys-digital-intelligence-for-comprehensive-digital-overhaul/"><u>Paragon Customer Communications Advances with ABBYY's Digital Intelligence for Comprehensive Digital Overhaul</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionize-your-data-collection-state-of-the-art-tools-powered-by-cookiebot/"><u>Revolutionize Your Data Collection: State-of-the-Art Tools Powered by Cookiebot</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-mobile-tech-music-streaming-and-e-signatures-with-smartwatches-insights-from-the-abbyy-blog/"><u>Revolutionizing Mobile Tech: Music Streaming & E-Signatures with Smartwatches – Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://driver-error.techidaily.com/solution-to-invalid-service-configuration-in-inf/"><u>Solution to Invalid Service Configuration in INF</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-from-apple-iphone-11-pro-max-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock from Apple iPhone 11 Pro Max</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-5-benefits-of-embracing-process-intelligence-in-your-business/"><u>Top 5 Benefits of Embracing Process Intelligence in Your Business</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-getting-started-on-youtube-broadcasts-using-obs/"><u>[Updated] 2024 Approved Getting Started on YouTube Broadcasts Using OBS</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-fine-tune-your-visual-storytelling-in-videoleap-footage/"><u>[Updated] Fine-Tune Your Visual Storytelling in Videoleap Footage</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/avimpeg-movavi/"><u>網路上無償AVI至MPEG格式改變 - Movavi 自動化編解碼器</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-cambiar-tu-video-de-formato-asf-a-mov-sin-coste-con-herramientas-en-linea-tutorial-con-movavi/"><u>Cómo Cambiar Tu Vídeo De Formato ASF a MOV Sin Coste Con Herramientas en Línea: Tutorial Con Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-transformar-archivos-ts-en-formato-line-sin-coste-usando-movavi-tutorial-completo/"><u>Cómo Transformar Archivos TS en Formato LINE Sin Coste Usando Movavi - Tutorial Completo</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converti-video-flv-in-formato-aiff-liberamente-conversiononline/"><u>Converti Video FLV in Formato AIFF Liberamente - ConversionOnline</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhance-accessibility-with-simple-steps-for-adding-transcripts-to-youtube-content/"><u>Enhance Accessibility with Simple Steps for Adding Transcripts to YouTube Content</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/flvavi/"><u>FLVとAVIファイルの免責コースで簡単な変換 - ムーバヴィ</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-imovie-windows-version-download-edit-your-videos-on-pc-without-cost/"><u>Free iMovie Windows Version Download: Edit Your Videos on PC without Cost</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-14-pro-max-to-androidios-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 14 Pro Max To Android/iOS? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-nokia-g310-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Nokia G310? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 without Passcode or Face ID</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-ultimate-blueprint-revolutionizing-your-mobile-capture-experience-with-mobizen/"><u>In 2024, Ultimate Blueprint Revolutionizing Your Mobile Capture Experience with Mobizen</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/kingdoms-collide-ranking-top-7-total-war-historical-games-for-2024/"><u>Kingdoms Collide Ranking Top 7 Total War Historical Games for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mac-movavi-mac/"><u>Mac向け動画編集ソフトウェア Movavi - Macユーザーに最適！</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mp4-to-aiff-conversion-tool-no-cost-option-moveave-media/"><u>MP4 to AIFF Conversion Tool - No Cost Option | Moveave Media</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Oppo Reno 11 5G? | Dr.fone</u></a></li>
 </ul></div>
 

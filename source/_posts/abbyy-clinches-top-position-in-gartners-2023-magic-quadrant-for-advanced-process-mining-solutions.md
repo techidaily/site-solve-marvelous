@@ -1,7 +1,7 @@
 ---
 title: ABBYY Clinches Top Position in Gartner's 2023 Magic Quadrant for Advanced Process Mining Solutions
-date: 2024-10-05T18:14:36.702Z
-updated: 2024-10-08T17:01:45.933Z
+date: 2024-10-08T22:42:01.155Z
+updated: 2024-10-14T19:57:30.469Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/648356b382a636832a6e99201a4517a582a77b906dab7a37be3d640b5bfda50d.jpg
@@ -43,10 +43,10 @@ _1 Gartner® Magic Quadrant™ for Process Mining Tools, March 20, 2023, ID G007
 _2 Gartner, [Forecast Analysis: Process Mining, Worldwide](https://www.gartner.com/en/documents/4007520), Oct. 26, 2021_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -60,10 +60,10 @@ ABBYY is a US-based global company with offices in 14 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -71,10 +71,16 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -100,20 +106,21 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-fusion-of-youtube-beats-and-imovie-editing-magic-for-2024/"><u>[New] Fusion of YouTube Beats and iMovie Editing Magic for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-top-12-clicker-games-on-pc/"><u>[New] In 2024, Top 12 Clicker Games on PC</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-13-best-ways-to-make-money-on-reddit-no-experience-needed/"><u>[Updated] 13 Best Ways to Make Money on Reddit - No Experience Needed</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-vector-databases-accelerate-ai-innovation-and-performance/"><u>How Vector Databases Accelerate AI Innovation and Performance</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/mastering-the-arlo-home-defense-system-with-hands-on-tips-and-tricks/"><u>Mastering the Arlo Home Defense System with Hands-On Tips and Tricks</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimized-webpage-strategies-enhancing-your-online-presence/"><u>Optimized Webpage Strategies: Enhancing Your Online Presence</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimizing-with-cookiebot-boosting-your-websites-potential/"><u>Optimizing with Cookiebot: Boosting Your Website's Potential</u></a></li>
-<li><a href="https://games-able.techidaily.com/pathways-of-steam-screenshot-preservation/"><u>Pathways of Steam Screenshot Preservation</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionize-automation-through-informed-decisions-discover-how-with-process-and-task-mining-at-abbyys-special-webinar/"><u>Revolutionize Automation Through Informed Decisions: Discover How with Process and Task Mining at ABBYY's Special Webinar</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-wine-selection-how-abbyys-ocr-technology-fuels-vivinos-global-success/"><u>Revolutionizing Wine Selection: How ABBYY's OCR Technology Fuels Vivino's Global Success</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/seamless-user-engagement-boosted-by-innovative-cookiebot-technology-solutions/"><u>Seamless User Engagement Boosted by Innovative Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://fox-that.techidaily.com/solving-the-overzoom-issue-tips-for-adjusting-your-whatsapp-camera-settings/"><u>Solving the Overzoom Issue: Tips for Adjusting Your WhatsApp Camera Settings</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/the-future-is-now-understanding-ai-governance-on-the-ai-pulse-podcast/"><u>The Future Is Now: Understanding AI Governance on the AI Pulse Podcast</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transform-images-into-editable-text-ocr-for-pdfjpg-files-on-ios-via-finereader/"><u>Transform Images Into Editable Text - OCR for PDF/JPG Files on iOS via FineReader</u></a></li>
-<li><a href="https://windows11.techidaily.com/win11-audio-levels-on-your-terms-designing-your-shortcuts/"><u>Win11 Audio Levels on Your Terms: Designing Your Shortcuts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-bridging-content-gap-youtube-videos-to-instagram/"><u>[Updated] Bridging Content Gap YouTube Videos to Instagram</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-guided-steps-to-decrease-audio-intensity-using-lumafusion-for-2024/"><u>[Updated] Guided Steps to Decrease Audio Intensity Using Lumafusion for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mp3-flac/"><u>「網路無限 MP3 自動預設 FLAC - 移動愛瓦 變更程式」</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726220504391-mp4avi-movavi/"><u>無料でMP4をAVIに変換する - Movaviの簡単なガイドブック</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-convertir-rapidamente-tu-video-swf-al-formato-mov-sin-costo-con-movavi/"><u>Cómo Convertir Rápidamente Tu Vídeo SWF Al Formato MOV Sin Costo Con Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/laureats-des-diaporamas-de-presentation-les-logiciels-gratuit-et-payant-pour-windows-text-in-french/"><u>Lauréats Des Diaporamas De Présentation : Les Logiciels Gratuit Et Payant Pour Windows ([Text in French])</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/leveraging-cookiebot-technology-for-optimized-site-engagement-and-conversion-rates/"><u>Leveraging Cookiebot Technology for Optimized Site Engagement and Conversion Rates</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/masterclass-in-youtube-video-previews-and-trailers/"><u>Masterclass in YouTube Video Previews and Trailers</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavis-no-cost-web-service-transforming-dng-photos-into-jpeg-files/"><u>Movavi's No-Cost Web Service: Transforming DNG Photos Into JPEG Files</u></a></li>
+<li><a href="https://games-able.techidaily.com/step-up-your-word-game-skills-with-the-intriguing-strands-puzzle/"><u>Step Up Your Word Game Skills with the Intriguing Strands Puzzle</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-guide-fixing-discords-javascript-mistakes-without-a-hitch/"><u>Step-by-Step Guide: Fixing Discord's JavaScript Mistakes Without a Hitch</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/transforming-communication-skills-with-chatgpt/"><u>Transforming Communication Skills with ChatGPT</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/ultimate-tutorial-editing-photos-by-cutting-out-the-surround-for-2024/"><u>Ultimate Tutorial Editing Photos by Cutting Out the Surround for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/upgrade-your-video-collection-seamless-flv-to-m4a-file-conversion-at-no-cost-using-our-web-service/"><u>Upgrade Your Video Collection: Seamless FLV to M4A File Conversion at No Cost Using Our Web Service</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/verslindig-jpeg-format-van-pgm-fotografien-zonder-risico-gratis-met-de-bedrijfsmerk-movavi/"><u>Verslindig JPEG-Format Van PGM-Fotografien Zonder Risico, Gratis Met De Bedrijfsmerk Movavi</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1726027860310-vimeo/"><u>Vimeoビデオのチャンブラダウンロードテクニック：手っ取り早いフリーガイド</u></a></li>
 </ul></div>
 

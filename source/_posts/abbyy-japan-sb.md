@@ -1,7 +1,7 @@
 ---
 title: ABBYY Japan ソフトウェア投入に合わせて SBモバイルサービスが新規事業を展開 - プレスリリース
-date: 2024-10-04T18:15:28.060Z
-updated: 2024-10-08T19:13:22.006Z
+date: 2024-10-11T00:50:32.195Z
+updated: 2024-10-14T19:32:35.156Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d6e8710c36c5978badec227a1052e8c4e84f42f10c18f1adcfe6fd4f956e57b1.jpg
@@ -18,10 +18,10 @@ thumbnail: https://thmb.techidaily.com/d6e8710c36c5978badec227a1052e8c4e84f42f10
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## ～OCRとプロセスマイニングでDXの推進を加速～
@@ -71,16 +71,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-navigating-the-world-of-fbx-for-gamers/"><u>[Updated] In 2024, Navigating the World of FBX for Gamers</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-by-step-guide-to-implementing-borders-on-instagram-images/"><u>[Updated] Step-by-Step Guide to Implementing Borders on Instagram Images</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/10-best-practices-for-boosting-srt-on-pc-and-macos-for-2024/"><u>10 Best Practices for Boosting SRT on PC & macOS for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/exploring-the-giants-of-social-networking-facebooktwitterinstagramyoutube-overview/"><u>Exploring the Giants of Social Networking: Facebook/Twitter/Instagram/YouTube Overview</u></a></li>
-<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-s23-ultra-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy S23 Ultra Phone FRP Lock</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/navigating-the-essentials-of-kyc-regulations-in-depth-strategies-for-successful-implementation/"><u>Navigating the Essentials of KYC Regulations: In-Depth Strategies for Successful Implementation</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/neuer-methodik-von-abbyy-fur-die-prazise-einordnung-von-schriftstucken/"><u>Neuer Methodik Von ABBYY Für Die Präzise Einordnung Von Schriftstücken</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimisation-et-traitement-efficace-des-documents-grace-a-la-solution-abbyy-enterprise-capture-par-les-systemes-arvato/"><u>Optimisation Et Traitement Efficace Des Documents Grâce À La Solution ABBYY Enterprise Capture Par Les Systèmes Arvato</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/rapid-digital-transformation-strategies-for-the-artificial-intelligence-sector-ebook-by-abbyy/"><u>Rapid Digital Transformation Strategies for the Artificial Intelligence Sector – eBook by ABBYY</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Oppo A79 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/bes-mini-millionaire-how-a-kid-earned-big-bucks-daily/"><u>YouTube's Mini Millionaire How a Kid Earned Big Bucks Daily</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-breakdown-of-youtubes-money-making-mechanisms-cpm/"><u>[New] 2024 Approved Breakdown of YouTube’s Money-Making Mechanisms (CPM)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-twittersphere-treasure-trove/"><u>[Updated] In 2024, The Twittersphere Treasure Trove</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-optimizing-your-workflow-nvidia-screener-for-2024/"><u>[Updated] Optimizing Your Workflow NVIDIA Screener for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-swift-image-adaptation-techniques-for-iphone-users/"><u>[Updated] Swift Image Adaptation Techniques for iPhone Users</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-online-meetings-tips-for-chromebook-users/"><u>2024 Approved Mastering Online Meetings Tips for Chromebook Users</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhanced-the-secure-way-to-personalize-your-website/"><u>Cookiebot-Enhanced: The Secure Way to Personalize Your Website</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-the-key-driver-behind-efficient-user-analytics-tracking/"><u>Cookiebot: The Key Driver Behind Efficient User Analytics Tracking</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effortlessly-digitize-paperwork-from-iphone-snaps-to-searchable-docs-using-scan-and-ocr-technology-finereader-pro/"><u>Effortlessly Digitize Paperwork From iPhone Snaps to Searchable Docs Using Scan and OCR Technology | FineReader Pro</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/elevate-your-site-with-cookiebot-technology-for-targeted-user-engagement/"><u>Elevate Your Site with Cookiebot Technology for Targeted User Engagement</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/empowering-user-confidentiality-through-pets-insights-from-the-abbyy-perspective/"><u>Empowering User Confidentiality Through PETs | Insights From the ABBYY Perspective</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-user-experience-and-track-conversions-using-advanced-cookiebot-solutions/"><u>Enhance User Experience and Track Conversions Using Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-website-insights-with-advanced-cookiebot-technology-platforms/"><u>Enhance Website Insights with Advanced Cookiebot Technology Platforms</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-your-website-with-automated-tracking-powered-by-cockroach/"><u>Enhance Your Website with Automated Tracking: Powered by Cockroach</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-user-engagement-with-customized-advertising-through-advanced-tracking-solutions/"><u>Enhanced User Engagement with Customized Advertising Through Advanced Tracking Solutions</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/hacking-back-photo-viewing-in-windows-11-easily-for-2024/"><u>Hacking Back Photo Viewing in Windows 11 Easily for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-realme-gt-5-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Realme GT 5 If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-crafting-soundscapes-how-to-use-auditions-fade-in-effect/"><u>In 2024, Crafting Soundscapes How to Use Audition's Fade In Effect</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/lock-your-meizu-21-pro-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Meizu 21 Pro Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-evolution-of-playstation-5-from-old-to-new/"><u>The Evolution of PlayStation 5 From Old to New</u></a></li>
 </ul></div>
 

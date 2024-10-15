@@ -1,7 +1,7 @@
 ---
 title: "Appointment of Neil Murphy as CSO: How ABBYY Strengthens Its Executive Team"
-date: 2024-10-05T19:15:06.268Z
-updated: 2024-10-08T16:58:40.935Z
+date: 2024-10-08T16:18:32.742Z
+updated: 2024-10-14T18:58:57.567Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5c068034f0080166994d164493cb808318b6f6a0f4d45de0f56404a9b7904a53.jpg
@@ -38,10 +38,16 @@ _Neil Murphy, Chief Sales Officer bei ABBYY._
 Um mehr über ABBYYs intelligente Automatisierungslösungen zu erfahren, besuchen Sie <https://www.abbyy.com/de/company/about-us/>.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Über ABBYY
@@ -55,10 +61,10 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 14
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pressekontakt:
@@ -66,10 +72,10 @@ ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, gesch
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Bianca Stupp
@@ -95,18 +101,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-21-pioneering-metaverse-ventures-for-insightful-discussion-for-2024/"><u>[Updated] 21 Pioneering Metaverse Ventures for Insightful Discussion for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1724312994221-abbyy/"><u>「ABBYYによる国際調査:ドキュメント内容情報取得技術の最新研究結果」</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-ultimate-guide-mastering-snapchats-call-and-chat-features/"><u>2024 Approved The Ultimate Guide Mastering Snapchat's Call & Chat Features</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-dominates-the-2024-evalgroups-peak-matrix-benchmark/"><u>ABBYY Dominates the 2024 EvalGroup's PEAK Matrix Benchmark</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-japan-sb/"><u>ABBYY Japan ソフトウェア投入に合わせて SBモバイルサービスが新規事業を展開 - プレスリリース</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/achieve-better-engagement-with-websites-optimized-using-the-cookiebot-platform/"><u>Achieve Better Engagement with Websites Optimized Using the Cookiebot Platform</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/elevate-video-aesthetics-to-meet-instagram-standards-for-2024/"><u>Elevate Video Aesthetics to Meet Instagram Standards for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-apple-iphone-14-pro-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change GPS Location on Apple iPhone 14 Pro Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-the-best-of-both-worlds-free-and-paid-vlog-video-editing-software-compared/"><u>New 2024 Approved The Best of Both Worlds Free and Paid Vlog Video Editing Software Compared</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-oneplus-nord-3-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on OnePlus Nord 3 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/warum-unternehmen-content-kenntnis-erwerben-mussen-um-die-entwicklung-der-intelligenten-prozessautomation-voranzutreiben-eine-abbyy-langzeitstudie-versteht-17/"><u>Warum Unternehmen Content-Kenntnis Erwerben Müssen, Um Die Entwicklung Der Intelligenten Prozessautomation Voranzutreiben – Eine ABBYY-Langzeitstudie Versteht Es</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/what-is-process-mining-and-why-use-it-a-comprehensive-guide/"><u>What Is Process Mining and Why Use It: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-cross-platform-soundtrack-strategy-for-facebook-profiles-for-2024/"><u>[New] Cross-Platform Soundtrack Strategy for Facebook Profiles for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-pitch-perfect-how-to-add-songs-to-your-snapchat-content/"><u>[New] Pitch Perfect How to Add Songs to Your Snapchat Content</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-vivo-y100i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Vivo Y100i | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/3gpwmv-movavi/"><u>免費移動中的3GP到WMV格式轉換 - 利用Movavi工具</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/a-lista-dos-8-mestres-gratis-em-gerar-glitch-effects-and-imperfections-for-designers/"><u>A Lista Dos 8 Mestres Grátis Em Gerar Glitch Effects and Imperfections for Designers</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-converter-video-mp4-a-fotos-jpg-de-manera-gratuita-en-linea-guia-paso-a-paso-con-herramienta-movavi/"><u>Cómo Converter Video MP4 a Fotos JPG De Manera Gratuita en Línea - Guía Paso a Paso Con Herramienta Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converti-video-mp4-a-formato-libero-aac-sul-web-senza-costi-usando-lapplicazione-di-moveavi/"><u>Converti Video MP4 a Formato Libero AAC Sul Web Senza Costi, Usando L'applicazione Di Moveavi</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elite-choices-top-8-tripods-for-cinematic-4k-experiences/"><u>Elite Choices Top 8 Tripods for Cinematic 4K Experiences</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/flvwma/"><u>FLVとWMAファイルを完全自由で簡単にオンライン変換 - ムーヴァヴィ</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-newest-support-for-your-logiteche-mk710-with-these-driver-downloads/"><u>Get the Newest Support for Your Logiteche MK710 with These Driver Downloads</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guide-rapide-transformez-vos-fichiers-raw-en-images-de-haute-qualite-au-format-jpeg/"><u>Guide Rapide : Transformez Vos Fichiers RAW en Images De Haute Qualité Au Format JPEG</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-7-plus-without-passcode-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 7 Plus Without Passcode? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-huawei-nova-y71-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Huawei Nova Y71 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-zooming-in-a-guide-to-tight-shots-in-microsoft-teams/"><u>In 2024, Zooming In A Guide to Tight Shots in Microsoft Teams</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/online-free-ts-mp4-movavi/"><u>Online Free TS 프리미우스를 MP4로 자동 변환 - Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformez-les-videos-vob-en-mp4-de-qualityguard-pour-la-playstation-gratuitement-online/"><u>Transformez Les Vidéos VOB en MP4 De QualityGuard Pour La PlayStation Gratuitement Online!</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-unlock-your-creative-potential-top-ipad-video-editors/"><u>Updated Unlock Your Creative Potential Top iPad Video Editors</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Unleashing Growth Potential with the Power of Cookiebot Technology for Sites
-date: 2024-10-05T16:13:03.224Z
-updated: 2024-10-08T17:52:24.297Z
+date: 2024-10-08T19:47:32.754Z
+updated: 2024-10-14T23:27:23.452Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/18316e8f71e11f28b59d175ffaa88b6b208294f15c9d92c3f00bf91d9310afa1.jpg
@@ -21,6 +21,13 @@ thumbnail: https://thmb.techidaily.com/18316e8f71e11f28b59d175ffaa88b6b208294f15
 
 医療ニーズの将来を管理するために、病院、医師たちはビジネスおよび臨床プロセスをより適切に管理できなければなりません。 品質改善戦略をどこでどのように採用するかを決定することは複雑ですが、医療専門家が臨床プロセスをよりよく理解するのにプロセスマイニングが役立ちます。
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ヘルスケア業界でどのようにプロセスマイニングが使われているか
 
 医療システム内の医師、看護師、技術者、およびその他の重要なメンバーは、無数の命を救う意思決定における重い責任を負っています。 新型コロナウィルス流行は、意思決定を迅速に行うためのデータの必要性を大きく強調しています。 従来のビジネスインテリジェンスツールのような多くの既存のプラットフォームでは、運用とパフォーマンスを監視できますが、パフォーマンスの低いプロセスの原因を特定するには不十分であり、予測分析を提供できません。
@@ -30,28 +37,15 @@ thumbnail: https://thmb.techidaily.com/18316e8f71e11f28b59d175ffaa88b6b208294f15
 ![ヘルスケア管理](https://static1.abbyy.com/abbyycommedia/30413/healthcare-process-improvement.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [ヘルスケア業界におけるプロセスマイニング](https://tools.techidaily.com/abbyy/products/)の適用に関する調査、実施研究は、学術理論からビジネスプロセスの実際の変革へと移行しています。 この概念は比較的新しいかもしれませんが、データサイエンティストを実際のアプリケーションに導き、実際世界で起こっている結果を得ているという報告が出てきています。
 
 Journal of Biomedical Informaticsは、Eric Rojas らによるヘルスケアにおけるプロセスマイニングの現在の採用を分析するレビューで、ヘルスケアへのプロセスマイニングの利用の最先端はヨーロッパにあり、現在の調査、実施研究の73％がここで行われていることを明らかにしました。 2020年の[プロセスマイニングとRPAの現状に関する最近の調査](https://tools.techidaily.com/abbyy/products/)によると、フランスの企業がプロセスマイニングの面で先導しており、回答者の78％がすでにそのようなツールを使用していると述べています。
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### では、プロセスマイニングはどのように動くのでしょうか？
 
@@ -70,10 +64,10 @@ Prof. Dr. ir Will Van der Aalst らによる「ヘルスケアにおけるプロ
 ![rpaプロセスマイニング](https://static1.abbyy.com/abbyycommedia/30414/healthcare-process.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 医療専門家は、プロセスマイニングを使用して、[医療におけるプロセス改善](https://tools.techidaily.com/abbyy/products/)の最適な候補を特定できます。これは、複雑で、時間的にシビアであることが多いのですが、一歩踏み込んで患者の顧客体験を改善したり、コンプライアンスリスクを避けたり、次世代プロセスマイニングソリューションであるプロセスインテリジェンスを使って効率を上げたりすることが可能です。
@@ -83,10 +77,10 @@ ABBYYのプロセスインテリジェンスプラットフォームは、プロ
 [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [ヘルスケア](https://tools.techidaily.com/abbyy/products/) [デジタルインテリジェンス](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -152,20 +146,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-maximizing-performance-optimize-mov-files-in-win-11/"><u>[New] In 2024, Maximizing Performance Optimize MOV Files in Win 11</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-transforming-images-with-ar-a-guide-to-free-lut-downloads/"><u>[New] Transforming Images with AR A Guide to Free LUT Downloads</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harness-the-power-of-cookiebot-for-dynamic-web-analytics-and-conversion-optimization/"><u>Harness the Power of Cookiebot for Dynamic Web Analytics and Conversion Optimization</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/hochwertiger-treibstoff-fur-den-motor-des-unternehmenserfolgs/"><u>Hochwertiger Treibstoff Für Den Motor Des Unternehmenserfolgs</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-apple-iphone-8-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change GPS Location on Apple iPhone 8 Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-turning-xmlssattml-files-into-srt-formats-strategies-and-techniques/"><u>In 2024, Turning XML/SSA/TTML Files Into SRT Formats Strategies and Techniques</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leverage-cookiebot-technology-for-advanced-website-personalization-and-analytics/"><u>Leverage Cookiebot Technology for Advanced Website Personalization & Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leverage-the-power-of-cookiebot-for-superior-web-analytics-and-conversion-tracking/"><u>Leverage the Power of Cookiebot for Superior Web Analytics and Conversion Tracking</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-advanced-web-analytics-solutions/"><u>Leveraging Cookiebot Technology for Advanced Web Analytics Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/live-datenerfassung-mit-abbyy-ocr-sdk-instantane-erkennung-von-text-im-feld/"><u>Live-Datenerfassung Mit ABBYY OCR SDK - Instantane Erkennung Von Text Im Feld</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/maximizing-online-presence-the-art-of-effective-web-pages-and-seo-techniques/"><u>Maximizing Online Presence: The Art of Effective Web Pages and SEO Techniques</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-to-installing-updated-hp-officejet-pro-8620-drivers-on-windows/"><u>Step-by-Step Guide to Installing Updated HP OfficeJet Pro 8620 Drivers on Windows</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/the-ultimate-fraps-experience-for-game-capture-for-2024/"><u>The Ultimate Fraps Experience for Game Capture for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/ultimate-guide-for-popular-screen-recorder-zd-soft/"><u>Ultimate Guide for Popular Screen Recorder ZD Soft</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ultimate-guide-how-to-capture-youtube-audiovisuals-effectively-with-top-grade-audio-downloaders/"><u>Ultimate Guide: How to Capture YouTube Audiovisuals Effectively With Top Grade Audio Downloaders</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-eradicate-coffee-stains-in-snapshits-iphones-free-red-eye-fix/"><u>[New] In 2024, Eradicate Coffee Stains in Snapshits IPhone's Free Red-Eye Fix</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-maximizing-earnings-on-instagram-strategies-for-sponsorship-attraction/"><u>[New] Maximizing Earnings on Instagram Strategies for Sponsorship Attraction</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-state-of-the-vr-industry/"><u>[New] State of the VR Industry</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-discovering-and-dominating-unique-segments-in-youtube-for-2024/"><u>[Updated] Discovering and Dominating Unique Segments in YouTube for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-explore-better-than-sharex-a-guide/"><u>[Updated] In 2024, Explore Better Than ShareX - A Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-understanding-the-basics-of-audio-crossfading/"><u>[Updated] Understanding the Basics of Audio Crossfading</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-agni-2-5g-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Agni 2 5G.</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/personalized-engagement-with-our-services-powered-by-the-advanced-technology-of-cookiebot/"><u>Personalized Engagement with Our Services, Powered by the Advanced Technology of Cookiebot</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/protection-renforcee-pour-votre-gestion-documentaire-grace-a-tangro-avec-technologie-abbyy/"><u>Protection Renforcée Pour Votre Gestion Documentaire Grâce À Tangro® Avec Technologie ABBYY</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-efficiency-unlocking-the-power-of-automation-for-uk-companpsies-findings-by-abbyy-analysis/"><u>Revolutionizing Efficiency: Unlocking the Power of Automation for UK Companpsies - Findings by ABBYY Analysis</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/showcasing-intuitive-ai-solutions-for-enhanced-accounts-payable-efficiency/"><u>Showcasing Intuitive AI Solutions for Enhanced Accounts Payable Efficiency</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/task-and-process-mining-erklart-strategien-fur-verstandnis-und-optimierung/"><u>Task & Process Mining Erklärt: Strategien Für Verständnis Und Optimierung</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-10-leading-internet-giants-dominating-the-online-world/"><u>Top 10 Leading Internet Giants Dominating the Online World</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/understanding-the-legal-framework-of-abbyy-flexicapture-online-service-terms-conditions-and-compliance-standards/"><u>Understanding the Legal Framework of ABBYY FlexiCapture Online Service - Terms, Conditions & Compliance Standards</u></a></li>
 </ul></div>
 

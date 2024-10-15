@@ -1,7 +1,7 @@
 ---
 title: "Task & Process Mining Erklärt: Strategien Für Verständnis Und Optimierung"
-date: 2024-10-03T16:09:19.980Z
-updated: 2024-10-08T17:59:25.324Z
+date: 2024-10-13T23:40:43.467Z
+updated: 2024-10-15T00:43:35.632Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cd161aa122231bb69ca4c1e6bbe1e4e7f5305ae201601188c0d2d47667128a74.jpg
@@ -16,10 +16,10 @@ Whitepaper
 ![Empowering Financial Services to Innovate Through Automation](https://static1.abbyy.com/abbyycommedia/36211/15131-whitepaper-nelsonhall-2022-de-262x340.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Benötigt man Process Mining UND Task Mining, um Geschäftsprozesse zu verbessern? Diese und weitere Fragen werden im Folgenden beantwortet.
@@ -33,19 +33,19 @@ Laden Sie diese Q&A zum Thema Process Intelligence mit NelsonHall und ABBYY heru
 * Wie Prozessverständnis die datenbasierte Entscheidungen unterstützt, um die Automatisierung ineffizienter Prozesse zu vermeiden
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Jetzt ansehen.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Danke für Ihr Interesse an ABBYY.
@@ -55,10 +55,10 @@ Laden Sie diese Q&A zum Thema Process Intelligence mit NelsonHall und ABBYY heru
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
@@ -130,20 +130,22 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/-guide-to-crafting-engaging-videos-in-adobe-premiere/"><u>[New] A Guide to Crafting Engaging Videos in Adobe Premiere</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-tackling-legal-differences-youtubes-restrictions-and-creative-commons-licensing/"><u>[New] In 2024, Tackling Legal Differences YouTube's Restrictions & Creative Commons Licensing</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-ultimate-mp4-record-and-assess-guide/"><u>[New] In 2024, Ultimate MP4 Record & Assess Guide</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-expert-tips-for-effortless-google-podcast-upload/"><u>[Updated] 2024 Approved Expert Tips for Effortless Google Podcast Upload</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/avimpeg-movavi/"><u>網路上無償AVI至MPEG格式改變 - Movavi 自動化編解碼器</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-cambiar-tu-video-de-formato-asf-a-mov-sin-coste-con-herramientas-en-linea-tutorial-con-movavi/"><u>Cómo Cambiar Tu Vídeo De Formato ASF a MOV Sin Coste Con Herramientas en Línea: Tutorial Con Movavi</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/como-playar-mp4-file-en-un-browser-con-conversion-al-formato-webm/"><u>Como Playar Mp4 File en Un Browser Con Conversión Al Formato WebM</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-transformar-archivos-ts-en-formato-line-sin-coste-usando-movavi-tutorial-completo/"><u>Cómo Transformar Archivos TS en Formato LINE Sin Coste Usando Movavi - Tutorial Completo</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/conversione-gratuita-online-converti-i-tuoi-file-mp3-in-formato-ogg-con-lutilita-di-movavi/"><u>Conversione Gratuita Online: Converti I Tuoi File MP3 in Formato OGG Con L'utilità Di Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/converti-video-flv-in-formato-aiff-liberamente-conversiononline/"><u>Converti Video FLV in Formato AIFF Liberamente - ConversionOnline</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/cutting-edge-github-dialogues-with-enhanced-chatgpt-use/"><u>Cutting-Edge Github Dialogues with Enhanced ChatGPT Use</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/flvavi/"><u>FLVとAVIファイルの免責コースで簡単な変換 - ムーバヴィ</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/high-quality-action-captured-by-the-ion-pro-3-camera/"><u>High-Quality Action Captured by the ION Pro 3 Camera</u></a></li>
-<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On Vivo S17? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mac-movavi-mac/"><u>Mac向け動画編集ソフトウェア Movavi - Macユーザーに最適！</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-race-away-slow-motion-on-your-android-device/"><u>[New] In 2024, Race Away Slow Motion on Your Android Device</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-top-5-slick-online-apps-for-direct-gif-to-video-updates/"><u>[New] Top 5 Slick Online Apps for Direct GIF to Video Updates</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-prime-9-options-to-capture-high-quality-audio-remotely-23/"><u>[Updated] In 2024, Prime 9 Options to Capture High-Quality Audio Remotely ('23)</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1-iphone-xs-and-x-comparative-review-with-enhanced-scanning-features-on-the-abbeyy-blog/"><u>1. IPhone Xs & X: Comparative Review with Enhanced Scanning Features on the ABBEYY Blog</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-nighttime-iphone-photography-secrets-revealed/"><u>2024 Approved Nighttime iPhone Photography Secrets Revealed</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-prime-video-hits-on-twitter-the-most-popular-watches-of-23/"><u>2024 Approved Prime Video Hits on Twitter The Most Popular Watches of '23</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-innovates-unveils-state-of-the-art-indian-randd-hub/"><u>ABBYY Innovates: Unveils State-of-the-Art Indian R&D Hub</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/overcoming-challenges-with-installing-samsung-ssd-drivers-on-your-pcs-windows-platform-expert-tips-and-solutions/"><u>Overcoming Challenges with Installing Samsung SSD Drivers on Your PC's Windows Platform: Expert Tips and Solutions</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/prime-videobg-selections-enhancing-remote-collaboration/"><u>Prime Videobg Selections Enhancing Remote Collaboration</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/reversing-your-footage-the-ultimate-guide-to-flipping-gopro-videos-vertically/"><u>Reversing Your Footage: The Ultimate Guide to Flipping GoPro Videos Vertically</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transform-images-into-editable-text-ocr-for-pdfjpg-files-on-ios-via-finereader/"><u>Transform Images Into Editable Text - OCR for PDF/JPG Files on iOS via FineReader</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-jobs-tomorrow-insightful-analysis-on-rpas-impact-and-abbyys-forecast-white-paper/"><u>Transforming Jobs Tomorrow: Insightful Analysis on RPA's Impact and ABBYY's Forecast [White Paper]</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-legal-text-analysis-with-abbyys-advanced-docs-enhanced-capabilities-and-seamless-rag-sync/"><u>Transforming Legal Text Analysis with ABBYY's Advanced Docs: Enhanced Capabilities and Seamless RAG Sync</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/understanding-the-distinctions-between-process-intelligence-and-bi-techniques-for-strategic-decision-making/"><u>Understanding the Distinctions Between Process Intelligence and BI Techniques for Strategic Decision-Making</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlocking-features-of-finescanner-in-ios-12-expert-insights-from-the-abbyy-community/"><u>Unlocking Features of FineScanner in iOS 12 - Expert Insights From the ABBYY Community</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/utilizing-cookiebot-technology-for-improved-online-engagement-analysis/"><u>Utilizing Cookiebot Technology for Improved Online Engagement Analysis</u></a></li>
 </ul></div>
 

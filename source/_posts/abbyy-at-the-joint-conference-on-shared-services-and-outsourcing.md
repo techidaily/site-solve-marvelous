@@ -1,7 +1,7 @@
 ---
 title: ABBYY at the Joint Conference on Shared Services & Outsourcing
-date: 2024-10-05T18:42:47.485Z
-updated: 2024-10-08T19:24:14.045Z
+date: 2024-10-13T22:45:52.786Z
+updated: 2024-10-15T00:34:24.168Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7190f701d24b2bca2702a5bcd803eaeb74415822adafed338c6c5049f6c7aefb.jpg
@@ -80,31 +80,35 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/a-stepwise-journey-converting-smartphones-into-vr-hubs-for-2024/"><u>A Stepwise Journey Converting Smartphones Into VR Hubs for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/elite-fleet-10-aerial-visionaries-dream-choices-for-2024/"><u>Elite Fleet #10 Aerial Visionaries' Dream Choices for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-on-ankers-high-powered-outdoor-torch-unrivaled-ruggedness-and-brilliance/"><u>Expert Analysis on Anker's High-Powered Outdoor Torch - Unrivaled Ruggedness and Brilliance</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/hochwertiger-treibstoff-fur-den-motor-des-unternehmenserfolgs/"><u>Hochwertiger Treibstoff Für Den Motor Des Unternehmenserfolgs</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-motorola-g24-power-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Motorola G24 Power to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-vivo-s17-pro-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Vivo S17 Pro Phone?</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-novices-guide-to-vectors-insight-into-types-and-software-choices/"><u>In 2024, Novice's Guide to Vectors Insight Into Types & Software Choices</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Meizu 21 Pro? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Nokia C22? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leverage-cookiebot-technology-for-advanced-website-personalization-and-analytics/"><u>Leverage Cookiebot Technology for Advanced Website Personalization & Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leverage-the-power-of-cookiebot-for-superior-web-analytics-and-conversion-tracking/"><u>Leverage the Power of Cookiebot for Superior Web Analytics and Conversion Tracking</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-advanced-web-analytics-solutions/"><u>Leveraging Cookiebot Technology for Advanced Web Analytics Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/live-datenerfassung-mit-abbyy-ocr-sdk-instantane-erkennung-von-text-im-feld/"><u>Live-Datenerfassung Mit ABBYY OCR SDK - Instantane Erkennung Von Text Im Feld</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/maximizing-online-presence-the-art-of-effective-web-pages-and-seo-techniques/"><u>Maximizing Online Presence: The Art of Effective Web Pages and SEO Techniques</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/nelsonhalls-2020-technology-radar-abbyy-recognized-as-front-runner-in-process-mining-and-data-analysis-techniques/"><u>NelsonHall's 2020 Technology Radar: ABBYY Recognized as Front-Runner in Process Mining & Data Analysis Techniques</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimize-with-cookiebot-next-level-analytics-and-personalization-power/"><u>Optimize With Cookiebot: Next-Level Analytics and Personalization Power</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimize-your-sites-analytics-the-advanced-features-of-cookiebot-solutions/"><u>Optimize Your Site's Analytics: The Advanced Features of Cookiebot Solutions</u></a></li>
-<li><a href="https://blog-min.techidaily.com/the-pricey-charm-of-the-new-ipad-pro-m4-my-obsession-despite-its-expense/"><u>The Pricey Charm of the New iPad Pro (M4) – My Obsession Despite Its Expense</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unboxing-revolution-the-most-innovative-yt-channels-of-2024/"><u>Unboxing Revolution The Most Innovative YT Channels of 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-complete-pacera-free-audio-liberation-handbook-for-2024/"><u>[Updated] The Complete Pacera Free Audio Liberation Handbook for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-precision-and-savings-combined-top-asmr-microphones-within-reach/"><u>2024 Approved Precision & Savings Combined Top ASMR Microphones Within Reach</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-asus-rog-phone-7-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Asus ROG Phone 7 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/acessando-audio-visual-avi-no-windows-nova-versao-graca-gratuita-tutorial-detalhado/"><u>Acessando Áudio-Visual AVI No Windows Nova Versão - Graça Gratuita | Tutorial Detalhado</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/best-ways-to-convert-videos-from-vlc-to-mp4-with-ease-top-movavi-tips/"><u>Best Ways to Convert Videos From VLC to MP4 with Ease - Top Movavi Tips</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/convert-your-memories-with-ease-discover-the-best-vhs-to-dvd-solutions-including-movavi-video-converter/"><u>Convert Your Memories with Ease: Discover the Best VHS-to-DVD Solutions, Including Movavi Video Converter</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/criador-de-slide-show-gratuito-pelo-movavi-facil-download-e-instalacao/"><u>Criador De Slide Show Gratuito Pelo Movavi - Fácil Download E Instalação</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-revenue-how-much-do-creators-earn-on-youtube/"><u>Decoding Revenue How Much Do Creators Earn on Youtube?</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effortlessly-transform-mp2-tracks-into-high-quality-wav-files-with-movavis-free-online-service/"><u>Effortlessly Transform MP2 Tracks Into High-Quality WAV Files with Movavi's Free Online Service</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/enjoying-your-rides-with-ddpai-mini3-when-dashcams-get-entertaining/"><u>Enjoying Your Rides with DDPai Mini3: When Dashcams Get Entertaining!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/geavanceerd-omzetten-van-m2p-folders-vrije-efficient-opsluiting-met-movavi/"><u>Geavanceerd Omzetten Van M2P Folders: Vrije, Efficiënt Opsluiting Met Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gratis-dng-to-jpg-converteren-via-internet-zoekplaats-voor-professioneel-richtingingskunst/"><u>Gratis DNG-to-JPG Converteren via Internet - Zoekplaats Voor Professioneel Richtingingskunst</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-motorola-edge-40-neo-screen-sharing-drfone-by-drfone-android/"><u>How To Do Motorola Edge 40 Neo Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-from-your-iphone-se-2020-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card from Your iPhone SE (2020) Apple ID and Apple Pay</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6-plus-official-method-to-unlock-your-iphone-6-plus-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 6 Plus Official Method to Unlock Your iPhone 6 Plus</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/resolving-common-issues-how-to-ensure-your-4k-tv-is-actually-displaying-in-full-ultra-hd/"><u>Resolving Common Issues: How to Ensure Your 4K TV Is Actually Displaying in Full Ultra HD</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/understanding-the-legal-framework-of-abbyy-flexicapture-online-service-terms-conditions-and-compliance-standards/"><u>Understanding the Legal Framework of ABBYY FlexiCapture Online Service - Terms, Conditions & Compliance Standards</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

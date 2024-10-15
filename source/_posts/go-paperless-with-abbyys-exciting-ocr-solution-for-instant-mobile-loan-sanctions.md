@@ -1,7 +1,7 @@
 ---
 title: Go Paperless with ABBYY's Exciting OCR Solution for Instant Mobile Loan Sanctions!
-date: 2024-10-02T17:44:35.539Z
-updated: 2024-10-08T17:38:08.401Z
+date: 2024-10-13T19:36:14.510Z
+updated: 2024-10-14T23:13:47.612Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/197c2ed369e4a9919f13d946f77f5157856e3dbfa0838cef669c3e3be16ac8df.jpg
@@ -19,28 +19,34 @@ Financial Services | Mobile Capture
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ABBYY Mobile OCR Engine\* makes on-the-go loan approval a blast
 
 Financial Services | Mobile Capture 
 
 ![](https://static1.abbyy.com/abbyycommedia/15028/dbs-pic1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Customer Overview
 
 ![DBS Bank](https://static2.abbyy.com/abbyycommedia/15033/dbs-logo-small.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name         | DBS Bank                          |
@@ -97,20 +103,27 @@ On-the-go loan application based on ABBYY Mobile OCR Engine\* simplifies and enh
 
 [![Mobile Capture SDK](https://static4.abbyy.com/abbyycommedia/21986/12-mobile-capture-sdk.jpg)](https://tools.techidaily.com/abbyy/products/) [Mobile Capture SDK](https://tools.techidaily.com/abbyy/products/) 
 
-[read more](https://tools.techidaily.com/abbyy/products/) 
-
-[![Banking and Finance](https://static4.abbyy.com/abbyycommedia/14358/8-banking-and-finance.jpg)](https://tools.techidaily.com/abbyy/products/) [Banking and Finance](https://tools.techidaily.com/abbyy/products/) 
-
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
+[![Banking and Finance](https://static4.abbyy.com/abbyycommedia/14358/8-banking-and-finance.jpg)](https://tools.techidaily.com/abbyy/products/) [Banking and Finance](https://tools.techidaily.com/abbyy/products/) 
+
+[read more](https://tools.techidaily.com/abbyy/products/) 
+
 [![PDF Version](https://static2.abbyy.com/abbyycommedia/15029/dbs-pic2.jpg)](https://static4.abbyy.com/abbyycommedia/15027/case-study-dbs-bank-en.pdf "PDF version") [PDF version](https://static4.abbyy.com/abbyycommedia/15027/case-study-dbs-bank-en.pdf "PDF version") 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [read more](https://static4.abbyy.com/abbyycommedia/15027/case-study-dbs-bank-en.pdf "PDF version") 
 
@@ -119,13 +132,6 @@ On-the-go loan application based on ABBYY Mobile OCR Engine\* simplifies and enh
 ###### Like, share or repost
 
 Share  True ?  : "" 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -148,21 +154,22 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-unveiling-6-premium-background-erasers-for-photo-professionals/"><u>[New] In 2024, Unveiling 6 Premium Background Erasers for Photo Professionals</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-your-path-to-youtube-earnings-setting-up-and-selling-content/"><u>[New] Your Path to YouTube Earnings Setting Up and Selling Content</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-stardews-ultimate-enhancements-ranked-the-seven-best-mods/"><u>[Updated] 2024 Approved Stardew's Ultimate Enhancements Ranked The Seven Best Mods</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-elevate-your-visuals-music-integration-for-vimeo-films-for-2024/"><u>[Updated] Elevate Your Visuals Music Integration for Vimeo Films for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-live-photography-to-continuous-visual-storytelling/"><u>2024 Approved Live Photography to Continuous Visual Storytelling</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-the-dreaded-diablo-ncrashing-problem-what-you-need-to-know/"><u>Fixing the Dreaded Diablo nCrashing Problem - What You Need to Know</u></a></li>
-<li><a href="https://driver-download.techidaily.com/open-itunes-on-your-computer-go-to-help-)-check-for-updates-for-windows-or-app-store-)-updates-for-macos-if-an-update-is-available-install-it-and-restart-th168/"><u>Open iTunes on Your Computer, Go to Help > Check for Updates (for Windows) or App Store > Updates (for macOS). If an Update Is Available, Install It and Restart the Application Afterward</u></a></li>
-<li><a href="https://location-fake.techidaily.com/resolving-the-starfield-high-cpu-drain-ultimate-guide-and-tricks/"><u>Resolving the Starfield High CPU Drain: Ultimate Guide & Tricks</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/rparpaabbyy/"><u>RPA技術の先駆者：日商エレ、RPAテクノロジーズ、ABBYYジャパンの新たな提携</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/significant-financial-boost-abbyy-records-a-25-surge-in-revenue-during-2017/"><u>Significant Financial Boost: ABBYY Records a 25% Surge in Revenue During 2017</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/streamline-client-onboarding-for-increased-devotion-to-your-financial-firm/"><u>Streamline Client Onboarding for Increased Devotion to Your Financial Firm</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/telefonicas-dsl-gesuche-nutzen-abbyy-formreader-schnellere-breitbandverbindungen-bevorstehen/"><u>Telefonicas DSL-Gesuche Nutzen ABBYY FormReader - Schnellere Breitbandverbindungen Bevorstehen</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-asus-rog-gt-ac5300-a-match-made-in-tech-heaven-for-gamers-and-experts/"><u>The Definitive Guide to Asus ROG GT-AC5300 - A Match Made in Tech Heaven for Gamers and Experts</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/unlock-enhanced-online-performance-with-our-secret-sauce-cookiebot-technology/"><u>Unlock Enhanced Online Performance with Our Secret Sauce - Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/unlocking-efficiency-in-purchase-to-pay-processes-strategies-for-success/"><u>Unlocking Efficiency in Purchase-to-Pay Processes: Strategies for Success</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/unlocking-website-potential-with-cookiebot-technology/"><u>Unlocking Website Potential with Cookiebot Technology</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-channel-transformation-from-zero-to-thousand-followers-for-2024/"><u>[New] Channel Transformation From Zero to Thousand Followers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-hypergame-hub-your-portal-to-infinite-titles-for-2024/"><u>[Updated] HyperGame Hub Your Portal to Infinite Titles for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtube-engagement-optimal-video-formats-guide/"><u>[Updated] Mastering YouTube Engagement Optimal Video Formats Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-online-media-crafter-for-2024/"><u>[Updated] Online Media Crafter for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mpegmjpeg-movavi/"><u>簡單移行：在不付錢的情況下改變MPEG成MJPEG - 以Movavi為主要功能</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-dominates-gartners-magic-quadrant-with-top-spot-in-process-mining-tools/"><u>ABBYY Dominates Gartner's Magic Quadrant with Top Spot in Process Mining Tools</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-legal-evolution-empowering-law-firms-with-digitization-and-process-automation/"><u>ABBYY Legal Evolution - Empowering Law Firms with Digitization & Process Automation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-mobile-web-capture-sdk-innovatives-losungsangebot-fur-eine-optimierte-einarbeitung-auf-mobilen-endgeraten/"><u>Abbyy Mobile Web Capture SDK: Innovatives Lösungsangebot Für Eine Optimierte Einarbeitung Auf Mobilen Endgeräten</u></a></li>
+<li><a href="https://win-blog.techidaily.com/conversor-online-libre-para-transformar-flv-en-mkv-con-movavi-sin-costes-ni-limitaciones/"><u>Conversor Online Libre Para Transformar FLV en MKV Con Movavi: Sin Costes Ni Limitaciones</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724313688388-cookiebot-driven-marketing-automation-solutions/"><u>Cookiebot-Driven Marketing Automation Solutions</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/dell-vs-aomei-backupper-elige-la-herramienta-mas-eficiente-para-tu-migracion-de-datos/"><u>Dell Vs. AOMEI Backupper: Elige La Herramienta Más Eficiente Para Tu Migración De Datos</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-the-cod-wwii-issue-understanding-and-overcoming-error-code-4128/"><u>Fixing the COD WWII Issue - Understanding and Overcoming Error Code ^4128</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-converter-from-rw2-to-jpeg-easy-by-movavi/"><u>Free Online Converter From RW2 to JPEG - Easy by Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gratuit-gebaseerd-converter-speelfriest-ogg-bestanden-in-animated-gif/"><u>Gratuit Gebaseerd Converter: Speelfriest Ogg-Bestanden in Animated Gif</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/online-raw-to-jpg-transformation-for-free-with-movavi-photo-editor/"><u>Online RAW-to-JPG Transformation for Free with Movavi Photo Editor</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722973050227-simple-and-speedy-installation-of-the-validity-fingerprint-sensor-driver-click-to-download-today/"><u>Simple and Speedy Installation of the Validity Fingerprint Sensor Driver - Click to Download Today</u></a></li>
+<li><a href="https://win-answers.techidaily.com/soaring-above-the-trouble-get-your-microsoft-flight-simulator-2020-running-smoothly-again/"><u>Soaring Above the Trouble: Get Your Microsoft Flight Simulator 2020 Running Smoothly Again</u></a></li>
 </ul></div>
 

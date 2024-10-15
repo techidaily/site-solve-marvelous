@@ -1,7 +1,7 @@
 ---
 title: "L'Evolution Rapide Des Relations Bancarières: Comment La Crise Enfonce Le Clavier"
-date: 2024-10-01T18:29:58.999Z
-updated: 2024-10-08T19:27:28.580Z
+date: 2024-10-09T16:04:15.479Z
+updated: 2024-10-14T23:20:50.411Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9fb33bd6bba9695ce8ba1da0e2a2f8b35a76e62cf2e1d56812a41fc12ff7dc0c.jpg
@@ -15,31 +15,11 @@ thumbnail: https://thmb.techidaily.com/9fb33bd6bba9695ce8ba1da0e2a2f8b35a76e62cf
 
 French
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Intervenants
 
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25121/logo-2021-90x27.svg) 
 
 ![04 Lindaameur 198X198](https://static4.abbyy.com/abbyycommedia/25106/04-lindaameur-198x198.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Linda Ameur
 
@@ -47,20 +27,33 @@ Directrice Commerciale, **ABBYY**
 
 ![12 Hugueslebret 198X198](https://static4.abbyy.com/abbyycommedia/35537/comptenickel-logo-forspeakers-124x42.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![12 Hugueslebret 198X198](https://static4.abbyy.com/abbyycommedia/25475/12-hugueslebret-198x198.png)
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Hugues Le Bret
 
 Fondateur et Président du Comité de Surveillance, **Nickel**
 
 ![61 Pejmangohari 198X198](https://static4.abbyy.com/abbyycommedia/30425/61-pejmangohari-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ###  Pejman Gohari
 
@@ -69,10 +62,10 @@ Chief Data Officer, **Bpifrance**
 ![62 Nouamanecherkaoui 198X198](https://static1.abbyy.com/abbyycommedia/30427/62-nouamanecherkaoui-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Nouamane Cherkaoui
@@ -82,6 +75,13 @@ CIO/Directeur des Systèmes d’information, **Franfinance Fap**
 ![63 Barrerejean 198X198](https://static5.abbyy.com/abbyycommedia/35562/pwc-logo-forspeakers-65x50.png) 
 
 ![63 Barrerejean 198X198](https://static4.abbyy.com/abbyycommedia/30428/63-barrerejean-198x198.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Jean Barrère
 
@@ -98,6 +98,13 @@ Cette table ronde, animée par Jean Barrère, Associé Data Intelligence chez Pw
 * **Nouamane Cherkaoui**, CIO/Directeur des Systèmes d’information, Franfinance Fap
 * **Linda Ameur**, Directrice Commerciale ABBYY France
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Ces experts ont partagé leur avis sur les sujets prégnants du secteur bancaire et nous ont donné la possibilité de discuter sur :
 
 Par la suite nous avons montré différents cas clients ainsi qu’une démonstration afin de vous familiariser avec la Digital Intelligence. Nous avons montré comment elle permet d’automatiser les processus ainsi que d’obtenir une visibilité des données de votre Supply Chain à partir des sources numériques et physiques.
@@ -107,14 +114,14 @@ Par la suite nous avons montré différents cas clients ainsi qu’une démonstr
 * La crise et son impact sur les comportements, la relation client ainsi que les modes de travail : les solutions mobiles pour la nouvelle réalité post COVID ?
 * Neobanques vs. banques traditionnelles : quels rôles jouent-elles pendant la crise et y-aura-t-il un modèle gagnant ?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Regardez maintenant
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Get in touch with us
 
@@ -126,20 +133,13 @@ All personal information collected via this method is under full scope of all pr
 [![La crise, un accélérateur de la transformation de la relation bancaire](https://static2.abbyy.com/abbyycommedia/31563/placeholder-general.png)](https://www.youtube.com/watch?v=635kW4PveOI) 
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Vous avez des questions ? [Contactez ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -206,18 +206,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-tailor-made-viewing-pace-on-youtube-at-your-fingertips/"><u>[New] 2024 Approved Tailor-Made Viewing Pace on YouTube at Your Fingertips</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-comprehensive-guide-to-youtubes-subscription-advantages/"><u>[Updated] In 2024, Comprehensive Guide to YouTube's Subscription Advantages</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mpegmjpeg-movavi/"><u>簡單移行：在不付錢的情況下改變MPEG成MJPEG - 以Movavi為主要功能</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-dominates-gartners-magic-quadrant-with-top-spot-in-process-mining-tools/"><u>ABBYY Dominates Gartner's Magic Quadrant with Top Spot in Process Mining Tools</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1724313688388-cookiebot-driven-marketing-automation-solutions/"><u>Cookiebot-Driven Marketing Automation Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-online-converter-from-rw2-to-jpeg-easy-by-movavi/"><u>Free Online Converter From RW2 to JPEG - Easy by Movavi</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/from-mono-to-vivid-blades-transformation-into-the-4k-era-for-2024/"><u>From Mono to Vivid Blade's Transformation Into the 4K Era for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratuit-gebaseerd-converter-speelfriest-ogg-bestanden-in-animated-gif/"><u>Gratuit Gebaseerd Converter: Speelfriest Ogg-Bestanden in Animated Gif</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/hassle-free-setup-for-chatgpt-users-on-linux-platforms/"><u>Hassle-Free Setup for ChatGPT Users on Linux Platforms</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-raw-to-jpg-transformation-for-free-with-movavi-photo-editor/"><u>Online RAW-to-JPG Transformation for Free with Movavi Photo Editor</u></a></li>
-<li><a href="https://facebook.techidaily.com/quiet-content-creation-masking-posts-via-archive-feature/"><u>Quiet Content Creation: Masking Posts via Archive Feature</u></a></li>
-<li><a href="https://article-helps.techidaily.com/smart-image-management-adjusting-iphone-photo-sizes/"><u>Smart Image Management Adjusting iPhone Photo Sizes</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/ultimate-troubleshooting-guide-solving-your-cs-go-launch-problems/"><u>Ultimate Troubleshooting Guide: Solving Your CS: GO Launch Problems</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-achieve-sharpness-camera-tips-without-a-tripod/"><u>[New] In 2024, Achieve Sharpness Camera Tips Without a Tripod</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/1728482494585-d/"><u>關於快速展示消失的D槽和保存資料，有何建議？</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/cod-vanguard-pc-launch-issues-fixed-update/"><u>CoD Vanguard PC Launch Issues Fixed Update</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-automation-for-enhanced-website-analytics/"><u>Cookiebot-Driven Automation for Enhanced Website Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-personalization-for-enhanced-user-experience/"><u>Cookiebot-Enabled Personalization for Enhanced User Experience</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-personalization-enhance-user-experience-with-dynamic-content/"><u>Cookiebot-Enabled Personalization: Enhance User Experience with Dynamic Content</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-websites-visitor-tracking-experience/"><u>Cookiebot-Enabled: Enhancing Your Website's Visitor Tracking Experience</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhanced-experience-tailored-web-personalization/"><u>Cookiebot-Enhanced: Experience Tailored Web Personalization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/customized-user-journeys-with-the-efficient-tracking-of-cookiebot-technology/"><u>Customized User Journeys with the Efficient Tracking of Cookiebot Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-meta-facebooks-leap-into-the-next-social-frontier/"><u>Embracing 'Meta': Facebook’s Leap Into the Next Social Frontier</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/free-entry-into-the-world-of-advanced-ai-your-guide-to-using-gpt-4-for-free-with-these-5-tactics/"><u>Free Entry Into the World of Advanced AI: Your Guide to Using GPT-4 for Free with These 5 Tactics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-assessing-luminance-for-hd-raises-questions/"><u>In 2024, Assessing Luminance for HD Raises Questions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/innovating-quickly-2-approaches-to-making-snapchat-filters/"><u>Innovating Quickly 2 Approaches to Making Snapchat Filters</u></a></li>
+<li><a href="https://driver-download.techidaily.com/new-release-dolby-sound-enhancement-drivers-for-windows-11-10-and-81/"><u>New Release: Dolby Sound Enhancement Drivers for Windows 11, 10, and 8.1</u></a></li>
 </ul></div>
 

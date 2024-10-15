@@ -1,7 +1,7 @@
 ---
 title: "Introducing Our Latest Innovations: Digital Cookbook Solutions & Image Transformation - Explore the ABBYY Universe"
-date: 2024-10-01T16:33:45.237Z
-updated: 2024-10-08T16:53:37.292Z
+date: 2024-10-08T20:14:20.640Z
+updated: 2024-10-14T18:15:24.161Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0354f8e14674fab0ca20c7e6ac5698288d836a49349ce493fef240aa54251dca.jpg
@@ -48,25 +48,32 @@ To take a glimpse into the past, you need to first open Google Play. Then, tap t
 ![google play download history](https://static1.abbyy.com/abbyycommedia/26738/gplay1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You will see a list of all the apps that have been installed on any phone using your Google account. If an app has since been deleted, you can reinstall it, provided it is still available on Google Play. You can choose to view the list either in chronological or in alphabetical order.
 
 ![library in google play](https://static1.abbyy.com/abbyycommedia/26739/gplay2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This download history will be useful for those who are looking to find an app that they have deleted and now cannot remember the name of.
 
 **What was your first ever app? Do you still use it today? Share your answer in the comments below** 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **ABBYY Tip: FineScanner as a Culinary Assistant**
@@ -77,18 +84,24 @@ One of our customers has shared his experience with using [FineScanner](http://q
 
 Read the customer’s full review [here](https://appfollow.io/app/1363/review/19707474?s=abbyy&utm%5Fsource=reviews&utm%5Fmedium=slack&utm%5Fcampaign=permalink).
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **App of the Week: Enlight Pixaloop**
 
 Have you ever seen a static image modified to look like an animated GIF file? Photos where one or several elements have been animated are called cinemagraphs. For example, you can have drifting clouds or splashing waves on an otherwise static photo of a scenic beach.
 
 ![pixaloop](https://static1.abbyy.com/abbyycommedia/26625/app1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Cinemagraphs can be created using [Enlight Pixaloop](https://www.pixaloopapp.com/). No specialized photo editing skills are required: the app will do just about everything for you. The only thing you need to do is use markers and arrows to set a movement direction for the object you want to animate. In the photo above, for example, we have animated the model’s hair.
 
@@ -101,13 +114,6 @@ That’s all, folks! See you next time!
 P.S. You can find the previous issue of this newsletter [here](https://tools.techidaily.com/abbyy/products/).
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -173,20 +179,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/updated-streamlining-tiktok-production-zooms-role/"><u>[Updated] Streamlining TikTok Production Zoom's Role</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-top-6-networks-fueling-business-innovation-and-growth/"><u>[Updated] Top 6 Networks Fueling Business Innovation and Growth</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-prime-20-laugh-inducing-prison-jail-memes-to-elevate-social-media-experience/"><u>2024 Approved Prime 20 Laugh-Inducing Prison Jail Memes to Elevate Social Media Experience</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-honor-magic-5-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-convertir-video-ts-a-formato-mp4-de-forma-gratuita-online-con-movavi/"><u>Cómo Convertir Video TS a Formato MP4 De Forma Gratuita Online Con Movavi</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/facing-the-future-the-potential-increase-in-security-challenges-posed-by-generative-ai/"><u>Facing the Future: The Potential Increase in Security Challenges Posed by Generative AI</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-online-converter-convert-wav-and-mp4-files-to-mkv-without-charge/"><u>Free Online Converter: Convert WAV & MP4 Files to MKV without Charge</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-on-apple-iphone-15-by-drfone-ios/"><u>How to Fix Locked Apple ID on Apple iPhone 15</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mettre-en-forme-votre-fichier-audio-aiff-en-format-video-mp4-gratuitement-via-le-site-web-de-movavi/"><u>Mettre en Forme Votre Fichier Audio AIFF en Format Vidéo MP4 Gratuitement via Le Site Web De Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/movavis-no-cost-tool-for-transforming-gsm-recordings-into-mp3-tracks-try-it-today/"><u>Movavi's No-Cost Tool for Transforming GSM Recordings Into MP3 Tracks - Try It Today!</u></a></li>
-<li><a href="https://driver-error.techidaily.com/1721100336750-no-more-waiting-wacom-devices-now-talking/"><u>No More Waiting: Wacom Devices Now Talking</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-gratis-3gpp-in-videomov-formate-konverteren-expertise-mooviverseerbaar/"><u>Online Gratis 3GPP in Videomov Formate Konverteren - Expertise MooviVerseerbaar</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/streamlining-roblox-games-on-mac-for-recording-for-2024/"><u>Streamlining Roblox Games on Mac for Recording for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/the-ultimate-guide-to-optimizing-with-leading-seo-programs-for-tracking-living-links-percentage/"><u>The Ultimate Guide to Optimizing with Leading SEO Programs for Tracking Living Links Percentage</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/veiling-uw-skype-gesprek-efficient-en-gemakkelijk-onderdelen-informatieverwerkende-voertuigen/"><u>Veiling Uw Skype Gesprek - Efficiënt en Gemakkelijk Onderdelen Informatieverwerkende Voertuigen</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-how-to-zoom-inout-in-instagram-stories/"><u>[New] How to Zoom In/Out in Instagram Stories</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-enhancing-webcam-gaming-experience-and-quality-for-2024/"><u>[Updated] Enhancing WebCam Gaming Experience & Quality for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1-iphone-xs-and-x-comparative-review-with-enhanced-scanning-features-on-the-abbeyy-blog/"><u>1. IPhone Xs & X: Comparative Review with Enhanced Scanning Features on the ABBEYY Blog</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-xiaomi-redmi-k70-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-penny-pinching-picks-microphones-under-50/"><u>2024 Approved Penny-Pinching Picks Microphones Under $50</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-picture-perfect-pairings-expert-comparison-of-top-8k-televisions/"><u>2024 Approved Picture Perfect Pairings Expert Comparison of Top 8K Televisions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-itel-s23plus-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Itel S23+ PC | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/best-solutions-for-oppo-network-unlock-by-drfone-android/"><u>Best Solutions for Oppo Network Unlock</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oneplus-11r-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from OnePlus 11R to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/moving-from-twitter-to-tweeters/"><u>Moving From Twitter to Tweeters</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/understanding-the-distinctions-between-process-intelligence-and-bi-techniques-for-strategic-decision-making/"><u>Understanding the Distinctions Between Process Intelligence and BI Techniques for Strategic Decision-Making</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlocking-features-of-finescanner-in-ios-12-expert-insights-from-the-abbyy-community/"><u>Unlocking Features of FineScanner in iOS 12 - Expert Insights From the ABBYY Community</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/utilizing-cookiebot-technology-for-improved-online-engagement-analysis/"><u>Utilizing Cookiebot Technology for Improved Online Engagement Analysis</u></a></li>
 </ul></div>
 

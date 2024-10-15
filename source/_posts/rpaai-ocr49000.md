@@ -1,7 +1,7 @@
 ---
 title: RPAと融合したAI OCRテクノロジーで、年間約4万9000時間を省き業務効率革新
-date: 2024-10-06T19:17:41.273Z
-updated: 2024-10-08T16:11:56.469Z
+date: 2024-10-08T18:35:13.833Z
+updated: 2024-10-14T16:47:32.960Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/255abe49d787e06c0ed6c6f504e1d68fdfd70d2804f8cd2447f9f7cced35cd22.jpg
@@ -21,10 +21,16 @@ Oil & Gas | Document Management
 [お客様のストーリーに戻る](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## AI OCRを使うことで、紙帳票の業務効率化にも寄与   
@@ -37,6 +43,13 @@ Oil & Gas | Document Management
 #### お客様の概要
 
 ![伊藤忠商事株式会社](https://static2.abbyy.com/abbyycommedia/35788/itochu-183x75.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | 氏名     | 伊藤忠商事株式会社                      |
 | ------ | ------------------------------ |
@@ -120,40 +133,33 @@ DXの必要性が謳われ、多くの企業がDXに取り組んでいるが、�
 
 [![ABBYY FlexiCapture](https://static4.abbyy.com/abbyycommedia/35820/flexicapture_360x162_v2.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![ABBYY Vantage](https://static4.abbyy.com/abbyycommedia/35822/vantage_360x162_v2.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [詳細を読む](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF版](https://static2.abbyy.com/abbyycommedia/35786/itochu-360x162.png)](https://static3.abbyy.com/abbyycommedia/35787/customer-story-itochu-ja.pdf "PDF版") [PDF版](https://static3.abbyy.com/abbyycommedia/35787/customer-story-itochu-ja.pdf "PDF版") 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [詳細を読む](https://static3.abbyy.com/abbyycommedia/35787/customer-story-itochu-ja.pdf "PDF版") 
 
 [ABBYYについて](https://tools.techidaily.com/abbyy/products/) 
 
 [お問い合わせ](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 専門家に相談する準備はできていますか?
 
@@ -176,14 +182,22 @@ DXの必要性が謳われ、多くの企業がDXに取り組んでいるが、�
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-quieting-audio-fades-in-ableton-live/"><u>[New] Quieting Audio Fades in Ableton Live</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-step-by-step-tips-for-turning-gopro-into-professionals-best-work/"><u>[New] Step-by-Step Tips for Turning GoPro Into Professionals' Best Work</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-rectify-faux-face-display-on-social-network-engagements/"><u>[Updated] 2024 Approved Rectify Faux Face Display on Social Network Engagements</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-how-to-create-animated-bouncing-text/"><u>[Updated] In 2024, How to Create Animated Bouncing Text</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/internal-recorder-usage-for-capturing-screens-on-mate-series-and-p-series-mate-1020-p2010-for-2024/"><u>Internal Recorder Usage for Capturing Screens on Mate Series & P Series (Mate 10/20; P20/10) for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/sysbus-verstarkung-der-digitalen-fahigkeiten-ihrer-teammitglieder/"><u>Sysbus - Verstärkung Der Digitalen Fähigkeiten Ihrer Teammitglieder</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/the-limits-of-identity-checks-in-fraud-prevention-a-deeper-look-into-effective-strategies/"><u>The Limits of Identity Checks in Fraud Prevention - A Deeper Look Into Effective Strategies</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transforming-insurance-claims-handling-with-cognitive-scanning-success-stories-from-leading-companies/"><u>Transforming Insurance Claims Handling with Cognitive Scanning - Success Stories From Leading Companies</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transforming-the-future-of-automated-efficiency-a-look-at-the-successful-alliance-between-abbyy-and-uipath/"><u>Transforming the Future of Automated Efficiency: A Look at the Successful Alliance Between ABBYY and UiPath</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-free-to-paid-subscriber-count-surpasses-500/"><u>[New] 2024 Approved From Free to Paid Subscriber Count Surpasses 500</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-effortless-video-capturing-on-win11-os-for-2024/"><u>[New] Effortless Video Capturing on Win11 OS for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-creating-a-viral-traction-with-6-strategic-steps-in-youtube-marketing/"><u>[Updated] 2024 Approved Creating a Viral Traction with 6 Strategic Steps in YouTube Marketing</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-make-a-flv-photo-slideshow/"><u>2024 Approved How to Make a FLV Photo Slideshow</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016308149-audio-malfunctioning-on-pc-effortless-fixes-inside/"><u>Audio Malfunctioning on PC? Effortless Fixes Inside!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/boosting-online-engagement-with-advanced-cookiebot-technology/"><u>Boosting Online Engagement with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cliche-de-la-reussite-decouvrez-les-cinq-moments-cles-vers-le-numerisme-chez-abbyy/"><u>Cliché De La Réussite: Découvrez Les Cinq Moments Clés Vers Le Numérisme Chez ABBYY!</u></a></li>
+<li><a href="https://win-bits.techidaily.com/come-crittografare-i-tuoi-file-di-immagini-con-aomei-backupper-pro-per-un-backup-sicuro/"><u>Come Crittografare I Tuoi File Di Immagini Con AOMEI Backupper Pro per Un Backup Sicuro</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/comparaison-du-serieux-des-differents-domaines-selon-abbyy-quel-domaine-est-le-plus-rigoureux/"><u>Comparaison Du Sérieux Des Différents Domaines Selon ABBYY : Quel Domaine Est Le Plus Rigoureux ?</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-automation-streamline-your-marketing-campaigns/"><u>Cookiebot-Driven Automation: Streamline Your Marketing Campaigns</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-customization-enhance-your-websites-personalization/"><u>Cookiebot-Driven Customization: Enhance Your Website's Personalization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-solutions-optimize-your-websites-performance/"><u>Cookiebot-Driven Solutions: Optimize Your Website's Performance</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-success-enhance-your-site-with-smart-tracking/"><u>Cookiebot-Driven Success: Enhance Your Site with Smart Tracking</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-website-personalization-enhance-user-engagement/"><u>Cookiebot-Driven Website Personalization: Enhance User Engagement</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/guide-to-top-8-linux-screenshot-solutions/"><u>Guide to Top 8 Linux Screenshot Solutions</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-oneplus-nord-n30-se-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on OnePlus Nord N30 SE</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-ultimate-toolkit-for-srt-format-mastery/"><u>The Ultimate Toolkit for SRT Format Mastery</u></a></li>
 </ul></div>
 

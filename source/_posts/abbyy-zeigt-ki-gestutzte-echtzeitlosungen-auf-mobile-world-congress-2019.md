@@ -1,7 +1,7 @@
 ---
 title: ABBYY Zeigt KI-Gestützte Echtzeitlösungen Auf Mobile World Congress 2019
-date: 2024-10-03T19:15:44.612Z
-updated: 2024-10-08T19:36:32.133Z
+date: 2024-10-13T23:43:03.326Z
+updated: 2024-10-14T23:18:24.216Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ae200a2185b5d6e93408c97ace7b66b8254fa867626e84f986d0cc30e800ea8d.jpg
@@ -82,25 +82,27 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-top-20-cheerful-facebook-incarceration-gems-for-a-happy-mood-enhancement/"><u>[New] 2024 Approved Top 20 Cheerful Facebook Incarceration Gems for a Happy Mood Enhancement</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-deciphering-the-language-of-haptic-interaction-for-2024/"><u>[Updated] Deciphering the Language of Haptic Interaction for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gsmmp4movavi/"><u>在线无需付钱：自动转换GSM视频为MP4，使用Movavi解决方案</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-online-swf-to-mkv-converter-movavi-video-editor/"><u>Free Online Swf to Mkv Converter - Movavi Video Editor</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-effortless-screenshots-on-dell-the-simple-way-to-capture/"><u>In 2024, Effortless Screenshots on Dell - The Simple Way to Capture</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-google-pixel-8-pro-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Google Pixel 8 Pro Bootloader Easily</u></a></li>
-<li><a href="https://win-answers.techidaily.com/naraka-bloodlotus-stability-enhanced-fixes-applied-successfully/"><u>Naraka: Bloodlotus - Stability Enhanced | Fixes Applied Successfully</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/step-by-step-guide-recording-your-screen-with-ease-using-movavi/"><u>Step-by-Step Guide: Recording Your Screen with Ease Using Movavi</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/the-basics-for-transforming-full-size-photos-into-efficient-thumbnails/"><u>The Basics for Transforming Full-Size Photos Into Efficient Thumbnails</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-12-outils-danimation-open-source-en-2024-solutions-de-modelisation-et-animation-3d/"><u>Top 12 Outils D'Animation Open Source en 2024 - Solutions De Modélisation Et Animation 3D</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transform-your-3gp-videos-into-webm-with-ease-using-movavis-cost-free-tool/"><u>Transform Your 3GP Videos Into WebM with Ease Using Movavi’s Cost-Free Tool</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-best-facebook-home-assistants/"><u>Unveiling the Best Facebook Home Assistants</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-unleash-your-creativity-top-10-free-and-paid-android-video-editing-apps/"><u>Updated 2024 Approved Unleash Your Creativity Top 10 Free and Paid Android Video Editing Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-boosting-earnings-in-cosmetic-videography-for-2024/"><u>[New] Boosting Earnings in Cosmetic Videography for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nhancing-youtube-viewing-experience-with-right-video-formats-for-2024/"><u>[New] Enhancing YouTube Viewing Experience with Right Video Formats for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724312994221-abbyy/"><u>「ABBYYによる国際調査:ドキュメント内容情報取得技術の最新研究結果」</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-dominates-the-2024-evalgroups-peak-matrix-benchmark/"><u>ABBYY Dominates the 2024 EvalGroup's PEAK Matrix Benchmark</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-japan-sb/"><u>ABBYY Japan ソフトウェア投入に合わせて SBモバイルサービスが新規事業を展開 - プレスリリース</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/achieve-better-engagement-with-websites-optimized-using-the-cookiebot-platform/"><u>Achieve Better Engagement with Websites Optimized Using the Cookiebot Platform</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/comprehensive-guide-fresh-windows-graphics-driver-installation-steps/"><u>Comprehensive Guide: Fresh Windows Graphics Driver Installation Steps</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-pro-max-to-androidios-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 Pro Max To Android/iOS? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-sifting-through-social-media-stars-targeting-your-specific-interests/"><u>In 2024, Sifting Through Social Media Stars Targeting Your Specific Interests</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-on-apple-iphone-13-pro-max-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID On Apple iPhone 13 Pro Max Making It Possible</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/reconnecting-brothers-print-to-end-offline-status-woes/"><u>Reconnecting Brothers Print to End Offline Status Woes</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-5-benefits-of-embracing-process-intelligence-in-your-business/"><u>Top 5 Benefits of Embracing Process Intelligence in Your Business</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/warum-unternehmen-content-kenntnis-erwerben-mussen-um-die-entwicklung-der-intelligenten-prozessautomation-voranzutreiben-eine-abbyy-langzeitstudie-versteht-17/"><u>Warum Unternehmen Content-Kenntnis Erwerben Müssen, Um Die Entwicklung Der Intelligenten Prozessautomation Voranzutreiben – Eine ABBYY-Langzeitstudie Versteht Es</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/what-is-process-mining-and-why-use-it-a-comprehensive-guide/"><u>What Is Process Mining and Why Use It: A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/windows-server-2022c/"><u>Windows Server 2022のCドライブ容量増加手順</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

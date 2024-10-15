@@ -1,7 +1,7 @@
 ---
 title: Navigating New Horizons in Talent Acquisition with Artificial Intelligence in HR.
-date: 2024-10-04T19:42:41.550Z
-updated: 2024-10-08T16:35:49.996Z
+date: 2024-10-12T01:16:41.395Z
+updated: 2024-10-14T22:14:24.738Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f353031385ec13b27002aeb25b2433c7b7f2839e202aee43a31b71787185171a.jpg
@@ -116,10 +116,10 @@ The leader in AI-based intelligent document processing and process mining techno
 [![For Video](https://static1.abbyy.com/abbyycommedia/32356/for-video.jpg)](https://www.youtube.com/watch?v=OUr3jexLu7M) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What the analysts say
@@ -128,11 +128,32 @@ The leader in AI-based intelligent document processing and process mining techno
 
 ![11 01 23 Vertical Isg Report 2022](https://static1.abbyy.com/abbyycommedia/36781/11-01-23-vertical-isg-report-2022.png)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ABBYY Named 2022 Leader of IDP in the ISG Provider Lens™ Intelligent Automation – Solutions and Services Report
 
 [Check out the report](https://tools.techidaily.com/abbyy/products/) 
 
 ![11 01 23 Vertical Spark Quadrant Knowlege Solutions](https://static3.abbyy.com/abbyycommedia/36496/11-01-23-vertical-spark-quadrant-knowlege-solutions.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### ABBYY Named 2022 Leader of IDP in the Quadrant Knowledge Solutions SPARK Matrix
 
@@ -140,25 +161,11 @@ The leader in AI-based intelligent document processing and process mining techno
 
 ![136 Nelsonhall 2021 EN 262X340](https://static1.abbyy.com/abbyycommedia/34917/136-nelsonhall-2021-en-262x340.png)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### NelsonHall Names ABBYY a Leader in 2021 Process Discovery & Mining NEAT Assessment
 
 [Check out the report](https://tools.techidaily.com/abbyy/products/) 
 
 ![11 01 23 Vertical Isg Report 2022](https://static1.abbyy.com/abbyycommedia/36781/11-01-23-vertical-isg-report-2022.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### ABBYY Named a Leader of Process Mining in the 2022 ISG Provider Lens™ Intelligent Automation – Solutions and Services Report
 
@@ -174,23 +181,9 @@ See what ABBYY smart technologies can do for your industry:
 
 [![01B Financialservices](https://static4.abbyy.com/abbyycommedia/31315/01b-financialservices.jpg) Financial Services](https://www.abbyy.com/solutions/financial-services/ "Financial Services")[![03B Insurance](https://static2.abbyy.com/abbyycommedia/31317/03b-insurance.jpg) Insurance](https://www.abbyy.com/solutions/insurance/ "Insurance") 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![04B Healthcare](https://static2.abbyy.com/abbyycommedia/31316/04b-healthcare.jpg) Healthcare](https://tools.techidaily.com/abbyy/products/) 
 
 [![02B Transportationandlogistics](https://static1.abbyy.com/abbyycommedia/31318/02b-transportationandlogistics.jpg) Transportation & Logistics](https://www.abbyy.com/solutions/transportation/ "Transportation & Logistics") 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Government](https://tools.techidaily.com/abbyy/products/) 
 
@@ -214,9 +207,23 @@ See what ABBYY smart technologies can do for your industry:
 
 [All stories](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ABBYY selected by Costain as part of its Finance Digitization Strategy
 
 ![Costain Croup PLC](https://static5.abbyy.com/abbyycommedia/31198/costain.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Costain Group PLC
 
@@ -238,10 +245,17 @@ Paragon Customer
 ![Paragon Customer Communications Limited](https://static3.abbyy.com/abbyycommedia/31428/02b-case-2-paragon-image.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY selected by Paragon Customer Communications to drive digital transformation
@@ -279,19 +293,6 @@ Document Processing
 
 ### What’s trending?
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Intelligent Process Automation
 
 More companies are saving millions of dollars by turning to Intelligent Process Automation to identify opportunities for automation and work smarter and faster. ABBYY Intelligent Process Automation combines process mining with Intelligent Document Processing to help you transform enterprise data and get the insights you need to improve process efficiency and effectiveness.
@@ -301,19 +302,6 @@ More companies are saving millions of dollars by turning to Intelligent Process 
 ![14904 Main Banner458x342](https://static3.abbyy.com/abbyycommedia/35837/14904-main-banner458x342.png) 
 
 ![What’s trending?](https://static1.abbyy.com/abbyycommedia/35824/05-homepage-2022-whatstrending.jpg) 
-
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Intelligent Document Processing
 
@@ -364,22 +352,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-the-ultimate-strategy-for-selecting-a-premium-stream-service/"><u>[New] The Ultimate Strategy for Selecting a Premium Stream Service</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-ultimate-collection-10-excellent-photo-background-alternators-for-2024/"><u>[New] Ultimate Collection 10 Excellent Photo-Background Alternators for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-collect-priceless-imagery-from-trusted-4-youtube-directories/"><u>[Updated] In 2024, Collect Priceless Imagery From Trusted 4 YouTube Directories</u></a></li>
-<li><a href="https://games-able.techidaily.com/delving-into-ryujinxs-controller-integration-a-compreenasory-tutorial/"><u>Delving Into Ryujinx's Controller Integration: A Compreenasory Tutorial</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-latest-version-of-epson-xp-420-drivers-here/"><u>Get the Latest Version of Epson XP-420 Drivers Here!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratis-dng-to-jpg-converteren-via-internet-zoekplaats-voor-professioneel-richtingingskunst/"><u>Gratis DNG-to-JPG Converteren via Internet - Zoekplaats Voor Professioneel Richtingingskunst</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-zte-blade-a73-5g-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from ZTE Blade A73 5G to New Android? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mastering-the-idp-peak-matrix-2023-abbyy-rises-as-everest-group-leader/"><u>Mastering the IDP Peak Matrix 2023: ABBYY Rises as Everest Group Leader</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/no-more-freezes-winning-against-arma-3s-crashing-problems-with-these-2024-strategies/"><u>No More Freezes: Winning Against Arma 3'S Crashing Problems with These 2024 Strategies</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/personalized-engagement-with-our-services-powered-by-the-advanced-technology-of-cookiebot/"><u>Personalized Engagement with Our Services, Powered by the Advanced Technology of Cookiebot</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/protection-renforcee-pour-votre-gestion-documentaire-grace-a-tangro-avec-technologie-abbyy/"><u>Protection Renforcée Pour Votre Gestion Documentaire Grâce À Tangro® Avec Technologie ABBYY</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-efficiency-unlocking-the-power-of-automation-for-uk-companpsies-findings-by-abbyy-analysis/"><u>Revolutionizing Efficiency: Unlocking the Power of Automation for UK Companpsies - Findings by ABBYY Analysis</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/showcasing-intuitive-ai-solutions-for-enhanced-accounts-payable-efficiency/"><u>Showcasing Intuitive AI Solutions for Enhanced Accounts Payable Efficiency</u></a></li>
-<li><a href="https://article-tips.techidaily.com/spectacular-selects-ideal-laptops-mastering-4k-editing-for-2024/"><u>Spectacular Selects Ideal Laptops Mastering 4K Editing for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/srt-file-fundamentals-from-basics-to-advanced-techniques-for-2024/"><u>SRT File Fundamentals From Basics to Advanced Techniques for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/task-and-process-mining-erklart-strategien-fur-verstandnis-und-optimierung/"><u>Task & Process Mining Erklärt: Strategien Für Verständnis Und Optimierung</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/understanding-the-legal-framework-of-abbyy-flexicapture-online-service-terms-conditions-and-compliance-standards/"><u>Understanding the Legal Framework of ABBYY FlexiCapture Online Service - Terms, Conditions & Compliance Standards</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unveiling-instavid-secrets-plotting-a-successful-marketing-scheme-for-2024/"><u>[New] Unveiling InstaVid Secrets Plotting a Successful Marketing Scheme for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-how-to-chat-on-google-meet/"><u>[Updated] In 2024, How to Chat on Google Meet</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-add-a-digital-signature-field-to-a-wbk-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to add a digital signature field to a .wbk file</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-techniques-for-easy-video-recording-on-youtube/"><u>In 2024, Techniques for Easy Video Recording on YouTube</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-xiaomi-redmi-a2plus-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Xiaomi Redmi A2+? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimized-with-cutting-edge-automated-tracking-the-power-of-cookiebot-technology/"><u>Optimized with Cutting-Edge Automated Tracking: The Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimizing-business-efficiency-leveraging-data-driven-insights-from-process-and-task-analysis-join-the-upcoming-abbyy-expert-session/"><u>Optimizing Business Efficiency: Leveraging Data-Driven Insights From Process & Task Analysis - Join the Upcoming ABBYY Expert Session</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimizing-web-pages-for-maximum-search-engine-visibility/"><u>Optimizing Web Pages for Maximum Search Engine Visibility</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/preparing-your-enterprise-for-cloud-transition-insights-from-the-abbyy-perspective/"><u>Preparing Your Enterprise for Cloud Transition: Insights From the ABBYY Perspective</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-accounts-payable-the-strategic-alliance-between-siemens-and-abbyy-in-process-automation/"><u>Revolutionizing Accounts Payable: The Strategic Alliance Between Siemens & ABBYY in Process Automation</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/sony-afeela-automobile-launch-details-emerging-anticipated-release-date-pricing-info-and-performance-specs/"><u>Sony Afeela Automobile Launch Details Emerging: Anticipated Release Date, Pricing Info, and Performance Specs</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/sysbus-verstarkung-der-digitalen-fahigkeiten-ihrer-teammitglieder/"><u>Sysbus - Verstärkung Der Digitalen Fähigkeiten Ihrer Teammitglieder</u></a></li>
+<li><a href="https://win11.techidaily.com/the-experts-playbook-unearthing-mac-identifiers-in-windows-11/"><u>The Expert's Playbook: Unearthing MAC Identifiers in Windows 11</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/the-limits-of-identity-checks-in-fraud-prevention-a-deeper-look-into-effective-strategies/"><u>The Limits of Identity Checks in Fraud Prevention - A Deeper Look Into Effective Strategies</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-oneplus-12r-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on OnePlus 12R Device</u></a></li>
 </ul></div>
 

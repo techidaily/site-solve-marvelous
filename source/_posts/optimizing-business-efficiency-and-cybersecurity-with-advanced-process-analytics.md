@@ -1,7 +1,7 @@
 ---
 title: Optimizing Business Efficiency and Cybersecurity with Advanced Process Analytics
-date: 2024-10-01T16:24:48.382Z
-updated: 2024-10-08T18:00:11.036Z
+date: 2024-10-12T01:30:10.981Z
+updated: 2024-10-15T00:55:48.752Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ef0391400737caff934206593a807d314ef3298f397300aa8b766972af1af321.jpg
@@ -28,6 +28,13 @@ By automating the collection and analysis of process data, process mining provid
 
 _Gartner, Magic Quadrant for Process Mining Tools, 20 March 2023_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Four ways process mining can optimize business processes
 
 1. **Process mining provides organizations with real-time insights into their business processes.** By analyzing data from existing systems and applications, process mining can create a visual representation of the process, revealing bottlenecks, delays, and areas where process improvements can be made. This information can then be used to make data-driven decisions to improve process efficiency and effectiveness.
@@ -35,25 +42,11 @@ _Gartner, Magic Quadrant for Process Mining Tools, 20 March 2023_
 3. **Process mining helps organizations to better understand their customers' needs and preferences.** By analyzing customer interactions and feedback, process mining can reveal areas where customers are not satisfied, providing organizations with the information they need to make improvements and provide a better customer experience.
 4. **Process mining can improve compliance and governance within an organization.** By automating the collection and analysis of data from multiple sources, process mining can help organizations to stay on top of regulatory requirements, identify areas where there may be potential risk exposures, and make improvements to ensure full compliance with relevant regulatory mandates and regulations.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How organizations use process mining for cyber threat prevention
 
 A particularly helpful application of process mining is surfacing, analyzing, and remediating potential cyberthreats. [Cybercrime](https://www.mckinsey.com/capabilities/risk-and-resilience/our-insights/cybersecurity/new-survey-reveals-2-trillion-dollar-market-opportunity-for-cybersecurity-technology-and-service-providers) is forecast to cost organizations globally nearly $11 trillion by 2025\. Threat actors need only to find one vulnerability in an organization’s systems that may span across any of the potential attack surfaces, anywhere from the application, network, and physical layers. Traditional reactive approaches to mitigating cyberthreats are no longer viable. What is needed is a more granular, proactive, and adaptive approach that anticipates how threat actors expose and take advantage of system vulnerabilities.
 
 Process mining provides Cyber Security Incident Response Teams (CSIRTs) with data-driven compliance analysis and auditing of prescribed threat response management processes based on event log data collected from multiple systems. It enables CSIRTs to surface potential compliance gaps (e.g., cybersecurity governance and risk management processes) and to identify and remediate deviations (e.g., incident response management processes across multiple cases, adherence to response and resolution times, and surface outliers).
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Q&A on Process Intelligence and the Automation Fabric
 
@@ -74,10 +67,10 @@ Process mining is a valuable tool in the fight against cyber threats. Its abilit
 ![Andrewpery 99X99](https://static1.abbyy.com/abbyycommedia/25715/andrewpery-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Andrew Pery
@@ -89,10 +82,10 @@ Andrew Pery is an AI Ethics Evangelist at intelligent automation company [ABBYY]
 Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-cipp-c-cipp-e-3a536726/).
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Additional Insights:
@@ -100,6 +93,13 @@ Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-c
 1 / 3 
 
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg) **Are Large Language Models (LLMs) the Future?** Read more](https://tools.techidaily.com/abbyy/products/) [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg) **The Gap Is Closing Between AI Innovation and Time-to-Value** Read more](https://tools.techidaily.com/abbyy/products/) [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg) **How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning** Read more](https://tools.techidaily.com/abbyy/products/) [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg) **Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Process Mining Reveals $6 Million in Savings](https://static2.abbyy.com/abbyycommedia/37509/leading-financial-institution-saves-millions_848x444.jpg) **Customer Point of View: Process Mining Reveals $6 Million in Savings** Read more](https://tools.techidaily.com/abbyy/products/) [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg) **The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing** Read more](https://tools.techidaily.com/abbyy/products/) [![Is Generative AI Trustworthy?](https://static2.abbyy.com/abbyycommedia/37531/ai-and-the-big-question_848x444.jpg) **Is Generative AI Trustworthy?** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Subscribe for updates
 
@@ -158,20 +158,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-make-slow-motion-videos-on-instagram-reels/"><u>[New] 2024 Approved How to Make Slow Motion Videos on Instagram Reels</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-become-the-brand-you-want-with-our-exclusive-set-of-free-graphics-for-2024/"><u>[New] Become the Brand You Want With Our Exclusive Set of FREE Graphics for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-calculating-clickers-contribution-to-youtube-earnings/"><u>[New] In 2024, Calculating Clickers' Contribution to YouTube Earnings</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-how-to-add-motion-blur-to-photos-in-adobe-illustrator/"><u>[Updated] How to Add Motion Blur to Photos In Adobe Illustrator</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-essential-guide-to-asmr-for-sleep-enthusiasts/"><u>[Updated] In 2024, The Essential Guide to ASMR for Sleep Enthusiasts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-tumblr-id-visualization-guide-size-format-duration/"><u>2024 Approved Tumblr ID Visualization Guide Size, Format, Duration</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/elevate-your-site-with-cookiebot-technology-for-targeted-user-engagement/"><u>Elevate Your Site with Cookiebot Technology for Targeted User Engagement</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/empowering-user-confidentiality-through-pets-insights-from-the-abbyy-perspective/"><u>Empowering User Confidentiality Through PETs | Insights From the ABBYY Perspective</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhance-user-experience-and-track-conversions-using-advanced-cookiebot-solutions/"><u>Enhance User Experience and Track Conversions Using Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhance-website-insights-with-advanced-cookiebot-technology-platforms/"><u>Enhance Website Insights with Advanced Cookiebot Technology Platforms</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhance-your-website-with-automated-tracking-powered-by-cockroach/"><u>Enhance Your Website with Automated Tracking: Powered by Cockroach</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-user-engagement-with-customized-advertising-through-advanced-tracking-solutions/"><u>Enhanced User Engagement with Customized Advertising Through Advanced Tracking Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhancing-robotic-cognition-through-advanced-content-analysis-explore-the-insights-on-abbyys-official-site/"><u>Enhancing Robotic Cognition Through Advanced Content Analysis - Explore the Insights on ABBYY's Official Site</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Realme GT Neo 5 SE | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-download-edit-and-publish-the-essential-online-video-editing-guide/"><u>In 2024, Download, Edit, and Publish The Essential Online Video Editing Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-pixelprankspro-humorhexagonhub/"><u>[New] In 2024, PixelPranksPro HumorHexagonHub</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-master-windows-11-a-treasure-trove-of-undisclosed-features-for-2024/"><u>[Updated] Master Windows 11 A Treasure Trove of Undisclosed Features for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-key-to-spreading-online-jokes-fast/"><u>2024 Approved The Key to Spreading Online Jokes Fast</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Vivo Y27 5G? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-seamless-quick-conversions-best-free-tools-transforming-gif/"><u>In 2024, Seamless, Quick Conversions Best Free Tools Transforming GIF</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/hing-your-channels-auditory-appeal-on-youtube/"><u>Polishing Your Channel's Auditory Appeal on YouTube</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/quick-and-easy-techniques-for-iphone-sound-recording-for-2024/"><u>Quick and Easy Techniques for iPhone Sound Recording for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/rapid-digital-transformation-strategies-for-the-artificial-intelligence-sector-ebook-by-abbyy/"><u>Rapid Digital Transformation Strategies for the Artificial Intelligence Sector – eBook by ABBYY</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revamping-your-online-presence-mastering-the-art-of-page-optimization/"><u>Revamping Your Online Presence: Mastering the Art of Page Optimization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/rparpaabbyy/"><u>RPA技術の先駆者：日商エレ、RPAテクノロジーズ、ABBYYジャパンの新たな提携</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/significant-financial-boost-abbyy-records-a-25-surge-in-revenue-during-2017/"><u>Significant Financial Boost: ABBYY Records a 25% Surge in Revenue During 2017</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/streamline-client-onboarding-for-increased-devotion-to-your-financial-firm/"><u>Streamline Client Onboarding for Increased Devotion to Your Financial Firm</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/telefonicas-dsl-gesuche-nutzen-abbyy-formreader-schnellere-breitbandverbindungen-bevorstehen/"><u>Telefonicas DSL-Gesuche Nutzen ABBYY FormReader - Schnellere Breitbandverbindungen Bevorstehen</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Infinix Hot 30i? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/the-ultimate-exploration-windows-display-breaks/"><u>The Ultimate Exploration: Windows Display Breaks</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlock-enhanced-online-performance-with-our-secret-sauce-cookiebot-technology/"><u>Unlock Enhanced Online Performance with Our Secret Sauce - Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlocking-efficiency-in-purchase-to-pay-processes-strategies-for-success/"><u>Unlocking Efficiency in Purchase-to-Pay Processes: Strategies for Success</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Elevate Your Accounts Payable: How Scena Achieved a Staggering 60%% Reduction in Invoice & Credit Note Processing with Seamless ABBYY, Engeneum Automation and Sage Integration - Insider Customer Insights"
-date: 2024-10-07T16:24:43.175Z
-updated: 2024-10-08T17:42:23.289Z
+date: 2024-10-13T21:36:11.726Z
+updated: 2024-10-14T19:19:21.688Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b1298562b7193494067b08625dc9c68d20eae1f23bf97adbfc646940ddcb9e4e.jpg
@@ -20,10 +20,10 @@ Other | Accounts Payable Automation
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Scena automates supplier invoice & credit note processing with ABBYY and Engeneum, saving 60% of processing time with an automated seamless connection to Sage™
@@ -32,23 +32,9 @@ Other | Accounts Payable Automation
 
 ![Sumitomo Warehouse Co. Ltd. & ABBYY](https://static4.abbyy.com/abbyycommedia/31985/02-scena-cover-556x303.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Customer Overview
 
 ![Scena](https://static4.abbyy.com/abbyycommedia/31989/02c-scena-logo-166x30.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name         | Scena                                          |
 | ------------ | ---------------------------------------------- |
@@ -59,6 +45,13 @@ Other | Accounts Payable Automation
 #### Partner Overview
 
 ![Engeneum Limited](https://static2.abbyy.com/abbyycommedia/32019/engeneum-logo.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | Engeneum Limited                              |
 | ------------ | --------------------------------------------- |
@@ -112,10 +105,10 @@ The solution let’s Scena:
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
@@ -127,6 +120,13 @@ The solution let’s Scena:
 [![Download the PDF version](https://static4.abbyy.com/abbyycommedia/31986/02d-scena-cover-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") [PDF Version](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") 
 
 [Read the document](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -149,18 +149,17 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-monitoring-your-instagram-exit-strategy/"><u>[New] In 2024, Monitoring Your Instagram Exit Strategy</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-ace-your-youtube-live-with-these-7-powerful-live-streaming-apps-iosandroid-os/"><u>[Updated] Ace Your YouTube LIVE with These 7 Powerful Live Streaming Apps (iOS/Android OS)</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/3gpwmv-movavi/"><u>免費移動中的3GP到WMV格式轉換 - 利用Movavi工具</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/a-lista-dos-8-mestres-gratis-em-gerar-glitch-effects-and-imperfections-for-designers/"><u>A Lista Dos 8 Mestres Grátis Em Gerar Glitch Effects and Imperfections for Designers</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/beware-the-google-bard-application-contains-harmful-software/"><u>Beware: The Google Bard Application Contains Harmful Software!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/converti-video-mp4-a-formato-libero-aac-sul-web-senza-costi-usando-lapplicazione-di-moveavi/"><u>Converti Video MP4 a Formato Libero AAC Sul Web Senza Costi, Usando L'applicazione Di Moveavi</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-your-ultimate-wireless-driver-solution/"><u>Download Your Ultimate Wireless Driver Solution</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/guide-rapide-transformez-vos-fichiers-raw-en-images-de-haute-qualite-au-format-jpeg/"><u>Guide Rapide : Transformez Vos Fichiers RAW en Images De Haute Qualité Au Format JPEG</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/how-to-optimally-utilize-a-creative-commons-license/"><u>How to Optimally Utilize a Creative Commons License</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-samsung-galaxy-z-fold-5-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Samsung Galaxy Z Fold 5 to Another | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-the-pathway-to-perfect-pitches-insights-from-magix-maker/"><u>In 2024, The Pathway to Perfect Pitches Insights From Magix Maker</u></a></li>
-<li><a href="https://video-capture.techidaily.com/step-by-step-guide-changing-aac-to-ac3-format-on-your-videos/"><u>Step-by-Step Guide: Changing AAC to AC3 Format on Your Videos</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mkvavi-wmvm4v/"><u>오픈소스 MKV/AVI를 WMV/M4V로 자유성: 영상 코어 강조</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/hannel-charm-with-cost-free-visual-aids/"><u>[New] Channel Charm with Cost-Free Visual Aids</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-digital-dollar-first-steps-in-youtubers-revenue/"><u>[New] In 2024, Digital Dollar First Steps in YouTubers' Revenue</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-android-photography-excellence-tips-and-tools/"><u>[Updated] Android Photography Excellence Tips and Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-enhancing-profile-clips-for-impact/"><u>[Updated] Enhancing Profile Clips for Impact</u></a></li>
+<li><a href="https://win11.techidaily.com/altering-monitors-order-in-windows/"><u>Altering Monitors' Order in Windows</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/compile-of-the-most-beautiful-wedding-videos-youtube-and-vimeo-edition/"><u>Compile of the Most Beautiful Wedding Videos - Youtube & Vimeo Edition</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-performance-through-advanced-cookiebot-solutions/"><u>Enhanced Performance Through Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-performance-using-cookiebot-solutions/"><u>Enhanced Performance Using Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-traffic-growth-with-cookiebot-technology/"><u>Enhanced Traffic Growth with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-web-analytics-with-the-power-of-cookiebot-technology/"><u>Enhanced Web Analytics with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-v30-lite-5g-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on V30 Lite 5G?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/navigate-with-ease-must-know-win11-tricks/"><u>Navigate with Ease Must-Know Win11 Tricks</u></a></li>
 </ul></div>
 

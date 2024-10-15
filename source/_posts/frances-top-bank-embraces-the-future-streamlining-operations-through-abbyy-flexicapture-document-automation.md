@@ -1,7 +1,7 @@
 ---
 title: "France's Top Bank Embraces the Future: Streamlining Operations Through ABBYY FlexiCapture Document Automation"
-date: 2024-10-05T19:00:50.577Z
-updated: 2024-10-08T17:55:47.488Z
+date: 2024-10-12T19:08:44.618Z
+updated: 2024-10-14T18:19:52.665Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/029ba41f4072a625a12663e242fe0241f864e3cc7e4fb5de060add9d7faf8df5.jpg
@@ -25,16 +25,16 @@ Financial Services | Credit Application Processing
 
 ![](https://static1.abbyy.com/abbyycommedia/12629/caixa-logo-362x198.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Customer Overview
 
 ![Caisse d’Epargne Bretagne Pays de Loire](https://static4.abbyy.com/abbyycommedia/14897/caisse-logo-260x80.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 | Name         | Caisse d’Epargne Bretagne Pays de Loire                |
 | ------------ | ------------------------------------------------------ |
@@ -93,10 +93,10 @@ The introduction of this integrated solution enables the credit department at Ca
 [![FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://tools.techidaily.com/abbyy/products/) 
@@ -108,10 +108,10 @@ The introduction of this integrated solution enables the credit department at Ca
 [![PDF Version](https://static2.abbyy.com/abbyycommedia/15357/cs-caisse-360x162-2.jpg)](https://static5.abbyy.com/abbyycommedia/5095/cs-caisse-epargne%5Fbanking%5Fe.pdf "PDF version") [PDF version](https://static5.abbyy.com/abbyycommedia/5095/cs-caisse-epargne%5Fbanking%5Fe.pdf "PDF version") 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [read more](https://static5.abbyy.com/abbyycommedia/5095/cs-caisse-epargne%5Fbanking%5Fe.pdf "PDF version") 
@@ -121,10 +121,10 @@ The introduction of this integrated solution enables the credit department at Ca
 Share  True ?  : "" 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
@@ -148,14 +148,24 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://solve-marvelous.techidaily.com/1-mastering-color-grading-techniques-in-movavi-video-editing-software/"><u>1. Mastering Color Grading Techniques in Movavi Video Editing Software</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-subconversions-at-peak-discover-the-top-8-tools-for-converting-sbt-to-srt/"><u>2024 Approved Subconversions at Peak - Discover the Top 8 Tools for Converting SBT to SRT</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/facil-e-gratuit-mudando-mp4-em-ogv-direto-no-movavi-sem-custo-algum/"><u>Fácil E Gratuit@! Mudando MP4 Em OGV Direto No Movavi Sem Custo Algum</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratuiti-download-e-conversione-da-mp4-a-m4b-con-movavi-il-tuo-passaggio-online-per-i-podcast-e-gli-audio-libri/"><u>Gratuiti Download E Conversione Da MP4 a M4B Con Movavi – Il Tuo Passaggio Online per I Podcast E Gli Audio Libri</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-videos-and-music-files-from-iphone-13-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Photos, Videos & Music Files from iPhone 13 | Stellar</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Infinix Smart 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/movavis-gratuite-webvorm-reconversie-tool-voor-m1v-naar-avi-fichieren-beste-ontwikkelingen/"><u>Movavi's Gratuite Webvorm Reconversie Tool Voor M1V Naar Avi Fichieren - Beste Ontwikkelingen</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-the-best-of-the-best-top-gaming-websites-for-pc-game-downloads/"><u>Updated 2024 Approved The Best of the Best Top Gaming Websites for PC Game Downloads</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/why-embrace-the-digital-book-revolution-with-a-kindle/"><u>Why Embrace the Digital Book Revolution with a Kindle</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-10-final-cut-pro-plug-ins/"><u>[New] 10 Final Cut Pro-Plug-Ins</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-peak-choice-top-five-high-definition-cameras/"><u>2024 Approved Peak Choice Top Five High Definition Cameras</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-upgrading-made-easy-your-guide-to-smooth-tech-transitions/"><u>2024 Approved Upgrading Made Easy Your Guide to Smooth Tech Transitions</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/crafty-escapades-discover-top-imaginative-venues-for-2024/"><u>Crafty Escapades Discover Top Imaginative Venues for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-traffic-with-cookiebot-technology-boost-your-sites-performance/"><u>Enhanced Traffic with Cookiebot Technology: Boost Your Site's Performance</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhancing-visitor-engagement-through-smart-session-management-backed-by-cutting-edge-cookieless-technology/"><u>Enhancing Visitor Engagement Through Smart Session Management - Backed by Cutting-Edge Cookieless Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/exploring-digital-innovation-in-the-insurance-industry-how-emerging-technologies-are-reshaping-assurance/"><u>Exploring Digital Innovation in the Insurance Industry: How Emerging Technologies Are Reshaping Assurance</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/how-mcdonalds-enhances-its-mobile-app-with-advanced-abbyy-ocr-solutions/"><u>How McDonald's Enhances Its Mobile App with Advanced ABBYY OCR Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/kognitive-systeme-in-der-automatisierung-abbyys-losung-fur-das-verstehen-und-interpretieren-digitaler-inhalte/"><u>Kognitive Systeme in Der Automatisierung: ABBYYS Lösung Für Das Verstehen Und Interpretieren Digitaler Inhalte</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/konvertieren-sie-ihre-prozesse-abbyy-vantage-2-und-neue-ki-marketplatz-fuhren-sie-schnell-zur-digitalen-revolution/"><u>Konvertieren Sie Ihre Prozesse: ABBYY Vantage 2 Und Neue KI-Marketplatz Führen Sie Schnell Zur Digitalen Revolution</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/levolution-rapide-des-relations-bancarieres-comment-la-crise-enfonce-le-clavier/"><u>L'Evolution Rapide Des Relations Bancarières: Comment La Crise Enfonce Le Clavier</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/laserfiche-integration-with-abbyys-flexicapture-advanced-document-capture-software-solution/"><u>Laserfiche Integration with ABBYY's FlexiCapture: Advanced Document Capture Software Solution</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-superior-site-performance-and-seo-results/"><u>Leveraging Cookiebot Technology for Superior Site Performance and SEO Results</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/radiant-reality-tiles-photographic-collages-that-sparkle-for-2024/"><u>Radiant Reality Tiles Photographic Collages That Sparkle for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/strategies-to-overcome-limited-mp-issues-in-iphone-photography/"><u>Strategies to Overcome Limited MP Issues in iPhone Photography</u></a></li>
+<li><a href="https://fox-http.techidaily.com/swift-upload-of-sizeable-videos-from-iphone-to-mac-desktop/"><u>Swift Upload of Sizeable Videos From iPhone to Mac Desktop</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Xiaomi Redmi Note 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-20-wonderful-stop-motion-ideas-for-beginners-and-kids/"><u>Updated 20 Wonderful Stop Motion Ideas for Beginners and Kids</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-get-started-with-video-editing-top-beginner-friendly-software/"><u>Updated 2024 Approved Get Started with Video Editing Top Beginner-Friendly Software</u></a></li>
 </ul></div>
 

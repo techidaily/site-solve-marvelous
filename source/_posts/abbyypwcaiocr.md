@@ -1,7 +1,7 @@
 ---
 title: ABBYYとPwCコンサルティングがAI・OCR技術による新しいパートナーシップを結ぶ
-date: 2024-10-07T19:01:34.253Z
-updated: 2024-10-08T17:25:47.898Z
+date: 2024-10-07T20:41:07.551Z
+updated: 2024-10-14T18:51:20.875Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a88766153a92e1f9e8401a4428c9fb.jpg
@@ -67,29 +67,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-perfect-your-video-a-comprehensive-guide-to-ideal-thumbnail-heights/"><u>[New] In 2024, Perfect Your Video A Comprehensive Guide to Ideal Thumbnail Heights</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-techniques-for-incremental-volume-reduction-in-pro-video-editing/"><u>2024 Approved Techniques for Incremental Volume Reduction in Pro Video Editing</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-performance-mastering-online-marketing-metrics-effortlessly/"><u>Cookiebot-Driven Performance: Mastering Online Marketing Metrics Effortlessly</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-user-experience-and-conversion-rates/"><u>Cookiebot-Enabled: Enhancing User Experience and Conversion Rates</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-sites-analytics-and-personalization/"><u>Cookiebot-Enabled: Enhancing Your Site's Analytics and Personalization</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-optimizing-your-site-with-advanced-tracking-technology/"><u>Cookiebot: Optimizing Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-the-secret-ingredient-for-optimized-user-experience/"><u>Cookiebot: The Secret Ingredient for Optimized User Experience</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/creating-user-friendly-navigation-the-power-of-efficient-page-management/"><u>Creating User-Friendly Navigation: The Power of Efficient Page Management</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/drive-more-leads-using-the-efficient-cookiebot-analytics-system/"><u>Drive More Leads Using the Efficient Cookiebot Analytics System</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/driven-with-advanced-cookieless-tracking-technology/"><u>Driven with Advanced Cookieless Tracking Technology</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/essential-upgrades-for-your-ipad-pro-expert-picks-s-must-have-accessories/"><u>Essential Upgrades for Your iPad Pro: Expert Picks 'S Must-Have Accessories</u></a></li>
-<li><a href="https://win-unique.techidaily.com/get-your-hands-on-new-hip-hop-music-downloads-high-quality-mp3-and-flac-options-available-now/"><u>Get Your Hands on New Hip Hop Music Downloads – High-Quality MP3 and FLAC Options Available Now</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-13-pro-without-apple-id-by-drfone-ios/"><u>How to Erase an Apple iPhone 13 Pro without Apple ID?</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-increase-dedicated-video-ram-vram-in-windows-11-and-11/"><u>How to Increase Dedicated Video RAM (VRAM) in Windows 11 and 11</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-realme-11-proplus-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/nest-egg-personalized-steam-picks/"><u>Nest Egg: Personalized Steam Picks</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-itel-a70-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Itel A70 Phones</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-comprehensive-analysis-dji-inspire-1-unveiled/"><u>[New] Comprehensive Analysis DJI Inspire 1 Unveiled</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-your-sound-with-the-compreenas-complete-morphvox-guidebook/"><u>[New] Mastering Your Sound with the Compreenas Complete MorphVOX Guidebook</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-simplifying-vfx-with-magix-video-pro-x/"><u>[Updated] Simplifying VFX with Magix Video Pro X</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-ultimate-story-blueprints-across-8-movie-sectors/"><u>2024 Approved Ultimate Story Blueprints Across 8 Movie Sectors</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/convert-videos-effortlessly-with-movavis-no-cost-nsv-to-mp4-tool-do-it-online/"><u>Convert Videos Effortlessly with Movavi's No-Cost NSV to MP4 Tool - Do It Online!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/install-hps-thunderbolt-dock-g2-firmware-for-your-120-watt-and-230-watt-devices-today/"><u>Install HP's Thunderbolt Dock G2 Firmware for Your 120-Watt and 230-Watt Devices Today</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-warzone-stutter-a-step-by-step-guide-to-resolve-screenshots-and-shakes/"><u>Overcoming Warzone Stutter: A Step-by-Step Guide to Resolve Screenshots and Shakes</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/scarica-e-converti-i-tuoi-amv-in-file-mp3-gratuitamente-con-movavi/"><u>Scarica E Converti I Tuoi AMV in File MP3 Gratuitamente Con Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/trasforma-pbm-in-formato-bmp-online-gratuitamente-il-guida-completa-di-movavi/"><u>Trasforma PBM in Formato BMP Online Gratuitamente: Il Guida Completa Di Movavi!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/vod-in-ogg-vorbis-format-vob-to-high-quality-lossless-audio-flac-free-conversion-tool-by-movavi/"><u>VOD in Ogg Vorbis Format (VOB) to High-Quality Lossless Audio (FLAC): Free Conversion Tool by Movavi</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

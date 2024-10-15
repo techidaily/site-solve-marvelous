@@ -1,7 +1,7 @@
 ---
 title: "FlexiCapture Von ABBYY: Effiziente Lösung Für Den Abruf Und Die Bearbeitung Digitaler Fahrzeugunterlagen Mit Der Software Gas Geben"
-date: 2024-10-05T16:39:13.700Z
-updated: 2024-10-08T18:57:11.973Z
+date: 2024-10-07T16:11:57.904Z
+updated: 2024-10-14T20:19:42.302Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a26060fad92020f54b317e5747fec75ccfe05e7c2700d5cb66b41afce88bdb6e.jpg
@@ -19,18 +19,18 @@ Transportation & Logistics | Document Management
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fuhrparkdienstleister HPI Fleet nutzt FlexiCapture für Erfassung und Verarbeitung von Dokumenten
 
 Transport und Logistik | Dokumentenmanagement 
 
 ![](https://static1.abbyy.com/abbyycommedia/14452/7-luz-del-sur-oilgas.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Über den Kunden
 
@@ -83,26 +83,26 @@ Unter dem Strich bleibt durch den Systemwechsel eine zukunftsfähige und effizie
 
 [![4-flexicapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![Transport und Logistik](https://static5.abbyy.com/abbyycommedia/14363/13-transportation.jpg)](https://tools.techidaily.com/abbyy/products/) [Transport und Logistik](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![Montgomery1](https://static2.abbyy.com/abbyycommedia/15761/montgomery1.png)](https://static1.abbyy.com/abbyycommedia/6149/cs%5Fhpi%5Ffleet%5Ffc%5Fd.pdf "PDF-Version") [PDF-Version](https://static1.abbyy.com/abbyycommedia/6149/cs%5Fhpi%5Ffleet%5Ffc%5Fd.pdf "PDF-Version") 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Zum Dokument](https://static1.abbyy.com/abbyycommedia/6149/cs%5Fhpi%5Ffleet%5Ffc%5Fd.pdf "PDF-Version") 
@@ -116,10 +116,10 @@ Teilen  True ?  : ""
 [Alle ABBYY-Niederlassungen](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Sind Sie bereit, mit einem Experten zu sprechen?
@@ -143,24 +143,24 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-expert-analysis-comprehensive-camstudio-recorder-for-2024/"><u>[New] Expert Analysis Comprehensive CamStudio Recorder for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-android-and-ios-best-ps2-emulator-comparisons-for-2024/"><u>[Updated] Android & iOS Best PS2 Emulator Comparisons for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-infiltrating-the-top-channels-in-youtube-space/"><u>[Updated] Infiltrating the Top Channels in YouTube Space</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-peak-of-primes-amazons-hot-tweets-and-shows-23-for-2024/"><u>[Updated] The Peak of Primes Amazon’s Hot Tweets & Shows, '23 for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-fix-windows-11s-persistent-system-resource-hogging-targeting-the-modules-installer-worker/"><u>How to Fix Windows 11'S Persistent System Resource Hogging: Targeting the Modules Installer Worker</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-lava-blaze-2-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Lava Blaze 2 5G Phone?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Huawei Nova Y71? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimize-your-sites-analytics-the-advanced-features-of-cookiebot-solutions/"><u>Optimize Your Site's Analytics: The Advanced Features of Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimized-webpage-strategies-enhancing-your-online-presence/"><u>Optimized Webpage Strategies: Enhancing Your Online Presence</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimizing-with-cookiebot-boosting-your-websites-potential/"><u>Optimizing with Cookiebot: Boosting Your Website's Potential</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionize-automation-through-informed-decisions-discover-how-with-process-and-task-mining-at-abbyys-special-webinar/"><u>Revolutionize Automation Through Informed Decisions: Discover How with Process and Task Mining at ABBYY's Special Webinar</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-wine-selection-how-abbyys-ocr-technology-fuels-vivinos-global-success/"><u>Revolutionizing Wine Selection: How ABBYY's OCR Technology Fuels Vivino's Global Success</u></a></li>
-<li><a href="https://games-able.techidaily.com/rising-trend-do-gpu-prices-increase-next/"><u>Rising Trend: Do GPU Prices Increase Next?</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/seamless-user-engagement-boosted-by-innovative-cookiebot-technology-solutions/"><u>Seamless User Engagement Boosted by Innovative Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/the-future-is-now-understanding-ai-governance-on-the-ai-pulse-podcast/"><u>The Future Is Now: Understanding AI Governance on the AI Pulse Podcast</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transform-images-into-editable-text-ocr-for-pdfjpg-files-on-ios-via-finereader/"><u>Transform Images Into Editable Text - OCR for PDF/JPG Files on iOS via FineReader</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transforming-jobs-tomorrow-insightful-analysis-on-rpas-impact-and-abbyys-forecast-white-paper/"><u>Transforming Jobs Tomorrow: Insightful Analysis on RPA's Impact and ABBYY's Forecast [White Paper]</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-tips-resolving-issues-with-diagonal-line-displays/"><u>Troubleshooting Tips: Resolving Issues with Diagonal Line Displays</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-breakthrough-ways-to-transform-your-powerpoint-presentations/"><u>[New] Breakthrough Ways to Transform Your PowerPoint Presentations</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-frequency-fluctuations-for-game-mastery/"><u>[New] In 2024, Frequency Fluctuations for Game Mastery</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-syncopated-synths-selecting-top-quality-dj-templates-online/"><u>[Updated] 2024 Approved Syncopated Synths Selecting Top Quality DJ Templates Online</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-activatingdeactivating-picture-in-picture-youtube-viewing-on-iphone/"><u>[Updated] Activating/Deactivating Picture In Picture YouTube Viewing on iPhone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-crafting-cinematic-magic-essential-tips-for-creating-stunning-slow-motion-media-on-instagram/"><u>2024 Approved Crafting Cinematic Magic Essential Tips for Creating Stunning Slow-Motion Media on Instagram</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-path-to-popularity-unveiling-tubebuddy-secrets/"><u>2024 Approved The Path to Popularity Unveiling TubeBuddy Secrets</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726221831239-mp4mp3-movavi/"><u>線上將MP4格式自由改造成MP3 - 拓展音樂經驗的 Movavi方法</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-xiaomi-redmi-a2-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Xiaomi Redmi A2 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/deciphering-youtube-popularity-factors-for-higher-placement/"><u>Deciphering YouTube Popularity Factors for Higher Placement</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/die-besten-online-video-editoren-fur-fortgeschrittene-entdecken-sie-die-kronung-der-qualitat-mit-movavi/"><u>Die Besten Online Video Editoren Für Fortgeschrittene - Entdecken Sie Die Krönung Der Qualität Mit Movavi!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gratis-wmv-videos-in-ogg-format-converteren-online-movavi/"><u>Gratis WMV-Video's in Ogg Format Converteren Online - Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/how-to-change-your-voice-in-a-song-lyric-video-tips-for-perfect-audio-effects-with-voice-modulation-software/"><u>How To Change Your Voice In A Song Lyric Video: Tips for Perfect Audio Effects with Voice Modulation Software</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oppo-reno-11f-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Oppo Reno 11F 5G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavi-convert-apes-to-aiff-online-free-converter-easy-audio-format-transformation/"><u>Movavi Convert APES to AIFF Online Free Converter - Easy Audio Format Transformation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/opgeluchtende-loodsen-omzettingen-ogg-naar-mp4v-vrij-en-tafeleigend-via-movavi/"><u>Opgeluchtende Loodsen Omzettingen Ogg Naar Mp4v - Vrij en Tafeleigend via Movavi</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/optimal-google-cast-devices/"><u>Optimal Google Cast Devices</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-10-editeurs-de-pdf-gratuits-pour-windows-votre-guide-ultime-pour-maitriser-la-gestion-des-fichiers/"><u>Top 10 Éditeurs De PDF Gratuits Pour Windows : Votre Guide Ultime Pour Maitriser La Gestion Des Fichiers</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/trasforma-immagini-tiff-in-jpg-di-fronte-a-computer-gratuitamente-utilizzando-movavi/"><u>Trasforma Immagini TIFF in JPG Di Fronte a Computer Gratuitamente Utilizzando Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/m2ts-movavi/"><u>オンラインでストリーミング再生可能なM2TSファイルへの自由許諾 - Movavi無料変換</u></a></li>
 </ul></div>
 

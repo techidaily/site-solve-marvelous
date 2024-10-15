@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Optimized Data Collection & Consent Management"
-date: 2024-10-03T16:23:20.165Z
-updated: 2024-10-08T16:42:37.301Z
+date: 2024-10-14T01:21:09.097Z
+updated: 2024-10-14T16:26:57.641Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b3a280654f3cc4ecaa0af8b47827af91d1bc68ec573b9890cc259b048e11faa1.jpg
@@ -20,10 +20,10 @@ Other | Accounts Payable Automation
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Scena automates supplier invoice & credit note processing with ABBYY and Engeneum, saving 60% of processing time with an automated seamless connection to Sage™
@@ -36,13 +36,6 @@ Other | Accounts Payable Automation
 
 ![Scena](https://static4.abbyy.com/abbyycommedia/31989/02c-scena-logo-166x30.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 | Name         | Scena                                          |
 | ------------ | ---------------------------------------------- |
 | Headquarters | 12 Imperial Way Croydon CR0 4RR                |
@@ -52,6 +45,13 @@ Other | Accounts Payable Automation
 #### Partner Overview
 
 ![Engeneum Limited](https://static2.abbyy.com/abbyycommedia/32019/engeneum-logo.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name         | Engeneum Limited                              |
 | ------------ | --------------------------------------------- |
@@ -104,29 +104,29 @@ The solution let’s Scena:
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY solutions for accounts payable automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Solutions for Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static4.abbyy.com/abbyycommedia/31986/02d-scena-cover-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") [PDF Version](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") 
 
-[Read the document](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") 
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+[Read the document](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") 
 
 ### Ready to talk to an expert?
 
@@ -149,20 +149,22 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-decoding-sonys-screenshot-system-an-in-depth-look-at-ps4-recording/"><u>[New] In 2024, Decoding Sony's Screenshot System An In-Depth Look at PS4 Recording</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-ending-your-insta-saga-a-comprehensive-guide-to-deactivation/"><u>[New] In 2024, Ending Your Insta Saga A Comprehensive Guide to Deactivation</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-nextgen-codec-battle-is-av1-trumping-vp9-quality/"><u>[Updated] NextGen Codec Battle Is AV1 Trumping VP9 Quality?</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhance-conversions-with-cookiebot-integration-the-key-to-seo-success/"><u>Enhance Conversions with Cookiebot Integration - The Key to SEO Success!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhance-user-engagement-powerfully-using-the-advanced-features-of-cookiebot-technology/"><u>Enhance User Engagement Powerfully Using the Advanced Features of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-conversion-tracking-with-our-cutting-edge-cookiebot-system/"><u>Enhanced Conversion Tracking with Our Cutting-Edge Cookiebot System</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-marketing-strategies-with-automated-audience-engagement-the-power-of-cookiebot/"><u>Enhanced Marketing Strategies with Automated Audience Engagement: The Power of Cookiebot</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-user-experience-with-dynamic-content-via-ai-driven-analytics/"><u>Enhanced User Experience with Dynamic Content via AI-Driven Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhancing-digital-footprints-how-our-services-are-powered-by-cookiebot-technology/"><u>Enhancing Digital Footprints: How Our Services Are Powered by Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harness-the-power-of-cookiebot-for-dynamic-web-analytics-and-conversion-optimization/"><u>Harness the Power of Cookiebot for Dynamic Web Analytics and Conversion Optimization</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/hearth-warming-hear-from-happy-customers-for-2024/"><u>Hearth-Warming Hear From Happy Customers for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Vivo Y78 5G? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-se-2022-with-a-mask-on-drfone-by-drfone-ios/"><u>How to Unlock iPhone SE (2022) with a Mask On | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/put-an-end-to-constant-minecraft-crashes-with-these-6-quick-solutions/"><u>Put an End to Constant Minecraft Crashes with These 6 Quick Solutions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/ultimate-3-fb-movie-extractors-for-2024/"><u>Ultimate 3 Fb Movie Extractors for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixed-intel-wi-fi-ax201-intermittent-disconnect/"><u>[FIXED] Intel Wi-Fi AX201 Intermittent Disconnect</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-mastering-the-art-of-shorts-imagery-quick-smart-updates/"><u>[New] In 2024, Mastering the Art of Shorts Imagery Quick, Smart Updates</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-effortless-tips-for-storing-vimeo-videos-for-2024/"><u>[Updated] Effortless Tips for Storing Vimeo Videos for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/auditory-purchases-5-key-specs-to-assess/"><u>Auditory Purchases: 5 Key Specs to Assess</u></a></li>
+<li><a href="https://techtrends.techidaily.com/enhance-your-mobile-experience-with-our-picks-of-the-five-greatest-auto-clickers-for-android-phones/"><u>Enhance Your Mobile Experience with Our Picks of the Five Greatest Auto Clickers for Android Phones</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/how-to-get-more-likes-on-your-tiktok-unboxing-video-for-2024/"><u>How to Get More Likes on Your TikTok Unboxing Video for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-x9b-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from X9b</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-look-at-the-lenovo-tab-4-balancing-budget-and-performance-in-an-android-tablet/"><u>Inside Look at the Lenovo Tab 4: Balancing Budget and Performance in an Android Tablet</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/navigating-new-horizons-in-talent-acquisition-with-artificial-intelligence-in-hr/"><u>Navigating New Horizons in Talent Acquisition with Artificial Intelligence in HR.</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/navigating-the-shifting-landscape-understanding-modern-supply-chain-vulnerabilities-amidst-pandemic-recovery/"><u>Navigating the Shifting Landscape: Understanding Modern Supply Chain Vulnerabilities Amidst Pandemic Recovery</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimize-with-cookiebot-boosting-traffic-and-conversions-on-your-website/"><u>Optimize with Cookiebot: Boosting Traffic and Conversions on Your Website</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/personalized-engagement-with-our-services-powered-by-the-advanced-technology-of-cookiebot/"><u>Personalized Engagement with Our Services, Powered by the Advanced Technology of Cookiebot</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/protection-renforcee-pour-votre-gestion-documentaire-grace-a-tangro-avec-technologie-abbyy/"><u>Protection Renforcée Pour Votre Gestion Documentaire Grâce À Tangro® Avec Technologie ABBYY</u></a></li>
+<li><a href="https://fox-access.techidaily.com/revised-discussion-prompts-for-enhanced-auditory-experience/"><u>Revised Discussion Prompts for Enhanced Auditory Experience</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-efficiency-unlocking-the-power-of-automation-for-uk-companpsies-findings-by-abbyy-analysis/"><u>Revolutionizing Efficiency: Unlocking the Power of Automation for UK Companpsies - Findings by ABBYY Analysis</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/showcasing-intuitive-ai-solutions-for-enhanced-accounts-payable-efficiency/"><u>Showcasing Intuitive AI Solutions for Enhanced Accounts Payable Efficiency</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/task-and-process-mining-erklart-strategien-fur-verstandnis-und-optimierung/"><u>Task & Process Mining Erklärt: Strategien Für Verständnis Und Optimierung</u></a></li>
 </ul></div>
 

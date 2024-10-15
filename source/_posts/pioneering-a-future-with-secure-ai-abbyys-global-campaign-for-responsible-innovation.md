@@ -1,7 +1,7 @@
 ---
 title: "Pioneering a Future with Secure AI: ABBYY's Global Campaign for Responsible Innovation"
-date: 2024-10-05T19:12:15.758Z
-updated: 2024-10-08T18:12:26.393Z
+date: 2024-10-07T19:47:29.395Z
+updated: 2024-10-14T19:22:17.930Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a24327de3f954b0afa1a21a400dc142c840e7eb4a1e199fa6e8f6bfec8524954.jpg
@@ -82,28 +82,23 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-how-to-change-name-in-google-meet/"><u>[New] How to Change Name in Google Meet?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/tep-by-step-method-for-extracting-video-portions-from-youtube-for-2024/"><u>[New] Step-by-Step Method for Extracting Video Portions From YouTube for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-unveiling-the-best-video-player-apps-for-idevices-top-10-for-2024/"><u>[New] Unveiling the Best Video Player Apps for iDevices (Top 10) for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unveiling-hidden-facebook-data-and-protecting-yourself-online/"><u>[Updated] Unveiling Hidden Facebook Data & Protecting Yourself Online</u></a></li>
-<li><a href="https://media-tips.techidaily.com/1727404308517-mp4windows-10macos/"><u>絕對無損解析的優秀MP4播放器：免費版本及Windows 10/macOS用户下载方便指南</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhancing-user-experience-with-cookiebots-customized-marketing-tools/"><u>Enhancing User Experience with Cookiebot's Customized Marketing Tools</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/experience-customized-content-delivery-the-power-of-the-latest-cookiebot-solutions/"><u>Experience Customized Content Delivery: The Power of the Latest Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harness-the-power-of-cookiebot-for-advanced-seo-optimization/"><u>Harness the Power of Cookiebot for Advanced SEO Optimization</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harnessing-cloud-power-for-advanced-document-recognition-a-deep-dive-into-ocr-sdk-scalability-on-the-abbyy-blog/"><u>Harnessing Cloud Power for Advanced Document Recognition: A Deep Dive Into OCR SDK Scalability on the ABBYY Blog</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-audience-targeting/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and Audience Targeting</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harnessing-the-power-of-cookiebot-technology-for-effective-web-analytics-and-seo-strategies/"><u>Harnessing the Power of Cookiebot Technology for Effective Web Analytics and SEO Strategies</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/maximize-your-online-visibility-with-cookiebots-seo-solutions/"><u>Maximize Your Online Visibility with Cookiebot's SEO Solutions</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-s-top-animation-software-10-best-2d-tools-for-beginners-and-pros/"><u>New In 2024, S Top Animation Software 10 Best 2D Tools for Beginners and Pros</u></a></li>
-<li><a href="https://extra-information.techidaily.com/optimizing-your-creative-process-windows-movie-maker-on-windows-8-unveiled/"><u>Optimizing Your Creative Process Windows Movie Maker on Windows 8 Unveiled</u></a></li>
-<li><a href="https://android-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-huawei-nova-y91-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Huawei Nova Y91 FRP</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-infinix-hot-30i-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Infinix Hot 30i to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-at-the-joint-conference-on-shared-services-and-outsourcing/"><u>ABBYY at the Joint Conference on Shared Services & Outsourcing</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-clinches-top-position-in-gartners-2023-magic-quadrant-for-advanced-process-mining-solutions/"><u>ABBYY Clinches Top Position in Gartner's 2023 Magic Quadrant for Advanced Process Mining Solutions</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/becoming-an-ig-star-essential-management-tools-reviewed/"><u>Becoming an IG Star Essential Management Tools Reviewed</u></a></li>
+<li><a href="https://extra-information.techidaily.com/beyond-simple-cuts-deep-insights-into-vidas-editing-power-for-2024/"><u>Beyond Simple Cuts Deep Insights Into Vida’s Editing Power for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724312954176-cookiebot-enabled-enhance-your-websites-user-experience-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's User Experience & Tracking</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724313307643-cookiebot-enabled-optimized-data-collection-and-consent-management/"><u>Cookiebot-Enabled: Optimized Data Collection & Consent Management</u></a></li>
+<li><a href="https://win-able.techidaily.com/easy-conversion-tips-for-switching-from-caf-to-aacm4a-audio-files/"><u>Easy Conversion Tips for Switching From CAF to AAC/M4A Audio Files</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/premier-audio-broadcast-networks/"><u>Premier Audio Broadcast Networks</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlocking-website-potential-with-cookiebot-technology/"><u>Unlocking Website Potential with Cookiebot Technology</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-your-sub4sub-potential-the-critical-pre-entry-guide-for-2024/"><u>Unlocking Your Sub4sub Potential The Critical Pre-Entry Guide for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

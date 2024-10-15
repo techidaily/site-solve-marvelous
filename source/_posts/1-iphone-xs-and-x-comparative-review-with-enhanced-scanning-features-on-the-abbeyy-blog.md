@@ -1,7 +1,7 @@
 ---
 title: "1. IPhone Xs & X: Comparative Review with Enhanced Scanning Features on the ABBEYY Blog"
-date: 2024-10-02T19:15:05.859Z
-updated: 2024-10-08T18:48:00.652Z
+date: 2024-10-12T01:51:43.074Z
+updated: 2024-10-14T23:07:20.069Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/64727a6fb30fc85eb70a4052d7d6ea68ac41c9b68c8e82ebf0f07967ea3707f2.jpg
@@ -83,6 +83,19 @@ The iPhone XS has an [IP Code](https://en.wikipedia.org/wiki/IP%5FCode) of IP68,
 
 The iPhone XS has a smaller battery capacity than the iPhone X, but it will last 30 minutes longer thanks to the new energy-efficient A12 Bionic chip.
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Android Tips: Galaxy S10 Rumours**
 
 The Samsung Galaxy S10, to be launched in the first quarter of 2019, is poised to be the main rival of the iPhone XS. Here’s what we may expect.
@@ -93,6 +106,13 @@ The Pro device may have a fingerprint reader integrated in its display, triple c
 
 ![galaxy s10 camera](https://static1.abbyy.com/abbyycommedia/26571/galaxy-10-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Design-wise, we’re likely to get another Galaxy S9\. The screen is likely to be completely bezel-free. It remains to be seen whether Samsung will get rid of the notch, but this step seems quite logical, given the recent trends in smartphone design. Samsung may also start offering its flagship product in more colours than before.
 
 According to some reports, the new smartphone will have 6 or 8 GB RAM and 128 GB internal memory.
@@ -102,13 +122,6 @@ It is unlikely that the Korean manufacturer will ditch the support of memory car
 The S10 will launch with Android Pie on board. We must say that this latest Android version from Google is stable, fast, and very easy on the eye. By the same token, Samsung is known for its ability to make the best of Android on its devices.
 
 Of course, its all rumours at the moment, but one thing we can be certain of: after the controversial Galaxy S9, Samsung will make every effort not to disappoint. All we can do now is wait a couple of months until the official launch, when the specs and reviews will be available all over the Internet.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **ABBYY Tip: FineScanner Gets a Makeover**
 
@@ -124,22 +137,15 @@ Here’s how [FineScanner](http://qrs.ly/mg4z2wm) looks now:
 
 ![abbyy finescanner new design](https://static1.abbyy.com/abbyycommedia/26141/image-from-ios-2.jpg) ![abbyy finescanner recognize](https://static1.abbyy.com/abbyycommedia/26140/image-from-ios-4.jpg) ![abbyy finescanner scan and ocr](https://static1.abbyy.com/abbyycommedia/26572/image-from-ios-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Isn’t it beautiful?
 
 [Download or update](http://qrs.ly/mg4z2wm) your copy of FineScanner and tell us what you think about the new design in AppStore.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **App of the Week: Happy Glass**
@@ -152,6 +158,13 @@ Your job is to fill the glass with water, which isn’t easy because there are v
 
 ![games for iphone happy glass](https://static1.abbyy.com/abbyycommedia/26573/img_3689.jpg) ![play on iphone](https://static1.abbyy.com/abbyycommedia/26574/img_3688.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This game will give a jolt to your imagination, stimulate lateral thinking, and put your reactions to the test. Thumbs up from us!
 
 ![IMG_3687](https://static1.abbyy.com/abbyycommedia/26575/img_3687.jpg)
@@ -161,13 +174,6 @@ Available on [iOS](https://itunes.apple.com/app/id1425793208) and [Android](http
 That’s all from us for today. Until next Monday! P.S. You can find the previous issue of this newsletter [here](https://tools.techidaily.com/abbyy/products/).
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -233,20 +239,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-telehealth-advancements-with-vr-integrations/"><u>[Updated] 2024 Approved Telehealth Advancements with VR Integrations</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-from-novice-to-vlogger-top-tips-to-enhance-your-tiktok-videos/"><u>[Updated] From Novice to Vlogger Top Tips to Enhance Your TikTok Videos</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-innovates-unveils-state-of-the-art-indian-randd-hub/"><u>ABBYY Innovates: Unveils State-of-the-Art Indian R&D Hub</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-realise-sustains-double-digit-growth-streak-for-third-consecutive-year/"><u>ABBYY Réalise Sustains Double-Digit Growth Streak for Third Consecutive Year</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-und-xerox-formen-eine-strategische-partnerschaft-erste-lizenzierungsvereinbarung-geschlossen/"><u>ABBYY Und Xerox Formen Eine Strategische Partnerschaft - Erste Lizenzierungsvereinbarung Geschlossen!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyys-senior-vice-president-joins-elite-aiim-fellowship/"><u>ABBYY's Senior Vice President Joins Elite AIIM Fellowship</u></a></li>
-<li><a href="https://win-able.techidaily.com/dealing-with-frozen-rust-projects-pro-tips-and-fixes-for-swift-recovery-in-amo/"><u>Dealing with Frozen Rust Projects: Pro Tips & Fixes for Swift Recovery in Amo</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-and-update-guide-intel-wi-fi-ax210-drivers/"><u>Download and Update Guide: Intel Wi-Fi AX210 Drivers</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723209815930-harmonizing-display-and-timing-monitor-support-now-restored/"><u>Harmonizing Display and Timing - Monitor Support Now Restored!</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Xiaomi 13 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-snappy-side-hustles-earning-with-snapchat/"><u>In 2024, Snappy Side Hustles Earning with Snapchat</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-xiaomi-redmi-note-13-proplus-5g-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Xiaomi Redmi Note 13 Pro+ 5G Phones</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/unlocking-features-of-finescanner-in-ios-12-expert-insights-from-the-abbyy-community/"><u>Unlocking Features of FineScanner in iOS 12 - Expert Insights From the ABBYY Community</u></a></li>
-<li><a href="https://games-able.techidaily.com/unlocking-the-power-of-assist-controller-on-ps5/"><u>Unlocking the Power of Assist Controller on PS5</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/utilizing-cookiebot-technology-for-improved-online-engagement-analysis/"><u>Utilizing Cookiebot Technology for Improved Online Engagement Analysis</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-strategies-to-combat-the-impact-of-new-facebook-algorithms/"><u>[New] Strategies to Combat the Impact of New Facebook Algorithms</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-seamlessly-posting-online-content-to-ig-storypost/"><u>[Updated] 2024 Approved Seamlessly Posting Online Content to IG Story/Post</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-heritage-on-display-post-copyright-masterpieces/"><u>2024 Approved Heritage on Display Post-Copyright Masterpieces</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/flv-oggmovavi/"><u>網路上無成本轉換 FLV 到 Ogg：Movavi 的優化影片編解碼</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/m1vavi-movavi/"><u>網路上無需支付: M1V到AVI格式自動轉換 - 使用Movavi工具</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726220504391-mp4avi-movavi/"><u>無料でMP4をAVIに変換する - Movaviの簡単なガイドブック</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-convertir-archivos-flv-en-formato-swf-online-sin-coste/"><u>Cómo Convertir Archivos FLV en Formato SWF Online Sin Coste</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-convertir-rapidamente-tu-video-swf-al-formato-mov-sin-costo-con-movavi/"><u>Cómo Convertir Rápidamente Tu Vídeo SWF Al Formato MOV Sin Costo Con Movavi</u></a></li>
+<li><a href="https://win-webster.techidaily.com/download-multiformat-earthcam-footage-in-mp4-wmv-mov-avi-and-more/"><u>Download Multiformat EarthCam Footage in MP4, WMV, MOV, AVI, and More</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/editing-excess-strategies-to-clean-up-oversized-tiktok-drafts/"><u>Editing Excess Strategies to Clean Up Oversized TikTok Drafts</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-realme-12plus-5g-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Realme 12+ 5G</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-iphone-11-in-lost-mode-drfone-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock iPhone 11 in Lost Mode | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/opgeluchtende-loodsen-omzettingen-ogg-naar-mp4v-vrij-en-tafeleigend-via-movavi/"><u>Opgeluchtende Loodsen Omzettingen Ogg Naar Mp4v - Vrij en Tafeleigend via Movavi</u></a></li>
 </ul></div>
 

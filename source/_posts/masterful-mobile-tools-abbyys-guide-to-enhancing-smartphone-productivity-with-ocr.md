@@ -1,7 +1,7 @@
 ---
 title: "Masterful Mobile Tools: ABBYY's Guide to Enhancing Smartphone Productivity with OCR"
-date: 2024-10-04T17:41:28.526Z
-updated: 2024-10-08T19:46:39.449Z
+date: 2024-10-11T16:17:19.911Z
+updated: 2024-10-14T21:50:59.297Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0138e2483878b61786c62e2e9ead335ddaa2649c1800ba21659cf76cde33dc5d.jpg
@@ -39,10 +39,10 @@ While performing an action, double-tap on the screen to stop or resume it. For e
 ![iOS Teach iPhone to Speak](https://static1.abbyy.com/abbyycommedia/26061/voiceover_on_ios_thumb800-e1509381685695.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Here’s how you activate VoiceOver. Head to **Settings** \> **General** \> **Accessibility** and triple-tap the Home button to start using [VoiceOver](https://www.apple.com/accessibility/iphone/vision/). You will hear a description of everything displayed on the screen: the battery level, the Caller ID, and even the name of the app you are about to open. You can also adjust the speaking rate and pitch.
@@ -57,19 +57,6 @@ And a couple of more perks:
 4. [VoiceOver](https://www.apple.com/accessibility/iphone/vision/) supports 6-dot and 8-dot Braille symbols and does not require an external Braille keyboard.
 
 Summing up: [VoiceOver](https://www.apple.com/accessibility/iphone/vision/) helps you to fully control your device without even seeing the screen. The smartphone will tell you what is happening. By the way, all ABBYY-developed apps also support [VoiceOver](https://www.apple.com/accessibility/iphone/vision/), and [TextGrabber](https://textgrabber.app.link/mobilemonday), a must-have for vision-impaired users, is no exception.
-
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Android Tip: Teaching Your Android Phone to Speak**
 
@@ -102,10 +89,10 @@ After activating [TalkBack](https://play.google.com/store/apps/details?id=com.go
 ![TalkBack app Android settings](https://static1.abbyy.com/abbyycommedia/26064/android_7_nougat_talkback_fig_10-e1509384740886.png)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 For more details on [TalkBack](https://play.google.com/store/apps/details?id=com.google.android.marvin.talkback&hl=en) and its capabilities, please visit [this help page](https://support.google.com/accessibility/android/answer/6283677?hl=en). ABBYY TextGrabber for both Android and iOS uses screen reading features to help vision-impaired users. You can also automatically copy the recognized text to the clipboard and listen to it in your headphones or via third-party apps.
@@ -122,10 +109,10 @@ There are two ways to export business cards from [Business Card Reader](https://
 ![Busines Card Reader (Scanner) Abbyy](https://static1.abbyy.com/abbyycommedia/26066/image-1-e1509384965944.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 On an Android device:
@@ -136,8 +123,22 @@ On an Android device:
 ![](https://static1.abbyy.com/abbyycommedia/37169/mceclip1.png)
 2. Tap the Share button > select Export to CSV > MS Outlook or Google Contacts.  
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://static1.abbyy.com/abbyycommedia/37170/mceclip2.png)
 3. The file will be created automatically. Now you can share it with anyone right away!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 To open a CSV file with the business cards in MS Excel, choose the file in **File Explorer**. If your system settings prevent the contents of the file from being displayed correctly, do the following:
 
@@ -159,13 +160,6 @@ It’s that simple!
 You can use the list of your results to create reports for employers if you work at an hourly rate. Now you can measure how long different activities take, so you'll know what deadlines to set for your future tasks.
 
 But that's not all![Hourly](https://apps.apple.com/us/app/hourly-time-and-task-manager/id1308461936) can also send reminders to take breaks, which is also essential. .
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 And finally, why Hourly?
 
@@ -191,16 +185,16 @@ You are welcome.:)
 
 ![undo typing iOS calculator Abbyy](https://static1.abbyy.com/abbyycommedia/26070/calc_2x_1024-e1509385642453.png)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 That’s all for today, guys. As usual, the next issue of this newsletter will be out next Monday. The previous issue is available [here](https://tools.techidaily.com/abbyy/products/).
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Like, share or repost
 
@@ -266,22 +260,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-video-gathering-made-easy-top-5-no-cost-online-downloaders/"><u>[New] Video Gathering Made Easy Top 5 No-Cost, Online Downloaders</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-easy-effective-strategy-immediate-clearance-of-unwanted-youtube-comments-for-2024/"><u>[Updated] Easy, Effective Strategy Immediate Clearance of Unwanted YouTube Comments for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-from-data-to-drama-utilizing-google-trends-in-video-planning/"><u>2024 Approved From Data to Drama Utilizing Google Trends in Video Planning</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-solutions-optimize-your-sites-traffic/"><u>Cookiebot-Driven Solutions: Optimize Your Site's Traffic</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-website-optimization-elevating-your-online-presence/"><u>Cookiebot-Driven Website Optimization: Elevating Your Online Presence</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-customized-user-experience/"><u>Cookiebot-Enabled Customized User Experience</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-success-boosting-web-analytics-and-conversion/"><u>Cookiebot-Enabled Success: Boosting Web Analytics and Conversion</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhance-user-experience-with-personalized-website-analytics/"><u>Cookiebot-Enabled: Enhance User Experience with Personalized Website Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-sites-personalization-and-analytics/"><u>Cookiebot-Enabled: Enhancing Your Site's Personalization & Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-optimize-your-site-with-advanced-tracking-solutions/"><u>Cookiebot-Enabled: Optimize Your Site with Advanced Tracking Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-optimize-your-websites-analytics-and-personalization/"><u>Cookiebot-Enabled: Optimize Your Website's Analytics and Personalization</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/excel-stuck-at-opening-file-0-resolve-performance-issues-by-stellar-guide/"><u>Excel Stuck at Opening File 0 - Resolve Performance Issues</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/from-pcmac-to-the-feed-how-to-efficiently-upload-videos-to-instagram/"><u>From PC/Mac to the Feed How to Efficiently Upload Videos to Instagram</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/mac-graphics-revolution-top-10-freeware-drawings-for-2024/"><u>Mac Graphics Revolution Top 10 Freeware Drawings for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/navigating-video-conversion-in-vlc-from-mp4-onward/"><u>Navigating Video Conversion in VLC From MP4 Onward</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/reimagining-stills-as-continuous-motion-sessions/"><u>Reimagining Stills as Continuous Motion Sessions</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-from-apple-iphone-13-pro-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock from Apple iPhone 13 Pro</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-illustrating-a-novel-tiktok-end-slide/"><u>[Updated] 2024 Approved Illustrating A Novel TikTok End Slide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/best-screen-recorder-for-chrome-devices/"><u>Best Screen Recorder for Chrome Devices</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/first-impressions-of-the-amazfit-bip-a-comprehensive-look-at-a-value-packed-smartwatch-for-beginners/"><u>First Impressions of the Amazfit Bip: A Comprehensive Look at a Value-Packed Smartwatch for Beginners</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/gartners-2023-magic-quadrant-acknowledges-abbyy-as-the-preeminent-leader-in-process-mining-technology/"><u>Gartner's 2023 Magic Quadrant Acknowledges ABBYY as the Preeminent Leader in Process Mining Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/how-abbyys-powerful-technology-secures-a-spot-on-cio-100-mastering-the-source-to-pay-process/"><u>How ABBYY's Powerful Technology Secures a Spot on CIO 100: Mastering the Source-to-Pay Process</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-rectify-error-0x0000011b-on-your-windows-11-pc/"><u>How to Rectify Error 0X0000011B on Your Windows 11 PC</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-honor-magic-5-lite-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Honor Magic 5 Lite to iPod | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-proven-tactic-combining-gopro-footage-in-seamless-virtual-reality-experience/"><u>In 2024, Proven Tactic Combining GoPro Footage in Seamless Virtual Reality Experience</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/innovative-strategies-for-advancing-process-enhancement-amidst-covid-19-and-future-challenges/"><u>Innovative Strategies for Advancing Process Enhancement Amidst COVID-19 & Future Challenges</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/la-charge-innovante-de-labbyy-sdk-une-integration-fluide-pour-le-recuperation-en-temps-reel-des-informations/"><u>La Charge Innovante De L'ABBYY SDK: Une Intégration Fluide Pour Le Récupération en Temps Réel Des Informations</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-tailored-content-delivery-and-seo-success/"><u>Leveraging Cookiebot Technology for Tailored Content Delivery and SEO Success</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-tailored-web-experiences/"><u>Leveraging Cookiebot Technology for Tailored Web Experiences</u></a></li>
+<li><a href="https://program-issues.techidaily.com/madden-nfl-2e-troubleshooting-pc-issues-and-preventing-crashes/"><u>Madden NFL 2E - Troubleshooting PC Issues and Preventing Crashes</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-motorola-moto-g73-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Motorola Moto G73 5G Black and White | Dr.fone</u></a></li>
 </ul></div>
 

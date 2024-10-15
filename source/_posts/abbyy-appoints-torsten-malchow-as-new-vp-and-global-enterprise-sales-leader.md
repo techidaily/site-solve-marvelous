@@ -1,7 +1,7 @@
 ---
 title: ABBYY Appoints Torsten Malchow as New VP and Global Enterprise Sales Leader
-date: 2024-10-07T16:14:52.605Z
-updated: 2024-10-08T17:12:08.714Z
+date: 2024-10-12T00:24:01.708Z
+updated: 2024-10-14T16:55:10.250Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a50d24fd1a27318344d95b256.jpg
@@ -79,28 +79,21 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-crafting-effective-in-stream-ad-campaigns-on-facebook-a-comprehensive-guide/"><u>[New] In 2024, Crafting Effective In-Stream Ad Campaigns on Facebook A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-achieve-professional-level-youtube-transcription-without-spending/"><u>[Updated] 2024 Approved Achieve Professional-Level YouTube Transcription Without Spending</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-expert-tips-for-crafting-professional-slug-line-notations/"><u>[Updated] 2024 Approved Expert Tips for Crafting Professional Slug Line Notations</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-alternatives-to-googles-ar-interactive-graphics/"><u>[Updated] Alternatives to Google's AR Interactive Graphics</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-seamless-creation-accessing-elite-afx-templates-for-free-for-2024/"><u>[Updated] Seamless Creation Accessing Elite AFX Templates for Free for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/6acc57sa5ywn6lk75zyo57q6keg6akr5ymq6l6r5bel5yw35rif5y2v77ya5bc95bplusr5lyy5yyw5oko55qe5b2x54mh5l2t6aqm/"><u>頂級免費在线视频剪辑工具清单：尽快优化您的影片体验</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/aide-a-la-conversion-en-ligne-changer-votre-fichier-ogg-en-aiff-sans-frais-solution-de-movavi/"><u>Aide À La Conversion en Ligne : Changer Votre Fichier Ogg en Aiff Sans Frais, Solution De Movavi</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/best-8-stream-modifiers-for-flawless-webcam-videos/"><u>Best 8 Stream Modifiers for Flawless Webcam Videos</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/descargar-y-convertir-videos-de-ogv-a-formato-mpeg-completamente-libres-desde-la-web/"><u>Descargar Y Convertir Videos De OGV a Formato MPEG Completamente Libres Desde La Web</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/eficientes-metodos-para-hacer-selecciones-de-captura-en-windows-10/"><u>Eficientes Métodos Para Hacer Selecciones De Captura en Windows 10.</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/experience-ultimate-housewide-internet-with-orbi-tri-band-mesh-wi-fi-system-a-comprehensive-evaluation/"><u>Experience Ultimate Housewide Internet with Orbi Tri-Band Mesh Wi-Fi System - A Comprehensive Evaluation</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-how-to-make-money-with-a-beauty-channel/"><u>In 2024, How to Make Money with a Beauty Channel?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-apple-iphone-6-properly-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your Apple iPhone 6 Properly</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/metamorphose-de-fichier-transformez-votre-mp3-gratuitement-en-mp4-sur-internet-via-movavi/"><u>Métamorphose De Fichier : Transformez Votre MP3 Gratuitement en MP4 Sur Internet via Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/tudo-sobre-o-cortador-de-mp3-da-movavi-funcionamento-download-e-tecnicas-de-baixar-com-maior-sucesso/"><u>Tudo Sobre O Cortador De Mp3 Da Movavi: Funcionamento, Download E Técnicas De Baixar Com Maior Sucesso</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mov-m4v/"><u>무료 MOV M4V 파일 변환기 - 화면을 위한 원활한 이미지로 전환하는 가장 최신 도구</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-complete-beginners-guide-to-creating-impressive-macro-videos/"><u>[New] The Complete Beginner's Guide to Creating Impressive Macro Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-high-end-handheld-video-gear-tops-list/"><u>[Updated] High-End Handheld Video Gear Tops List</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-optimizing-your-site-with-advanced-tracking-technology/"><u>Cookiebot: Optimizing Your Site with Advanced Tracking Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-the-secret-ingredient-for-optimized-user-experience/"><u>Cookiebot: The Secret Ingredient for Optimized User Experience</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/creating-user-friendly-navigation-the-power-of-efficient-page-management/"><u>Creating User-Friendly Navigation: The Power of Efficient Page Management</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/drive-more-leads-using-the-efficient-cookiebot-analytics-system/"><u>Drive More Leads Using the Efficient Cookiebot Analytics System</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/lut-enthusiasts-delight-free-bundles-with-dji-minis-and-air-2/"><u>LUT Enthusiasts' Delight – Free Bundles with DJI Minis & Air 2</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unleashing-androids-audio-potential-mastering-the-art-of-ringtones-and-sounds-for-2024/"><u>Unleashing Android's Audio Potential Mastering the Art of Ringtones & Sounds for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

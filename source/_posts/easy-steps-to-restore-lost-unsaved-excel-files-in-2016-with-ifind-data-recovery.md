@@ -1,7 +1,7 @@
 ---
 title: Easy Steps to Restore Lost Unsaved Excel Files in 2016 with IFind Data Recovery
-date: 2024-10-15T16:15:00.578Z
-updated: 2024-10-20T16:29:12.973Z
+date: 2024-10-21T20:06:22.673Z
+updated: 2024-10-26T11:19:06.948Z
 tags:
   - product
 categories:
@@ -24,6 +24,13 @@ We expand our office recovery series to Excel recovery this week, and with the m
 
 Unlike the office word, Excel is all about tables and calculations. You may face more problems when dealing with excel files. As always, we give you some tips for how to get them back and how to Not lose them.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## how to recover unsaved excel file 2016/2013/2007?
 
 As a part of Microsoft office, the recovery of excel is very similar with office word. In case you read this before our office word tips, here is the detailed step by step methods to help you to recover excel file not saved.
@@ -33,26 +40,26 @@ As a part of Microsoft office, the recovery of excel is very similar with office
 ![excel autosave](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-autosave.jpg?resize=680%2C269&ssl=1)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Autosave is a new function for Office 365 which allows the Microsoft Excel to save your Xls/Xlsx files automatically on your cloud drives like OneDrive or SharePoint.
 
 With this feature, Recover Autosave Excel is easy and self-acting, The Excel will save your working files every few seconds. You can even find some previous versions if you need a restore.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Recover Unsaved excel Documents From Excel Autorecover
 
 ![excel autorecover](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-autorecover-e1553241342364.jpg?resize=680%2C238&ssl=1)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Excel Autorecover is a building-in function of Microsoft office(2003-2016) for saving your file copy at a custom setup period automatically. You can use these copies to recover your unsaved Excel documents when you forgot to save the excel document, your excel crashed, or your Computer suddenly shut down.
 
@@ -67,13 +74,6 @@ Excel Autorecover is a building-in function of Microsoft office(2003-2016) for s
 **File** – **Open** – **Files of type** – **All Files**
 
 ![Files of type](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/02/Files-of-type.jpg?resize=640%2C202&ssl=1)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * [Excel 2007](https://tools.techidaily.com/ifind-recovery/products/)
 
@@ -91,42 +91,21 @@ If not, you can still go to “Manage Workbook” to open the unsaved files.
 
 ![recover unsaved workbooks](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/recover-unsaved-workbooks.jpg?resize=800%2C299&ssl=1)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 3: Recover Unsaved excel Documents From Excel backup files
 
 First, you need to select the “Always create backup” option in File – Save As – Tool – General Options.
 
 ![excel-saveas](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-saveas.jpg?resize=800%2C165&ssl=1)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![excel-backup-options](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-backup-options.jpg?resize=800%2C267&ssl=1)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-backup-options2.jpg?resize=800%2C194&ssl=1)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Then, the Excel will store a \*.xlk backup file for you. So you have a chance to recover the unsaved files by using these backup files.
@@ -136,6 +115,19 @@ Then, the Excel will store a \*.xlk backup file for you. So you have a chance to
 ### Method 4: Recover Unsaved excel Documents From windows previous versions
 
 **Related Tip: [Restore Deleted Files With Previous Versions Tabs In Windows](https://tools.techidaily.com/ifind-recovery/products/)**
+
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 5: Recover Unsaved excel Documents From iFinD data recovery
 
@@ -159,6 +151,13 @@ Andy is an editor of the iFinD Team. She worked in this big family since her gra
 
 [![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/10/How-To-Recover-Deleted-Photos-Pictures-From-SD-Card-1.jpg?fit=640%2C426&ssl=1&resize=350%2C200)](https://tools.techidaily.com/ifind-recovery/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### [How to Recover Deleted Photos from a Formatted/Corrupted SD Card for Free?](https://tools.techidaily.com/ifind-recovery/products/)
 
 October 31, 2018
@@ -166,6 +165,13 @@ October 31, 2018
 In "Knowledge Base"
 
 [![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/Windows_10.png?fit=1025%2C576&ssl=1&resize=350%2C200)](https://tools.techidaily.com/ifind-recovery/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### [How To Recover Permanently Deleted Files in Windows PC & Prevent Data Loss Forever | 2024?](https://tools.techidaily.com/ifind-recovery/products/)
 
@@ -198,19 +204,21 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2019-03-29T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-building-a-solid-base-for-higher-instagram-video-view-counts/"><u>[Updated] In 2024, Building a Solid Base for Higher Instagram Video View Counts</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-creating-compelling-hauls-techniques-for-an-engaging-viewing-experience/"><u>2024 Approved Creating Compelling Hauls Techniques for an Engaging Viewing Experience</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-top-pages-for-stylish-shiny-3d-type-creations/"><u>2024 Approved Top Pages for Stylish, Shiny 3D Type Creations</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/discovering-the-creative-world-of-hester-an-in-depth-author-biography/"><u>Discovering the Creative World of Hester: An In-Depth Author Biography</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/ersetzen-sie-chronosync-kostenlos-unter-windows-die-besten-alternativen-fur-versionen-11-8-und-7-entdecken/"><u>Ersetzen Sie ChronoSync Kostenlos Unter Windows: Die Besten Alternativen Für Versionen 11, 8 Und 7 Entdecken</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/immerse-yourself-without-breaking-the-bank-essential-guides-to-economical-home-cinema-kits/"><u>Immerse Yourself Without Breaking the Bank: Essential Guides to Economical Home Cinema Kits</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-samsung-galaxy-s23-fe-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Samsung Galaxy S23 FE is off? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/losungen-fur-windows-11-automatisierte-fehlerbehebung-fehlgeschlagen-schritte-zum-wiederherstellen-der-funktionalitat/"><u>Lösungen Für Windows 11: Automatisierte Fehlerbehebung Fehlgeschlagen – Schritte Zum Wiederherstellen Der Funktionalität</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/migrazione-semplice-di-ssd-per-windows-11-il-migliore-strumento-di-trasferimento/"><u>Migrazione Semplice Di SSD per Windows 11: Il Migliore Strumento Di Trasferimento</u></a></li>
-<li><a href="https://discover-best.techidaily.com/solution-guide-for-non-functional-audio-playback-on-iphones-ipads-ipods-and-android-phones/"><u>Solution Guide for Non-Functional Audio Playback on iPhones, iPads, iPods, and Android Phones</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/soluzione-al-problema-impossibilita-di-eseguire-il-backup-del-sistema-operativo-su-ununita-usb-esterna/"><u>Soluzione Al Problema: Impossibilità Di Eseguire Il Backup Del Sistema Operativo Su Un'unità USB Esterna</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ssd-data-recovery-provenle-strategieen-om-voorkomende-deegels-van-je-zelf-terug-te-trekken-in-vuur-soepel/"><u>SSD Data Recovery: Provenle Strategieën Om Voorkomende Deegels Van Je Zelf Terug Te Trekken In Vuur Soepel</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/step-by-step-instructions-for-copying-qnap-nas-content-onto-an-outside-hard-disk/"><u>Step-by-Step Instructions for Copying QNAP NAS Content Onto an Outside Hard Disk</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/top-10-historical-youtube-hubs-essential-viewing-for-students-and-enthusiasts/"><u>Top 10 Historical YouTube Hubs Essential Viewing For Students & Enthusiasts</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-change-snapchat-voice-in-minutes-using-twin-methods/"><u>[New] In 2024, Change Snapchat Voice in Minutes Using Twin Methods</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-steps-to-ensure-obs-captures-sound-effectively/"><u>[New] In 2024, Steps to Ensure OBS Captures Sound Effectively</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expertise-in-cutting-edge-encoders-for-live-media/"><u>2024 Approved Expertise in Cutting-Edge Encoders for Live Media</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cost-effective-strategies-understanding-data-recovery-expenses-and-prevention-with-ifind-solutions/"><u>Cost-Effective Strategies: Understanding Data Recovery Expenses & Prevention with iFinD Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-photographers-domain-posting/"><u>Deciphering Photographer's Domain Posting</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/error-404-the-pages-youre-searching-for-cant-be-found/"><u>Error 404: The Pages You're Searching For Can't Be Found</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/final-cut-face-off-what-sets-pro-apart-from-express/"><u>Final Cut Face-Off What Sets Pro Apart From Express</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/ifinds-top-picks-ultimate-list-of-5-leading-programs-to-recover-unrecognized-allocated-and-deleted-sectors-in-windowsmacos-systems/"><u>IFind's Top Picks: Ultimate List of 5 Leading Programs to Recover Unrecognized, Allocated and Deleted Sectors in Windows/macOS Systems</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/locating-and-accessing-your-iphone-backup-files-on-macos-and-windows-systems/"><u>Locating and Accessing Your iPhone Backup Files on macOS & Windows Systems</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/minimizing-disorientation-your-vr-wellbe-written-guide/"><u>Minimizing Disorientation Your VR Wellbe Written Guide</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/recover-lost-documents-on-your-pcs-c-and-d-drives-for-free-with-ifind-no-need-for-previous-back-ups/"><u>Recover Lost Documents on Your PC's C and D Drives for Free with iFinD - No Need for Previous Back-Ups!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/resolved-how-to-fix-iphone-13-or-12-connectivity-issues-with-itunes-on-pcs-and-macs/"><u>Resolved - How to Fix iPhone 13 or 12 Connectivity Issues with iTunes on PCs and Macs</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/timekeeping-tutorial-setting-up-a-timer-in-obs-studio-for-2024/"><u>Timekeeping Tutorial Setting Up a Timer in OBS Studio for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/ultimate-troubleshooting-guide-resolving-auto-sync-issues-in-outlook-for-mac/"><u>Ultimate Troubleshooting Guide: Resolving Auto-Sync Issues in Outlook for Mac</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/understanding-and-overcoming-limitations-of-formatting-drives-as-fat32-on-windows-11-systems/"><u>Understanding and Overcoming Limitations of Formatting Drives as FAT32 on Windows 11 Systems</u></a></li>
 </ul></div>
 

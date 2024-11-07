@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: Enhancing Your Website's Performance with Advanced Analytics Tools"
-date: 2024-10-14T02:43:29.374Z
-updated: 2024-10-14T16:42:36.441Z
+date: 2024-10-31T22:27:38.692Z
+updated: 2024-11-06T16:23:28.491Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aefba9f0ac6f593076f657b0dfeebc66593ffd1b9ade996e1956601a5424d0a8.jpg
@@ -25,15 +25,22 @@ With the beta launch of ABBYY Vantage, a cloud-first platform of cognitive servi
 
 In this blog post, we want to provide insight into a few of the technology integrations that are already being developed and will be generally available soon. During our [ABBYY Reimagine](https://tools.techidaily.com/abbyy/products/) event, you may have already heard about the great capabilities Vantage has, but it gets even better. When Vantage is combined with other powerful technologies, it allows enterprises to further realize the benefits of combining AI technology for understanding documents with a larger end-to-end to solution. The combined technology not only has a major impact on operations but the customer experience as well.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Cognitive virtual assistants
 
 One of the first connector integrations we love is incorporating the ABBYY Vantage experience with a virtual assistant to take the customer journey to the next level. By combining voice, conversational AI, and document intelligence by way of Vantage Document Skills into a unified mobile experience, virtual assistants are able to deliver great service to a customer without needing an agent. Take a look at the [Cognigy](https://www.cognigy.com/) video explaining it below!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Automation of screens and IT operations
@@ -50,13 +57,6 @@ RPA bots are great for automating simple, repetitive tasks, but imagine if robot
 
 If you are looking to enhance and upgrade your SAP cloud environment, Incutre's [Cherrywork platform](https://incture.com/cherrywork-intelligent-digital-applications/) provides enterprises with pre-packaged and ready-to-deploy intelligent digital applications, and also seamlessly integrates with ABBYY Vantage. With a click of a button, you can enable your SAP cloud with the ability to understand documents and structure data that can be integrated into your SAP processes.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Tapping into the power of the Microsoft Power platform
 
 Power Automate has made big strides in bringing automation to every business user, providing Microsoft partners with an opportunity to connect other technologies and services into the automation platform. One ABBYY partner who has done just that is [Roborana](https://roborana.be/), who has developed a Vantage Connector to the Power Automate platform for building an end-to-end solution. Take a look below to see how this great Power App came together and how easy and seamless it is to connect Vantage to the Power Automate platform.
@@ -66,6 +66,19 @@ Power Automate has made big strides in bringing automation to every business use
 The [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/) offers an open ecosystem where partners can publish connectors, trained [cognitive skills](https://tools.techidaily.com/abbyy/products/), and other assets that enhance and extend the ABBYY Vantage platform and accelerate the digital transformation and automation initiatives of enterprises of any size, industry, and geography. All the connectors mentioned above will be available on the ABBYY Marketplace at the time of public launch!
 
 ![preview ABBYY Marketplace](https://static1.abbyy.com/abbyycommedia/32870/marketplace.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Do you have a great idea for a new Cognitive skill? Want to build a connector for your platform? Reach out to us and we’ll gladly help you get started!
 
@@ -79,13 +92,6 @@ Bill Galusha
 
 ![](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Maxime Vermeir
 
 Senior Director of AI Strategy
@@ -96,14 +102,14 @@ Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 
 ![](https://static4.abbyy.com/abbyycommedia/32000/stefanschmainta-198x198.png)
 
-Stefan Schmainta
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Stefan Schmainta
 
 ### Like, share or repost
 
@@ -168,20 +174,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-dive-into-time-lapse-with-advanced-canon-tactics/"><u>[New] In 2024, Dive Into Time-Lapse with Advanced Canon Tactics</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-revolutionize-your-social-media-strategy-use-free-video-creation-kit/"><u>[Updated] 2024 Approved Revolutionize Your Social Media Strategy – Use Free Video Creation Kit</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-game-on-a-comprehensive-guide-to-xbox-one-captures/"><u>[Updated] In 2024, Game On A Comprehensive Guide to Xbox One Captures</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-maximizing-youtube-visibility-with-key-hashtags/"><u>[Updated] In 2024, Maximizing YouTube Visibility with Key #Hashtags</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-top-asmr-equipment-for-thoughtful-shoppers-seeking-performance/"><u>2024 Approved Top ASMR Equipment for Thoughtful Shoppers Seeking Performance</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726226530662-mkv-wav-movavi/"><u>網路上自由改建 MKV成 WAV - 使用Movavi音頻編輯器</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726218787890-flvaac-movavi/"><u>無成本線上FLV到AAC格式的直鮮轉換器 - 使用Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/facil-e-gratuit-mudando-mp4-em-ogv-direto-no-movavi-sem-custo-algum/"><u>Fácil E Gratuit@! Mudando MP4 Em OGV Direto No Movavi Sem Custo Algum</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gratuiti-download-e-conversione-da-mp4-a-m4b-con-movavi-il-tuo-passaggio-online-per-i-podcast-e-gli-audio-libri/"><u>Gratuiti Download E Conversione Da MP4 a M4B Con Movavi – Il Tuo Passaggio Online per I Podcast E Gli Audio Libri</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-essential-tips-for-using-instagrams-sound-emojis/"><u>In 2024, Essential Tips for Using Instagram's Sound Emojis</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-streamline-your-workflow-learn-to-record-macs-screen-with-shortcuts/"><u>In 2024, Streamline Your Workflow Learn to Record Mac's Screen with Shortcuts</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/movavis-gratuite-webvorm-reconversie-tool-voor-m1v-naar-avi-fichieren-beste-ontwikkelingen/"><u>Movavi's Gratuite Webvorm Reconversie Tool Voor M1V Naar Avi Fichieren - Beste Ontwikkelingen</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/najlepsi-bezcenne-prekonvertovatelnosti-pro-zakoreny-system-mac/"><u>Najlepší Bezcenné Prekonvertovatelnosti Pro Zákořený Systém - Mac</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/what-is-ai-prompt-engineering-unveiling-its-potential-as-a-stable-job-market-prospect/"><u>What Is AI Prompt Engineering? Unveiling Its Potential as a Stable Job Market Prospect</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/avi-mp4-online/"><u>무료 AVI 파일을 MP4로 바꾸기 - Online 변환 도구</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-innovative-strategies-for-logging-overwatch-skirmishes/"><u>[New] In 2024, Innovative Strategies for Logging Overwatch Skirmishes</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mystery-of-missing-movies-a6400s-quandary/"><u>[Updated] 2024 Approved Mystery of Missing Movies A6400's Quandary</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cost-effective-strategies-understanding-data-recovery-expenses-and-prevention-with-ifind-solutions/"><u>Cost-Effective Strategies: Understanding Data Recovery Expenses & Prevention with iFinD Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effiziente-datensicherung-perfectclone-komplikationsfreies-klonen-von-festplatten-auf-virtualen-maschinen/"><u>Effiziente Datensicherung: PerfectClone - Komplikationsfreies Klonen Von Festplatten Auf Virtualen Maschinen!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/error-404-the-pages-youre-searching-for-cant-be-found/"><u>Error 404: The Pages You're Searching For Can't Be Found</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210133155-9781591434283-first-nations-crystal-healing/"><u>First Nations Crystal Healing | Free Book</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/ifinds-top-picks-ultimate-list-of-5-leading-programs-to-recover-unrecognized-allocated-and-deleted-sectors-in-windowsmacos-systems/"><u>IFind's Top Picks: Ultimate List of 5 Leading Programs to Recover Unrecognized, Allocated and Deleted Sectors in Windows/macOS Systems</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-interactive-aspects-adjustment-service/"><u>In 2024, Interactive Aspects Adjustment Service</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/incrementales-windows-7-backup-fur-geanderte-dateien-effizient-sichern/"><u>Incrementales Windows 7-Backup Für Geänderte Dateien Effizient Sichern</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/iphonepcwindows5/"><u>IPhoneがPCに表示されない？：Windows上で対処すべき5つの原因と手順</u></a></li>
+<li><a href="https://os-tips.techidaily.com/keeping-private-how-to-set-a-password-on-your-iphones-note-app-for-added-security/"><u>Keeping Private: How to Set a Password on Your iPhone's Note App for Added Security</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/locating-and-accessing-your-iphone-backup-files-on-macos-and-windows-systems/"><u>Locating and Accessing Your iPhone Backup Files on macOS & Windows Systems</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/slash-your-budget-for-ultimate-game-sound-immersion-get-an-exclusive-150-discount-on-elite-speaker-systems-featured-by-zdnet/"><u>Slash Your Budget for Ultimate Game Sound Immersion – Get an Exclusive $150 Discount on Elite Speaker Systems, Featured by ZDNet</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-9-drone-video-editing-software-for-different-level-for-2024/"><u>Top 9 Drone Video Editing Software for Different Level for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-rated-laptops-for-professional-video-editors-comprehensive-reviews-and-comparisons/"><u>Top-Rated Laptops for Professional Video Editors: Comprehensive Reviews & Comparisons</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/ultimate-troubleshooting-guide-resolving-auto-sync-issues-in-outlook-for-mac/"><u>Ultimate Troubleshooting Guide: Resolving Auto-Sync Issues in Outlook for Mac</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/understanding-and-overcoming-limitations-of-formatting-drives-as-fat32-on-windows-11-systems/"><u>Understanding and Overcoming Limitations of Formatting Drives as FAT32 on Windows 11 Systems</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723212293023-windows-7-startup-woes-heres-how-to-get-faster-boot-speeds/"><u>Windows 7 Startup Woes? Here's How to Get Faster Boot Speeds</u></a></li>
 </ul></div>
 

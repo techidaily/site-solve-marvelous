@@ -1,7 +1,7 @@
 ---
 title: ABBYYとPwCコンサルティングがAI・OCR技術による新しいパートナーシップを結ぶ
-date: 2024-10-07T20:41:07.551Z
-updated: 2024-10-14T18:51:20.875Z
+date: 2024-11-04T21:05:48.986Z
+updated: 2024-11-07T00:28:07.319Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a88766153a92e1f9e8401a4428c9fb.jpg
@@ -67,22 +67,25 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-comprehensive-analysis-dji-inspire-1-unveiled/"><u>[New] Comprehensive Analysis DJI Inspire 1 Unveiled</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-mastering-your-sound-with-the-compreenas-complete-morphvox-guidebook/"><u>[New] Mastering Your Sound with the Compreenas Complete MorphVOX Guidebook</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-simplifying-vfx-with-magix-video-pro-x/"><u>[Updated] Simplifying VFX with Magix Video Pro X</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-ultimate-story-blueprints-across-8-movie-sectors/"><u>2024 Approved Ultimate Story Blueprints Across 8 Movie Sectors</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/convert-videos-effortlessly-with-movavis-no-cost-nsv-to-mp4-tool-do-it-online/"><u>Convert Videos Effortlessly with Movavi's No-Cost NSV to MP4 Tool - Do It Online!</u></a></li>
-<li><a href="https://driver-download.techidaily.com/install-hps-thunderbolt-dock-g2-firmware-for-your-120-watt-and-230-watt-devices-today/"><u>Install HP's Thunderbolt Dock G2 Firmware for Your 120-Watt and 230-Watt Devices Today</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/overcoming-warzone-stutter-a-step-by-step-guide-to-resolve-screenshots-and-shakes/"><u>Overcoming Warzone Stutter: A Step-by-Step Guide to Resolve Screenshots and Shakes</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/scarica-e-converti-i-tuoi-amv-in-file-mp3-gratuitamente-con-movavi/"><u>Scarica E Converti I Tuoi AMV in File MP3 Gratuitamente Con Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/trasforma-pbm-in-formato-bmp-online-gratuitamente-il-guida-completa-di-movavi/"><u>Trasforma PBM in Formato BMP Online Gratuitamente: Il Guida Completa Di Movavi!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/vod-in-ogg-vorbis-format-vob-to-high-quality-lossless-audio-flac-free-conversion-tool-by-movavi/"><u>VOD in Ogg Vorbis Format (VOB) to High-Quality Lossless Audio (FLAC): Free Conversion Tool by Movavi</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-focused-frame-capture-leading-cams-for-slow-movement-recording/"><u>[New] 2024 Approved Focused Frame Capture Leading Cams for Slow Movement Recording</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-joymakerbox-sign-up-share-smiles-create-for-2024/"><u>[New] JoyMakerBox Sign Up, Share Smiles, Create for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/amplifying-obs-visual-appeal-with-free-high-quality-luts/"><u>Amplifying OBS Visual Appeal with Free, High-Quality LUTs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/best-5-ios-apps-for-efficient-podcasting/"><u>Best 5 iOS Apps for Efficient Podcasting</u></a></li>
+<li><a href="https://games-able.techidaily.com/budget-friendly-boards-next-gen-gaming-companions/"><u>Budget-Friendly Boards: Next Gen Gaming Companions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-converter-transforming-mod-files-into-wmv-format-with-ease/"><u>Free Online Converter: Transforming MOD Files Into WMV Format with Ease</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723211140305-master-the-trick-to-keep-your-cs-go-game-running-smoothly/"><u>Master the Trick to Keep Your CS GO Game Running Smoothly!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/meilleures-solutions-logicielles-pour-confectionner-les-plus-efficaces-intros-de-youtube-top-5-classes/"><u>Meilleures Solutions Logicielles Pour Confectionner Les Plus Efficaces Intros De YouTube - Top 5 Classés</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/retoucher-en-pointe-sur-mac-decouvrez-la-gamme-de-logiciels-preferes-de-movavi-pour-une-experience-photographique-ultime/"><u>Retoucher en Pointe Sur Mac : Découvrez La Gamme De Logiciels Préférés De Movavi Pour Une Expérience Photographique Ultime</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-ultimate-list-of-androids-best-music-video-apps-for-2024/"><u>The Ultimate List of Android's Best Music Video Apps for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ultra-hd-delight-choosing-the-5-best-for-color-precision/"><u>Ultra HD Delight Choosing the 5 Best for Color Precision</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1726224306504-jpeg-movavi/"><u>오픈소스에서 간품 무료 JPEG 변환 - Movavi 법칙</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/iuocquodsplusodqeocpoodsplusobpplusoctplusodsplusodlplusodqplusobquocouocrplusocuplusocutog6ieq55sx44gr6yg444kt44gg6zplusz5qw944ks44or44k944kz44oz44g457ch5y22/"><u>オンラインでシンプルなアクセス: 自由に選んだ音楽をパソコンへ簡単無料ダウンロード</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

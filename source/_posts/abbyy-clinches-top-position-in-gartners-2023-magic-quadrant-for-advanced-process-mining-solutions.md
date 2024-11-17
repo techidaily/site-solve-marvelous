@@ -1,7 +1,7 @@
 ---
 title: ABBYY Clinches Top Position in Gartner's 2023 Magic Quadrant for Advanced Process Mining Solutions
-date: 2024-11-02T19:32:57.302Z
-updated: 2024-11-06T17:36:42.550Z
+date: 2024-11-12T06:37:00.693Z
+updated: 2024-11-17T05:05:32.145Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/648356b382a636832a6e99201a4517a582a77b906dab7a37be3d640b5bfda50d.jpg
@@ -43,10 +43,10 @@ _1 Gartner® Magic Quadrant™ for Process Mining Tools, March 20, 2023, ID G007
 _2 Gartner, [Forecast Analysis: Process Mining, Worldwide](https://www.gartner.com/en/documents/4007520), Oct. 26, 2021_
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -60,10 +60,10 @@ ABBYY is a US-based global company with offices in 14 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -71,10 +71,10 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -100,16 +100,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-cash-up-fast-a-newbies-guide-to-the-13-best-reddit-money-hacks/"><u>[New] In 2024, Cash Up Fast A Newbie's Guide to the 13 Best Reddit Money Hacks</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-incredible-trend-trackers-monitor-highest-youtube-spots-for-2024/"><u>[Updated] Incredible Trend Trackers Monitor Highest YouTube Spots for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-edge-it-right-a-list-of-top-borders-in-social-media-photography/"><u>2024 Approved Edge It Right A List of Top Borders in Social Media Photography</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-art-of-straightening-correcting-fisheye-in-gopro-footage/"><u>2024 Approved The Art of Straightening Correcting Fisheye in GoPro Footage</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/6acc57sa5ywn6lk75zyo57q6keg6akr5ymq6l6r5bel5yw35rif5y2v77ya5bc95bplusr5lyy5yyw5oko55qe5b2x54mh5l2t6aqm/"><u>頂級免費在线视频剪辑工具清单：尽快优化您的影片体验</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/aide-a-la-conversion-en-ligne-changer-votre-fichier-ogg-en-aiff-sans-frais-solution-de-movavi/"><u>Aide À La Conversion en Ligne : Changer Votre Fichier Ogg en Aiff Sans Frais, Solution De Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/conversione-gratuita-da-wav-a-3gp-on-line-con-lutilita-convertitore-multimediale-di-movavi-percorso-facile-e-rapido/"><u>Conversione Gratuita Da WAV a 3GP On-Line Con L'utilità Convertitore Multimediale Di Movavi – Percorso Facile E Rapido</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/gain-on-ig-unveiling-high-payoff-content-strategies-for-2024/"><u>Gain on IG Unveiling High-Payoff Content Strategies for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/guia-passo-a-passo-para-criar-e-gravar-videoaulas-em-windows-ou-macos/"><u>Guia Passo-a-Passo Para Criar E Gravar VideoAulas Em Windows Ou macOS</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-on-apple-iphone-12-mini-without-password-by-drfone-ios/"><u>How to Delete iCloud Account On Apple iPhone 12 mini without Password?</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-6-substitutes-for-windows-movie-maker-a-comprehensive-guide/"><u>Top 6 Substitutes for Windows Movie Maker : A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-aural-and-visual-summary-synthesizer/"><u>[Updated] Aural and Visual Summary Synthesizer</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-chasing-the-crash-action-cameras-reviewed/"><u>[Updated] In 2024, Chasing the Crash Action Cameras Reviewed</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-codec-battlegrounds-assessing-the-advantages-of-av1-and-vp9/"><u>2024 Approved Codec Battlegrounds Assessing the Advantages of Av1 and VP9</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1728461407476-windows/"><u>如何在不上网的情况下，用Windows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-apple-watch-series-se-analysis/"><u>Budget-Friendly Apple Watch Series SE Analysis</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-honor-80-pro-straight-screen-edition-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Honor 80 Pro Straight Screen Edition</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/come-ritrovare-i-tuoi-segnalibri-persi-su-chrome-una-guida-passo-passo/"><u>Come Ritrovare I Tuoi Segnalibri Persi Su Chrome: Una Guida Passo-Passo</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/comment-installer-et-utiliser-un-point-de-recuperation-sur-le-serveur-dechange-microsoft/"><u>Comment Installer Et Utiliser Un Point De Récupération Sur Le Serveur D'Échange Microsoft</u></a></li>
+<li><a href="https://win-data.techidaily.com/download-the-top-171plus-free-bootstrap-template-packs-from-creative-tim-enhance-your-project-today/"><u>Download the Top 171+ Free Bootstrap Template Packs From Creative Tim - Enhance Your Project Today!</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effortless-installation-of-scansnap-s1300i-drivers-get-started/"><u>Effortless Installation of ScanSnap S1300i Drivers - Get Started!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/expert-raid-data-restoration-with-ifind-tech-comprehensive-solutions-for-raid-0-1-and-5/"><u>Expert RAID Data Restoration with iFind Tech - Comprehensive Solutions for Raid 0, 1 & 5</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/fixing-missing-physxloaderdll-file-a-step-by-step-solution/"><u>Fixing Missing PhysXLoader.Dll File – A Step-by-Step Solution</u></a></li>
+<li><a href="https://games-able.techidaily.com/game-on-identifying-premier-titles-on-apples-marketplace/"><u>Game On: Identifying Premier Titles on Apple's Marketplace</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mastering-data-revival-with-ifind-software-the-ultimate-manual-for-retrieving-lost-microsoft-word-documents/"><u>Mastering Data Revival with IFind Software: The Ultimate Manual for Retrieving Lost Microsoft Word Documents</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/passaggi-facili-per-il-ripristino-dei-promemoria-sui-dispositivi-iphone-una-guida-completa/"><u>Passaggi Facili per Il Ripristino Dei Promemoria Sui Dispositivi iPhone: Una Guida Completa</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/professionelles-guide-die-effektivsten-methoden-zur-wiederherstellung-von-hdd-partitionen/"><u>Professionelles Guide: Die Effektivsten Methoden Zur Wiederherstellung Von HDD Partitionen.</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/step-by-step-guide-creating-a-bootable-usb-or-hdd-on-windows-11/"><u>Step-by-Step Guide: Creating a Bootable USB or HDD on Windows 11</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-canvas-reborn-spotlight-on-top-6-in-digital-arts/"><u>The Canvas Reborn Spotlight on Top 6 in Digital Arts</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transfer-files-from-windows-7-to-windows-11-a-comprehensive-guide-with-five-methods/"><u>Transfer Files From Windows 7 to Windows 11: A Comprehensive Guide with Five Methods</u></a></li>
 </ul></div>
 

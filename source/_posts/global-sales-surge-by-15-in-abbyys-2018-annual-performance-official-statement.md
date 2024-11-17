@@ -1,7 +1,7 @@
 ---
 title: Global Sales Surge by 15%% in ABBYY's 2018 Annual Performance - Official Statement
-date: 2024-10-10T18:19:15.965Z
-updated: 2024-10-15T02:14:52.088Z
+date: 2024-11-13T21:08:07.644Z
+updated: 2024-11-16T20:05:57.333Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/33904527a6e1718a50027f53fe767c2c1eedacdbdef4cb5558c43f077a848c48.jpg
@@ -64,25 +64,29 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-2023-how-to-share-twitter-videos-on-facebook-in-2024/"><u>[Updated] 2023 | How to Share Twitter Videos on Facebook, In 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-ultimate-test-in-cinematography-gopro-vs-x1000v-action-cam/"><u>[Updated] In 2024, The Ultimate Test in Cinematography GoPro Vs. X1000V Action Cam?</u></a></li>
-<li><a href="https://fox-shield.techidaily.com/comment-faciliter-la-restauration-des-fichiers-utilisant-une-sauvegarde-de-windows-7/"><u>Comment Faciliter La Restauration Des Fichiers Utilisant Une Sauvegarde De Windows 7</u></a></li>
-<li><a href="https://driver-download.techidaily.com/downloading-the-newest-geforce-rtx/"><u>Downloading the Newest GeForce RTX</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/exclusive-2017-festive-season-freebies-win-big-in-our-holiday-gift-draw-and-competition-bonanza/"><u>Exclusive 2017 Festive Season Freebies: Win Big in Our Holiday Gift Draw & Competition Bonanza</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/handbrake-and-av1-is-it-compatible-for-encoding/"><u>HandBrake and AV1: Is It Compatible for Encoding?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-game-based-youtube-earning-guide/"><u>In 2024, Game-Based YouTube Earning Guide</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/movavi-video-composer-fast-and-effortless-editing-software/"><u>Movavi Video Composer: Fast & Effortless Editing Software</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/schlusselkompetenzen-in-der-videobearbeitung-mit-movavi-kompetente-handhabungsanleitungen-stap-fur-stap-lernen-sie-schritt-fur-schritt/"><u>Schlüsselkompetenzen in Der Videobearbeitung Mit Movavi: Kompetente Handhabungsanleitungen Stap-Für-Stap - Lernen Sie Schritt Für Schritt</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/solutions-to-spy-on-apple-iphone-12-mini-with-and-without-jailbreak-drfone-by-drfone-virtual-ios/"><u>Solutions to Spy on Apple iPhone 12 mini with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transformez-vos-fichiers-wtv-en-wmv-gratuitement-sur-internet-utilisation-simple-de-movavi/"><u>Transformez Vos Fichiers WTV en WMV Gratuitement Sur Internet - Utilisation Simple De Movavi</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/why-is-my-computers-fuser-app-keeps-crashing-and-how-to-stop-it/"><u>Why Is My Computer's Fuser App Keeps Crashing and How to Stop It?</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726224009566-wmawebm-movavi/"><u>WMA/WEBM 파일을 원격으로 무료 대체 - Movavi 소프트</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/estrategias-efectivas-para-la-recuperacion-de-sectores-de-almacenamiento-en-windows-o-mac/"><u>«Estrategias Efectivas Para La Recuperación De Sectores De Almacenamiento en Windows O Mac»</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-essential-strategies-preserving-whatsapp-call-recordings/"><u>[New] In 2024, Essential Strategies Preserving WhatsApp Call Recordings</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mapping-out-instagram-deactivations-for-2024/"><u>[New] Mapping Out Instagram Deactivations for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-navigating-influencer-growth-on-instagram-top-5-steps-with-real-success/"><u>[Updated] 2024 Approved Navigating Influencer Growth on Instagram Top 5 Steps with Real Success</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/step-by-step-guide-using-windows-file-recovery-for-win10-files/"><u>💾 Step-by-Step Guide: Using Windows File Recovery for Win10 Files</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-step-by-step-guide-to-advanced-morphvox-expertise/"><u>2024 Approved Step-by-Step Guide to Advanced MorphVOX Expertise</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ajustez-la-balance-des-blancs-pour-une-photographie-parfaite-conseils-et-techniques/"><u>Ajustez La Balance Des Blancs Pour Une Photographie Parfaite : Conseils Et Techniques</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/ameliorez-votre-systeme-avec-le-transfert-de-windows-10-de-lhdd-a-lssd-pour-une-performance-accrue/"><u>Améliorez Votre Système Avec Le Transfert De Windows 10: De L'HDD À L'SSD Pour Une Performance Accrue</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/complimentary-vmware-safeguarding-tools-secure-and-shield-your-virtual-machines/"><u>Complimentary VMware Safeguarding Tools: Secure and Shield Your Virtual Machines</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effective-techniques-to-retrieve-deleted-files-from-your-hard-disk-ifind-software-reviews-and-compares-the-best-recovery-options/"><u>Effective Techniques to Retrieve Deleted Files From Your Hard Disk: IFinD Software Reviews and Compares the Best Recovery Options</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/eliminating-errors-utilizing-photoshops-eraser-feature/"><u>Eliminating Errors Utilizing Photoshop's Eraser Feature</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guide-complet-comment-proteger-vos-donnees-avec-le-disque-externe-wd-my-passport-sur-windows-1087/"><u>Guide Complet: Comment Protéger Vos Données Avec Le Disque Externe WD My Passport Sur Windows (10/8/7)</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/how-to-effortlessly-move-pictures-from-your-iphone-to-your-ipad-including-non-icloud-methods/"><u>How to Effortlessly Move Pictures From Your iPhone to Your iPad, Including Non-iCloud Methods</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Vivo S17t | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-no-cost-face-generation-top-online-platforms/"><u>New No-Cost Face Generation Top Online Platforms</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/wie-man-schattenkopien-sicher-und-schnell-aus-dem-windows-server-2012-r2-entfernt-lernen-sie-vier-bewahrte-verfahren/"><u>Wie Man Schattenkopien Sicher Und Schnell Aus Dem Windows Server 2012 R2 Entfernt - Lernen Sie Vier Bewährte Verfahren</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

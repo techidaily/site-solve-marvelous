@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: Enhancing Your Website's Performance with Advanced Analytics Tools"
-date: 2024-10-31T22:27:38.692Z
-updated: 2024-11-06T16:23:28.491Z
+date: 2024-11-09T22:20:36.372Z
+updated: 2024-11-17T03:39:26.920Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aefba9f0ac6f593076f657b0dfeebc66593ffd1b9ade996e1956601a5424d0a8.jpg
@@ -26,22 +26,15 @@ With the beta launch of ABBYY Vantage, a cloud-first platform of cognitive servi
 In this blog post, we want to provide insight into a few of the technology integrations that are already being developed and will be generally available soon. During our [ABBYY Reimagine](https://tools.techidaily.com/abbyy/products/) event, you may have already heard about the great capabilities Vantage has, but it gets even better. When Vantage is combined with other powerful technologies, it allows enterprises to further realize the benefits of combining AI technology for understanding documents with a larger end-to-end to solution. The combined technology not only has a major impact on operations but the customer experience as well.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Cognitive virtual assistants
 
 One of the first connector integrations we love is incorporating the ABBYY Vantage experience with a virtual assistant to take the customer journey to the next level. By combining voice, conversational AI, and document intelligence by way of Vantage Document Skills into a unified mobile experience, virtual assistants are able to deliver great service to a customer without needing an agent. Take a look at the [Cognigy](https://www.cognigy.com/) video explaining it below!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Automation of screens and IT operations
 
@@ -52,6 +45,19 @@ One of the first connector integrations we love is incorporating the ABBYY Vanta
 RPA bots are great for automating simple, repetitive tasks, but imagine if robots could recognize, read, and understand any type of document? [Kryon Systems](https://www.kryonsystems.com/), recognized as “Leader and High Achiever” in the RPA space by NelsonHall, is one of the first ABBYY partners to fully integrate ABBYY Vantage into the Kryon platform. The combined no-code/low-code products enable RPA users to quickly develop robot workflows with the ability to understand and work with documents and images.
 
 ![Kyron ABBYY skills for rpa](https://static1.abbyy.com/abbyycommedia/32872/abbyy-kryon-customer-story.gif)
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Leveraging the power of SAP Business Technology Platform
 
@@ -67,19 +73,6 @@ The [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/) offers an 
 
 ![preview ABBYY Marketplace](https://static1.abbyy.com/abbyycommedia/32870/marketplace.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Do you have a great idea for a new Cognitive skill? Want to build a connector for your platform? Reach out to us and we’ll gladly help you get started!
 
 [Contact us](https://tools.techidaily.com/abbyy/products/)
@@ -88,9 +81,23 @@ Do you have a great idea for a new Cognitive skill? Want to build a connector fo
 
 ![Bill Galusha ABBYY](https://static5.abbyy.com/abbyycommedia/25718/billgalusha-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Bill Galusha
 
 ![](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Maxime Vermeir
 
@@ -101,13 +108,6 @@ With a decade of experience in product and technology, Maxime Vermeir is an entr
 Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 
 ![](https://static4.abbyy.com/abbyycommedia/32000/stefanschmainta-198x198.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Stefan Schmainta
 
@@ -174,24 +174,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-innovative-strategies-for-logging-overwatch-skirmishes/"><u>[New] In 2024, Innovative Strategies for Logging Overwatch Skirmishes</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-mystery-of-missing-movies-a6400s-quandary/"><u>[Updated] 2024 Approved Mystery of Missing Movies A6400's Quandary</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cost-effective-strategies-understanding-data-recovery-expenses-and-prevention-with-ifind-solutions/"><u>Cost-Effective Strategies: Understanding Data Recovery Expenses & Prevention with iFinD Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/effiziente-datensicherung-perfectclone-komplikationsfreies-klonen-von-festplatten-auf-virtualen-maschinen/"><u>Effiziente Datensicherung: PerfectClone - Komplikationsfreies Klonen Von Festplatten Auf Virtualen Maschinen!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/error-404-the-pages-youre-searching-for-cant-be-found/"><u>Error 404: The Pages You're Searching For Can't Be Found</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210133155-9781591434283-first-nations-crystal-healing/"><u>First Nations Crystal Healing | Free Book</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ifinds-top-picks-ultimate-list-of-5-leading-programs-to-recover-unrecognized-allocated-and-deleted-sectors-in-windowsmacos-systems/"><u>IFind's Top Picks: Ultimate List of 5 Leading Programs to Recover Unrecognized, Allocated and Deleted Sectors in Windows/macOS Systems</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Realme Note 50 | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-interactive-aspects-adjustment-service/"><u>In 2024, Interactive Aspects Adjustment Service</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/incrementales-windows-7-backup-fur-geanderte-dateien-effizient-sichern/"><u>Incrementales Windows 7-Backup Für Geänderte Dateien Effizient Sichern</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/iphonepcwindows5/"><u>IPhoneがPCに表示されない？：Windows上で対処すべき5つの原因と手順</u></a></li>
-<li><a href="https://os-tips.techidaily.com/keeping-private-how-to-set-a-password-on-your-iphones-note-app-for-added-security/"><u>Keeping Private: How to Set a Password on Your iPhone's Note App for Added Security</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/locating-and-accessing-your-iphone-backup-files-on-macos-and-windows-systems/"><u>Locating and Accessing Your iPhone Backup Files on macOS & Windows Systems</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/slash-your-budget-for-ultimate-game-sound-immersion-get-an-exclusive-150-discount-on-elite-speaker-systems-featured-by-zdnet/"><u>Slash Your Budget for Ultimate Game Sound Immersion – Get an Exclusive $150 Discount on Elite Speaker Systems, Featured by ZDNet</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/top-9-drone-video-editing-software-for-different-level-for-2024/"><u>Top 9 Drone Video Editing Software for Different Level for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-rated-laptops-for-professional-video-editors-comprehensive-reviews-and-comparisons/"><u>Top-Rated Laptops for Professional Video Editors: Comprehensive Reviews & Comparisons</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ultimate-troubleshooting-guide-resolving-auto-sync-issues-in-outlook-for-mac/"><u>Ultimate Troubleshooting Guide: Resolving Auto-Sync Issues in Outlook for Mac</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/understanding-and-overcoming-limitations-of-formatting-drives-as-fat32-on-windows-11-systems/"><u>Understanding and Overcoming Limitations of Formatting Drives as FAT32 on Windows 11 Systems</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723212293023-windows-7-startup-woes-heres-how-to-get-faster-boot-speeds/"><u>Windows 7 Startup Woes? Here's How to Get Faster Boot Speeds</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-decoding-silent-snapchat-user-possible-block/"><u>[New] 2024 Approved Decoding Silent Snapchat User Possible Block</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-ultimate-free-switch-console-simulations/"><u>[New] 2024 Approved Ultimate Free Switch Console Simulations</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-three-tricks-for-transforming-videos-on-iphone-by-merging-melodies-for-2024/"><u>[New] Three Tricks for Transforming Videos on iPhone by Merging Melodies for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-collageknights-syncing-videos-across-devices/"><u>[Updated] CollageKnights Syncing Videos Across Devices</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-craft-a-captivating-story-integrating-images-on-instagram/"><u>2024 Approved Craft a Captivating Story Integrating Images on Instagram</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/3-tipps-zum-ubertragen-und-einrichten-einer-bootfahigen-windows-11-system-auf-usb-effizienter-workaround/"><u>3 Tipps Zum Übertragen Und Einrichten Einer Bootfähigen Windows 11 System Auf USB – Effizienter Workaround</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-infinix-note-30-vip-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Infinix Note 30 VIP Phone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-oppo-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Oppo FRP In 3 Different Ways</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-the-required-apple-store-verification-for-apple-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, How To Bypass the Required Apple Store Verification For Apple iPhone 14 Pro Max</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-verizon-apple-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, How to Unlock Verizon Apple iPhone 13 Pro Max</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/infuse-kinetic-smear-into-photos-in-photoshop/"><u>Infuse Kinetic Smear Into Photos in Photoshop</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/is-it-possible-to-use-samsung-data-migration-tool-for-cloning-non-samsung-ssds/"><u>Is It Possible to Use Samsung Data Migration Tool for Cloning Non-Samsung SSDs?</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/rencana-praktis-untuk-kopi-file-ke-ssd-dari-hdd-proses-terperinci-dalam-3-langkah-yang-efektif/"><u>Rencana Praktis Untuk Kopi File Ke SSD Dari HDD: Proses Terperinci Dalam 3 Langkah Yang Efektif!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/resolved-how-to-fix-the-apple-id-verification-unsuccessful-issue-in-detail/"><u>Resolved! How to Fix the 'Apple ID Verification Unsuccessful' Issue in Detail</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/resolviendo-el-error-de-backup-en-windows-11-guia-completa/"><u>Resolviendo El Error De Backup en Windows 11 - Guía Completa</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/sichere-daten-anleitung-zum-einfachen-aufbau-von-inkrementeller-backup-in-microsoft-hyper-v-vms-auf-dem-windows-server/"><u>Sichere Daten: Anleitung Zum Einfachen Aufbau Von Inkrementeller Backup in Microsoft Hyper-V VMs Auf Dem Windows Server</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/sketchup-mastery-expert-techniques-for-retrieving-and-repairing-skp-files/"><u>SketchUp Mastery: Expert Techniques for Retrieving and Repairing SKP Files</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/troubleshooting-tips-how-to-get-your-windows-eboot-task-manager-up-and-running-again/"><u>Troubleshooting Tips: How to Get Your Windows Eboot Task Manager Up and Running Again</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/ultimate-list-of-the-7-most-effective-apps-for-iphone-to-windows-10-image-migration/"><u>Ultimate List of the 7 Most Effective Apps for iPhone-to-Windows 10 Image Migration</u></a></li>
 </ul></div>
 

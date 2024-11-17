@@ -1,7 +1,7 @@
 ---
 title: IFind Data Recovery Tutorial for Retrieving Deleted Files From Windows OS Versions 11/7/8
-date: 2024-10-30T18:53:49.216Z
-updated: 2024-11-06T19:48:17.951Z
+date: 2024-11-14T05:02:08.038Z
+updated: 2024-11-16T21:50:40.087Z
 tags:
   - product
 categories:
@@ -51,10 +51,10 @@ if you can’t find the icon, use Win+R to run and put “shell:RecycleBinFolder
 ![how to run recycle bin in cmd](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/shell-recyclebinfolder.jpg?resize=413%2C213&ssl=1 "shell-recyclebinfolder")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips:
@@ -74,14 +74,14 @@ Except for the Windows Backup, there is also a built-in function in Windows call
 | Windows 8     | The shadow copies function is still there, but the “Previous versions” tab was removed, nonetheless, you can still use the 3-part tools to retrieve.                                                             |
 | Windows 7     | Windows system will automatically build a shadow copy (as a restore point) daily, or manually. The function called “Previous Versions” is also added in Win7                                                     |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **File Recovery for Windows 11/10 Users**
 
@@ -89,26 +89,40 @@ Step 1: Click start and input “File History”, you will see the result and cl
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/win11.png?resize=354%2C527&ssl=1 "win11")
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 2: Then you can find all the files that have recently been stored, choose the data you need to recover, and hit the GRN button below to restore.
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/win10-3.png?resize=1100%2C639&ssl=1 "win10-3")
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips:
 
 Make sure you have Set up a drive for File History or Backup, so Windows can save your files automatically. Check here for more details at Microsoft support.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **File Recovery for Windows 8/8.1 Users**
 
 As we mentioned, there is no previous versions tab in win8, however, you can use shadowexplorer to restore deleted files. you can download and view the manual at https://www.shadowexplorer.com/
 
 ![shadowexplorer](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/manual_4.png?resize=640%2C480&ssl=1)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 
 
@@ -118,15 +132,22 @@ Step 1: Right-click the file you want to recover (For Deleted files, just right-
 
 ![windows 7 restore previous versions](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/win7previousversions.jpg?resize=766%2C557&ssl=1)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 2: Choose the file and version you want to recover, and click Restore.
 
 ![windows 7 restore files](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/12/win7restorefile.jpg?resize=783%2C565&ssl=1)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 3: Double-check the version and click Restore again, you will get the deleted file back now.
@@ -143,13 +164,6 @@ Step 3: Double-check the version and click Restore again, you will get the delet
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/10/soft1.png?resize=960%2C600&ssl=1 "soft1")
 
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 For those still having trouble restoring deleted files, try iFinD Ddata Recovery, which has Mac and Windows versions. For the best chance of recovering a deleted file from Windows 11 or 10, it’s best to use a professional recovery tool. Having used it, you’ll know what I mean. Due to its recovery ability, speed, and success rate, it stands out among so many file recovery tools on the web.
 
 [Download for Windows](https://tools.techidaily.com/ifind-recovery/products/)
@@ -163,10 +177,10 @@ For those still having trouble restoring deleted files, try iFinD Ddata Recovery
 ## 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Step One: Quick scan or deep scan**
@@ -185,23 +199,9 @@ The software allows you to preview the file before recovering. In this way, you 
 
 ![preview and recover the found files](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/11/Lost3-1.png?resize=960%2C600&ssl=1)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Step 4: Recover and open the recovered files**
 
 Now click the Recover button to complete the final step. You’ll get your files back with no quality loss.
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Tips:
 
@@ -298,18 +298,17 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2023-12-28T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-explore-these-seven-sources-for-youtube-sound-effects/"><u>[New] In 2024, Explore These Seven Sources for YouTube Sound Effects</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-strategic-approaches-accumulating-top-notch-backdrop-imagery/"><u>[Updated] Strategic Approaches Accumulating Top-Notch Backdrop Imagery</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-top-ae-plug-ins-enhance-your-visual-storytelling/"><u>[Updated] Top AE Plug-Ins Enhance Your Visual Storytelling</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-restaurar-los-puntos-de-restauracion-del-sistema-basados-en-bios-a-un-dispositivo-con-uefi/"><u>Cómo Restaurar Los Puntos De Restauración Del Sistema Basados en BIOS a Un Dispositivo Con UEFI</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/comprehensive-guide-by-toms-gadget-hub-expert-hardware-reviews/"><u>Comprehensive Guide by Tom's Gadget Hub: Expert Hardware Reviews</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-tech-assisted-jogs-top-virtual-reality-walking-machines-explored/"><u>In 2024, Tech-Assisted Jogs Top Virtual Reality Walking Machines Explored</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/quickly-restore-lost-documents-on-windows-10-without-cost-top-5-freeware-solutions-by-ifind-data/"><u>Quickly Restore Lost Documents on Windows 10 Without Cost: Top 5 Freeware Solutions by IFind Data</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/review-alert-mastering-team-cohesion-in-remote-and-in-person-work-environments-with-bridging-the-gap/"><u>Review Alert: Mastering Team Cohesion in Remote and In-Person Work Environments with 'Bridging the Gap'</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-xiaomi-redmi-note-12-5g-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Xiaomi Redmi Note 12 5G Phone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-iphones-for-gamers-which-one-reigns-supreme/"><u>Top iPhones for Gamers: Which One Reigns Supreme?</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ultimate-fixes-for-data-loss-when-your-computer-fails-to-startup-learn-here/"><u>Ultimate Fixes for Data Loss when Your Computer Fails to Startup - Learn Here</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Google Pixel Fold | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/44oe44od44kv55so5pmc6zat5qmf6io977ya5paw44k344k544og44og44g444gu54m55a6a44ov44kh44kk44or44oq44od44kv44ki44od44ox5b6p5ywd5oml6acg6lplus95yqg/"><u>マック用時間機能：新システムへの特定ファイルバックアップ復元手順追加</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/boost-your-sites-insight-capabilities-leveraging-cutting-edge-cookie-based-tools/"><u>[Boost Your Site's Insight Capabilities]: Leveraging Cutting-Edge Cookie-Based Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-enhance-productivity-through-mematics-tools/"><u>[Updated] 2024 Approved Enhance Productivity Through Mematic's Tools</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-audio-visual-harmony-in-digital-photos/"><u>[Updated] Audio-Visual Harmony in Digital Photos</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/comment-les-seniors-surpassent-ils-dans-le-teletravail-decouvrez-nos-resultats-dabbyy/"><u>Comment Les Seniors Surpassent-Ils Dans Le Télétravail? Découvrez Nos Résultats D'ABBYY!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-automation-for-enhanced-website-analytics/"><u>Cookiebot-Driven Automation for Enhanced Website Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-personalization-enhance-user-experience-with-dynamic-content/"><u>Cookiebot-Enabled Personalization: Enhance User Experience with Dynamic Content</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-websites-visitor-tracking-experience/"><u>Cookiebot-Enabled: Enhancing Your Website's Visitor Tracking Experience</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/el-reproductor-de-mp3-gratis-y-facil-de-usar-para-disfrutar-sin-limitaciones/"><u>El Reproductor De MP3 Gratis Y Fácil De Usar Para Disfrutar Sin Limitaciones</u></a></li>
+<li><a href="https://win-web3.techidaily.com/essential-guide-safeguarding-your-mbr-on-windows-operating-systems-like-windows-10-8-and-7/"><u>Essential Guide: Safeguarding Your MBR on Windows Operating Systems Like Windows 10, 8 and 7</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-facebooks-edge-mastering-the-art-of-360-videos/"><u>In 2024, Facebook's Edge Mastering the Art of 360 Videos</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-a25-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy A25 5G to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-essential-audio-recorders-the-top-mp3-software-compatible-with-pc-and-mac-os/"><u>Updated Essential Audio Recorders The Top MP3 Software Compatible with PC & Mac OS</u></a></li>
 </ul></div>
 

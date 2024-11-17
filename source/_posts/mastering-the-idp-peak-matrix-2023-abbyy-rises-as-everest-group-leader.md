@@ -1,7 +1,7 @@
 ---
 title: "Mastering the IDP Peak Matrix 2023: ABBYY Rises as Everest Group Leader"
-date: 2024-10-12T00:36:33.715Z
-updated: 2024-10-15T02:32:04.836Z
+date: 2024-11-13T22:02:12.521Z
+updated: 2024-11-17T00:06:13.871Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/07be777ce45c307461ad22ca534398f5c53e5285da087031d4c184f1389088d2.jpg
@@ -13,41 +13,28 @@ Rapport
 
 ## Évaluation PEAK Matrix® 2023 d’Everest Group sur les produits de Traitement Intelligent des Documents
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Everest Group a désigné ABBYY comme l’un des Leaders des produits de Traitement Intelligent des Documents dans son évaluation PEAK Matrix® 2023
 
 ![](https://static1.abbyy.com/abbyycommedia/37866/intelligent-document-processing-2023-peak-matrix-award-logo-leader.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://static1.abbyy.com/abbyycommedia/37865/peak-2023-idp-products-abbyy.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ABBYY a été reconnu, pour la quatrième année consécutive, comme l’un des leaders du marché des produits IDP (traitement intelligent des documents) par Everest Group, dans son évaluation PEAK Matrix 2023.
 
 **ABBYY est très bien positionné pour son efficacité en termes de Vision & de Capacités, ainsi que pour son impact sur le marché avec ABBYY Vantage. Vantage est la seule plateforme IDP low-code / no-code pouvant s’intégrer à n’importe quelle plateforme d’automatisation intelligente.**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Télécharger le rapport maintenant
@@ -61,13 +48,20 @@ La PEAK Matrix donne un cadre pour évaluer la réussite relative sur le marché
 _Vaibhav Bansal, Vice-Président, Everest Group_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Request information
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Merci de votre intérêt pour ABBYY.
 
@@ -140,16 +134,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ehind-the-scenes-of-carminatis-youtube-earnings-for-2024/"><u>[New] Behind the Scenes of Carminati’s YouTube Earnings for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-striking-14-text-animation-illustrations-for-2024/"><u>[New] Striking 14 Text Animation Illustrations for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-ensuring-your-tweets-meet-aspect-ratio-norms/"><u>[Updated] Ensuring Your Tweets Meet Aspect Ratio Norms</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-insta-to-tik-integration-masterclass/"><u>[Updated] Insta-to-Tik Integration Masterclass</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/a-colorful-leap-forward-for-creality-launching-a-revolutionary-3d-printer-on-their-10th-anniversary/"><u>A Colorful Leap Forward for Creality - Launching a Revolutionary 3D Printer on Their 10Th Anniversary</u></a></li>
-<li><a href="https://common-error.techidaily.com/effortless-internet-sharing-mastering-usb-tethering-on-windows-11/"><u>Effortless Internet Sharing: Mastering USB Tethering on Windows 11</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-customization-and-audience-targeting/"><u>Harnessing the Power of Cookiebot for Advanced Site Customization and Audience Targeting</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harnessing-the-power-of-cookiebot-technology-for-effective-web-analytics-and-seo-strategies/"><u>Harnessing the Power of Cookiebot Technology for Effective Web Analytics and SEO Strategies</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-vivo-y27s-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Vivo Y27s Data? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/maximize-your-online-visibility-with-cookiebots-seo-solutions/"><u>Maximize Your Online Visibility with Cookiebot's SEO Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/navigating-the-next-decade-in-banking-and-protection-policies/"><u>Navigating the Next Decade in Banking and Protection Policies</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-convert-twitter-vids-to-customized-soundtracks/"><u>[New] In 2024, Convert Twitter Vids to Customized Soundtracks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-bust-a-smile-well-up-in-tears-with-top-10-instagram-meme-groups/"><u>[Updated] 2024 Approved Bust a Smile, Well Up in Tears with Top 10 Instagram Meme Groups</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-android-playground-the-hottest-wildlife-games/"><u>[Updated] In 2024, Android Playground The Hottest Wildlife Games</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726028221036-youtube-mp4/"><u>最適な品質のまま YouTube ビデオを MP4 形式で安全にダウンロードするコツ</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/cal-asmr-series-to-experience-for-2024/"><u>Critical ASMR Series to Experience for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/fijado-problemas-con-la-division-del-disco-en-wd-mi-pasaporte/"><u>Fijado: Problemas Con La División Del Disco en WD Mi Pasaporte</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1728471021547-sd/"><u>SDカードのデータを簡単な手順で回復する方法</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/securing-your-emails-with-two-effective-methods-on-windows-11/"><u>Securing Your Emails with Two Effective Methods on Windows 11</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-zte-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from ZTE</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-apple-iphone-15-plus-drfone-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transferir-archivos-de-ssd-a-hdd-con-facilidad-en-windows/"><u>Transferir Archivos De SSD a HDD Con Facilidad en Windows</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/ubertragung-von-musik-cds-direkt-auf-ios-gerate-ohne-itunes/"><u>Übertragung Von Musik-CDs Direkt Auf iOS Geräte Ohne iTunes</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1728462149604-windows-10/"><u>オフライン時のファイル同期：Windows 10環境で実現する手順</u></a></li>
 </ul></div>
 

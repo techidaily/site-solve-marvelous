@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Optimized Data Collection & Consent Management"
-date: 2024-10-30T16:53:59.387Z
-updated: 2024-11-06T19:30:37.038Z
+date: 2024-11-13T21:04:04.063Z
+updated: 2024-11-17T00:43:00.832Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b3a280654f3cc4ecaa0af8b47827af91d1bc68ec573b9890cc259b048e11faa1.jpg
@@ -29,13 +29,6 @@ Other | Accounts Payable Automation
 
 ![Scena](https://static4.abbyy.com/abbyycommedia/31989/02c-scena-logo-166x30.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 | Name         | Scena                                          |
 | ------------ | ---------------------------------------------- |
 | Headquarters | 12 Imperial Way Croydon CR0 4RR                |
@@ -47,10 +40,10 @@ Other | Accounts Payable Automation
 ![Engeneum Limited](https://static2.abbyy.com/abbyycommedia/32019/engeneum-logo.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 | Name         | Engeneum Limited                              |
@@ -104,29 +97,36 @@ The solution let’s Scena:
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY solutions for accounts payable automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Solutions for Accounts Payable Automation](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static4.abbyy.com/abbyycommedia/31986/02d-scena-cover-360x162.jpg)](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") [PDF Version](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Read the document](https://static5.abbyy.com/abbyycommedia/31959/12622-case-study-scena-eng.pdf "PDF Version") 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Ready to talk to an expert?
 
@@ -149,18 +149,18 @@ We'd love to help you along your automation journey.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-perfect-timing-for-on-screen-dialogue-in-your-youtube-productions/"><u>[New] In 2024, Perfect Timing for On-Screen Dialogue in Your YouTube Productions</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-quick-simple-steps-to-saving-twitters-emotive-graphics-gifs/"><u>[Updated] In 2024, Quick, Simple Steps to Saving Twitter’s Emotive Graphics (GIFs)</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/cross-platform-soundtrack-strategy-for-facebook-profiles-for-2024/"><u>Cross-Platform Soundtrack Strategy for Facebook Profiles for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/expressive-commentary-utilizing-emojis-on-youtube/"><u>Expressive Commentary Utilizing Emojis on YouTube</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/flvwma/"><u>FLVとWMAファイルを完全自由で簡単にオンライン変換 - ムーヴァヴィ</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-imovie-windows-version-download-edit-your-videos-on-pc-without-cost/"><u>Free iMovie Windows Version Download: Edit Your Videos on PC without Cost</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-lock-apps-on-realme-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Realme to Protect Your Individual Information</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/key-considerations-before-investing-in-a-video-capturing-system/"><u>Key Considerations Before Investing in a Video Capturing System</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/leading-eight-safe-video-meeting-systems-for-smbs/"><u>Leading Eight Safe Video Meeting Systems for SMBs</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/mastery-of-microscopic-minecraft-mapping-for-2024/"><u>Mastery of Microscopic Minecraft Mapping for 2024</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/missing-popcorn-time-on-vlc-easy-steps-to-integrate-and-enjoy/"><u>Missing Popcorn Time on VLC? Easy Steps to Integrate and Enjoy!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mp4-to-aiff-conversion-tool-no-cost-option-moveave-media/"><u>MP4 to AIFF Conversion Tool - No Cost Option | Moveave Media</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-free-ts-mp4-movavi/"><u>Online Free TS 프리미우스를 MP4로 자동 변환 - Movavi</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-beginners-essential-guide-to-youtube-video-editing-magic/"><u>[Updated] Beginner’s Essential Guide to YouTube Video Editing Magic</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-evaluating-tseries-business-model-with-youtube-viewership-metrics/"><u>[Updated] In 2024, Evaluating TSeries' Business Model with YouTube Viewership Metrics</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-switch-showdown-top-10-arcade-combat-classics-for-2024/"><u>[Updated] Switch Showdown Top 10 Arcade Combat Classics for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1-metodos-faciles-de-descargar-y-usar-herramientas-de-transferencia-de-archivos-gratis-para-windows-1087/"><u>1. Métodos Fáciles De Descargar Y Usar: Herramientas De Transferencia De Archivos Gratis Para Windows 10/8/7</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/3-methoden-zum-erstellen-eines-bildbackups-fur-windows-81/"><u>3 Methoden Zum Erstellen Eines Bildbackups Für Windows 8.1</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-twitch-error-4000-comprehensive-solutions-for-smooth-streaming/"><u>Fixing Twitch Error 4000: Comprehensive Solutions for Smooth Streaming</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-much-video-can-64gb128gb-hold-for-2024/"><u>How Much Video Can 64GB/128GB Hold for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-create-an-apple-developer-account-from-apple-iphone-6-by-drfone-ios/"><u>How To Create an Apple Developer Account From Apple iPhone 6</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-oppo-reno-9a-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Oppo Reno 9A</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/securely-swap-hp-laptop-storage-device-while-preserving-all-files-and-information/"><u>Securely Swap HP Laptop Storage Device While Preserving All Files and Information</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshoot-like-a-pro-solutions-to-fix-your-computer-stuck-on-boot-screen/"><u>Troubleshoot Like a Pro: Solutions to Fix Your Computer Stuck on Boot Screen</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/understanding-the-cause-behind-samsungs-sudden-stop-in-data-migration-processes/"><u>Understanding the Cause Behind Samsung's Sudden Stop in Data Migration Processes</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unraveling-the-distinct-features-of-cable-tv-and-streaming-services/"><u>Unraveling the Distinct Features of Cable TV and Streaming Services</u></a></li>
 </ul></div>
 

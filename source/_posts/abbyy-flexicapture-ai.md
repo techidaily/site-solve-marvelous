@@ -1,7 +1,7 @@
 ---
 title: ABBYY FlexiCapture - AI駆使した最先端の帳票自動認識プラットフォームについて学ぶ
-date: 2024-11-05T16:15:34.749Z
-updated: 2024-11-06T21:07:05.648Z
+date: 2024-11-10T21:07:52.079Z
+updated: 2024-11-16T19:38:07.296Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/670a3d23e314a574aa8e5af4448af6d1aaae629960eef8dd3da5be3e28617436.jpg
@@ -39,16 +39,16 @@ ABBYY FlexiCaptureは、最大で以下のような構成を組むことが可�
 
 ![Processing Stations - FlexiCapture](https://static1.abbyy.com/abbyycommedia/29925/flexicapture-rpa-image1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 また、処理ステーション（Processing Station）に対してクラスタ構成を組むことにより、大量のトランザクションを処理する事が可能となります。以下のグラフは一例で、最大300万ページ／日（グレースケール、英語）の文書が処理可能であることを示しています（詳細は [Performance Guide](https://tools.techidaily.com/abbyy/products/) を参照）。
 
 ![Processing CPU cores per pages](https://static1.abbyy.com/abbyycommedia/29914/flexicapture-rpa-image2-diagram.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 また、冗長化構成によりHA/DR (High Availability/Disaster Recovery)も実現可能となっています。
 
@@ -68,13 +68,6 @@ ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件�
 
 ![encryption for security](https://static1.abbyy.com/abbyycommedia/29916/image-4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **\- アクセスレベル**
 
 認証によるアクセス
@@ -88,10 +81,10 @@ ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件�
 ![FlexiCapture ユーザーロール管理](https://static1.abbyy.com/abbyycommedia/29917/image-5.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. 様々なワークフローへの対応
@@ -100,9 +93,23 @@ ABBYY FlexiCaptureは、ビジネスにおける様々な業務フローに合�
 
 ![FlexiCapture 様々なワークフローへの対応](https://static1.abbyy.com/abbyycommedia/29918/image-6.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 例えば上記のようなビジネスプロセスを実現するため、以下のようにワークフローの順番を変更したり、追加、カスタマイズが可能となっています。
 
 ![FlexiCapture Sample Invoice ブロパティ](https://static1.abbyy.com/abbyycommedia/29919/image-7.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. 外部接続・連携
 
@@ -113,13 +120,6 @@ ABBYY FlexiCaptureは、コネクタやAPIを介して様々な外部システ�
 代表的なRPA製品（BluePrism, UiPath, WinActor, Pega, 等）に対し、専用コネクタの他、APIやファイル連携等様々な方法によるスムーズな連携が可能です。
 
 ![RPA FlexiCapture](https://static1.abbyy.com/abbyycommedia/29926/flexicapture-rpa-scheme-jp-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 各種事例については、以下リンクをご参照ください。
 
@@ -133,13 +133,6 @@ ABBYY FlexiCaptureは日本語の手書き文字認識はサポートしてお�
 
 ![他社エンジンとの連携 FlexiCapture](https://static1.abbyy.com/abbyycommedia/29920/image-9.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 以上、今回はABBYY FlexiCaptureのAI-OCRプラットフォーム（基盤）としての特長についてご紹介いたしました。
 
 ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせは[こちら](https://tools.techidaily.com/abbyy/products/)から承ります。
@@ -147,6 +140,13 @@ ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせ�
 [RPA](https://tools.techidaily.com/abbyy/products/) [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [データプライバシー](https://tools.techidaily.com/abbyy/products/) [AI OCR](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
 ![ABBYY logo circle](https://static5.abbyy.com/abbyycommedia/29971/abbyy-logo-2021-blog-99x99.png)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ABBYY Japan エンジニアリングチーム
 
@@ -213,24 +213,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-fast-windows-file-check-up-tips-and-tricks/"><u>[New] Fast Windows File Check-Up Tips and Tricks</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-digital-dawnings-of-insight-augmented-metaverse-mantras/"><u>[New] In 2024, Digital Dawnings of Insight Augmented Metaverse Mantras</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mp2mov-movavi/"><u>無成本的網路MP2到MOV轉檔工具 - Movavi格式換裝器</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-convertir-video-ts-a-formato-mp4-de-forma-gratuita-online-con-movavi/"><u>Cómo Convertir Video TS a Formato MP4 De Forma Gratuita Online Con Movavi</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Fixing Foneazy MockGo Not Working On Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-online-converter-convert-wav-and-mp4-files-to-mkv-without-charge/"><u>Free Online Converter: Convert WAV & MP4 Files to MKV without Charge</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/how-to-record-the-screen-with-adobe-captive/"><u>How To Record The Screen With Adobe Captive</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-realme-c33-2023-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Realme C33 2023 FRP?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-infinix-note-30-vip-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Infinix Note 30 VIP?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-oneplus-ace-2-pro-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from OnePlus Ace 2 Pro to Another | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mettre-en-forme-votre-fichier-audio-aiff-en-format-video-mp4-gratuitement-via-le-site-web-de-movavi/"><u>Mettre en Forme Votre Fichier Audio AIFF en Format Vidéo MP4 Gratuitement via Le Site Web De Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/movavis-no-cost-tool-for-transforming-gsm-recordings-into-mp3-tracks-try-it-today/"><u>Movavi's No-Cost Tool for Transforming GSM Recordings Into MP3 Tracks - Try It Today!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/online-gratis-3gpp-in-videomov-formate-konverteren-expertise-mooviverseerbaar/"><u>Online Gratis 3GPP in Videomov Formate Konverteren - Expertise MooviVerseerbaar</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/rank-higher-with-youtube-shorts-a-guide-to-making-a-difference-for-2024/"><u>Rank Higher with YouTube Shorts A Guide to Making a Difference for 2024</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/restored-print-functionality-after-win-11-update/"><u>Restored Print Functionality After Win 11 Update</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/sviluppatore-audio-avanzato-software-editoriale-music-per-modifiche-sonore-soluzioni-movavi/"><u>Sviluppatore Audio Avanzato: Software Editoriale Music per Modifiche Sonore - Soluzioni Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/the-ultimate-guide-to-optimizing-with-leading-seo-programs-for-tracking-living-links-percentage/"><u>The Ultimate Guide to Optimizing with Leading SEO Programs for Tracking Living Links Percentage</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/the-ultimate-guide-14-premier-video-editing-applications-for-creative-experts/"><u>The Ultimate Guide: 14 Premier Video Editing Applications for Creative Experts</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/veiling-uw-skype-gesprek-efficient-en-gemakkelijk-onderdelen-informatieverwerkende-voertuigen/"><u>Veiling Uw Skype Gesprek - Efficiënt en Gemakkelijk Onderdelen Informatieverwerkende Voertuigen</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-honored-advisors-elite-iphone-audio-experts/"><u>[New] Honored Advisors Elite iPhone Audio Experts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-discover-9-free-whole-film-festive-movie-gems-on-youtube/"><u>[New] In 2024, Discover 9 Free, Whole-Film Festive Movie Gems on Youtube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-driving-healthy-change-via-digital-campaign-tactics/"><u>[Updated] In 2024, Driving Healthy Change via Digital Campaign Tactics</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-premier-online-calling-apps-all-free-and-user-friendly/"><u>[Updated] Premier Online Calling Apps - All Free & User-Friendly</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/change-your-windows-11-startup-disk-to-an-ssd/"><u>Change Your Windows 11 Startup Disk to an SSD</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/claim-the-crown-strategies-for-staff-picked-videos-at-vimeo-for-2024/"><u>Claim the Crown Strategies for Staff-Picked Videos at Vimeo for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effortless-methods-to-import-your-favorite-cd-tracks-directly-onto-your-iphone-a-guide-beyond-itunes/"><u>Effortless Methods to Import Your Favorite CD Tracks Directly Onto Your iPhone: A Guide Beyond iTunes</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/enhancing-gaming-performance-updating-amd-drivers-on-windows-10-11-and-7-platforms/"><u>Enhancing Gaming Performance: Updating AMD Drivers on Windows 10, 11, and 7 Platforms</u></a></li>
+<li><a href="https://techidaily.com/how-to-recover-apple-iphone-13-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover Apple iPhone 13 Data From iOS iCloud? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/introduce-natural-photo-smear-in-ps/"><u>Introduce Natural Photo Smear in PS</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/lost-dxgidll-in-win11-swift-recovery-steps-explored/"><u>Lost Dxgi.dll in Win11? Swift Recovery Steps Explored</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/migrar-tu-os-usando-aomei-backupper-para-otro-tipo-de-hardware-tutorial-completo/"><u>Migrar Tu OS Usando AOMEI Backupper Para Otro Tipo De Hardware – Tutorial Completo</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/probleme-mit-der-installation-von-windows-nicht-bootfahigem-usb-tipps-zur-fehlerbehebung-und-wiederherstellung/"><u>Probleme Mit Der Installation Von Windows Nicht Bootfähigem USB: Tipps Zur Fehlerbehebung Und Wiederherstellung</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/retrieve-deleted-youtube-footage-effortlessly-using-ifinds-ifind-data-recovery-guide-and-software-solutions/"><u>Retrieve Deleted YouTube Footage Effortlessly Using iFinD's IFind Data Recovery Guide and Software Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revive-your-laptop-solutions-for-when-it-shuts-down-unexpectedly/"><u>Revive Your Laptop: Solutions for When It Shuts Down Unexpectedly</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-duplicateur-nvme-certifie-clonage-reliable-et-securise-de-disques-nvme-en-nvme-avec-logiciels-windows/"><u>Top Duplicateur NVMe Certifié : Clonage Reliable Et Sécurisé De Disques NVMe en NVMe Avec Logiciels Windows</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-rated-free-corsair-migration-tools-for-windows-users/"><u>Top Rated Free Corsair Migration Tools for Windows Users</u></a></li>
+<li><a href="https://video-capture.techidaily.com/unveiling-voice-memo-creation-on-ios-devices/"><u>Unveiling Voice Memo Creation on iOS Devices</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/win11bootmgr-is-missing/"><u>フォトレスキュー後のWin11で発生するBOOTMGR Is Missing問題を解決</u></a></li>
 </ul></div>
 

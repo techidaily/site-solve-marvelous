@@ -1,7 +1,7 @@
 ---
 title: "ABBYY SDK Solutions for Revolutionizing Package Processing in the Transport Industry: Insights From the ABBYY Blog"
-date: 2024-11-10T20:15:26.291Z
-updated: 2024-11-17T02:17:00.340Z
+date: 2024-11-19T17:19:28.207Z
+updated: 2024-11-26T19:49:08.523Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/276d97c36ad2008d7cfbd98152b79e1acd5c5f1c2ed18f1585db86304b623852.jpg
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/276d97c36ad2008d7cfbd98152b79e1acd5c5f1c2
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Packaging OCR in Transport & Logistics with Real-Time Recognition SDK
 
 November 28, 2017
 
 ![](https://static1.abbyy.com/abbyycommedia/25838/8881e_blog-1.png) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Like most other industries, transportation and logistics (T&L) is currently facing challenges as individuals and businesses expect to get goods faster, more flexibly, and at low delivery cost. New real-time data capture technologies help meet these challenges by enabling greater efficiency and more collaborative T&L operating models. By making maximum use of Real-Time Recognition (RTR) SDK technologies, T&L companies can speed up and greatly reduce the costs of [processing packages](https://tools.techidaily.com/abbyy/products/), mailed letters, parcel registration, tracking, and delivery. The point-and-capture capability in RTR SDK allows text on packaging to be instantly recognized, captured, and sent directly to backend systems for shipping validation.
 
@@ -26,16 +34,7 @@ Discover how ABBYY technologies helped solve costly dilemmas for customer's in t
 [OCR](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -101,19 +100,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-overcoming-gopro-distorted-images-a-guide/"><u>[New] Overcoming GoPro Distorted Images A Guide</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-unlocking-facebooks-full-potential-4-sharing-techniques/"><u>[New] Unlocking Facebook's Full Potential 4 Sharing Techniques</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-innovative-photography-adding-stylish-borders-to-instagram-pics/"><u>[Updated] 2024 Approved Innovative Photography Adding Stylish Borders to Instagram Pics</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-from-newcomer-to-notable-nominee-nudging-numbers-naturally-for-2024/"><u>[Updated] From Newcomer to Notable Nominee Nudging Numbers Naturally for 2024</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/2024-approved-translate-audiovideo-content-from-spanish-to-english-and-vice-versa/"><u>2024 Approved Translate Audio/Video Content From Spanish to English and Vice Versa</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/eos-login-problem-here-are-6-effective-strategies-for-palworld-users/"><u>EOS Login Problem? Here Are 6 Effective Strategies for Palworld Users</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-methods-transferring-your-windows-11-pc-data-to-the-cloud-using-4-effective-strategies/"><u>Free Methods: Transferring Your Windows 11 PC Data to the Cloud Using 4 Effective Strategies</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Motorola Edge 2023 | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-srgb-standardized-vs-traditional-rgb-spectrum/"><u>In 2024, Srgb Standardized Vs Traditional Rgb Spectrum</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1728474387297-outlook/"><u>Outlook連絡先データの外部記憶装置への完全なバックアップ手順</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/solving-iphone-unresponsive-issue-with-apple-logo-post-ios-17-update-step-by-step-solutions/"><u>Solving iPhone Unresponsive Issue with Apple Logo Post-iOS 17 Update: Step-by-Step Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/solving-the-mystery-why-your-chromebook-might-be-sluggish-and-tips-to-boost-performance/"><u>Solving the Mystery: Why Your Chromebook Might Be Sluggish & Tips to Boost Performance</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/wiederherstellung-verlassen-ihr-iphone-sichern-ohne-daten-zu-verlieren/"><u>Wiederherstellung Verlassen - Ihr iPhone Sichern, Ohne Daten Zu Verlieren</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1728466673636-404/"><u>ページ検索失敗:404エラーの理由と対処法</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722995446331-fixed-assassins-creed-odyssey-crashing-on-pc-easily/"><u>[Fixed] Assassin’s Creed Odyssey Crashing on PC. Easily</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unveiling-high-def-dynamics-yi-hero-camera-review/"><u>[Updated] 2024 Approved Unveiling High-Def Dynamics Yi Hero Camera Review</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-identifying-causes-for-disappearing-youtube-shorts-thumbnails/"><u>[Updated] Identifying Causes for Disappearing YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-cost-analysis-maximizing-views-on-youtube/"><u>2024 Approved Cost Analysis Maximizing Views on YouTube</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-vivo-v29-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Vivo V29 Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-realme-11x-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Realme 11X 5G Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/finding-your-past-enjoyments-a-users-guide-to-instagram-reel-searches/"><u>Finding Your Past Enjoyments: A User's Guide to Instagram Reel Searches</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Xiaomi 13 Ultra | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/live-datenerfassung-mit-abbyy-ocr-sdk-instantane-erkennung-von-text-im-feld/"><u>Live-Datenerfassung Mit ABBYY OCR SDK - Instantane Erkennung Von Text Im Feld</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/maximizing-online-presence-the-art-of-effective-web-pages-and-seo-techniques/"><u>Maximizing Online Presence: The Art of Effective Web Pages and SEO Techniques</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/nelsonhalls-2020-technology-radar-abbyy-recognized-as-front-runner-in-process-mining-and-data-analysis-techniques/"><u>NelsonHall's 2020 Technology Radar: ABBYY Recognized as Front-Runner in Process Mining & Data Analysis Techniques</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimize-with-cookiebot-next-level-analytics-and-personalization-power/"><u>Optimize With Cookiebot: Next-Level Analytics and Personalization Power</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimize-your-sites-analytics-the-advanced-features-of-cookiebot-solutions/"><u>Optimize Your Site's Analytics: The Advanced Features of Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimized-webpage-strategies-enhancing-your-online-presence/"><u>Optimized Webpage Strategies: Enhancing Your Online Presence</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolved-overwatch-game-crashing-issues-how-to-fix-them/"><u>Resolved: Overwatch Game Crashing Issues - How To Fix Them</u></a></li>
 </ul></div>
 

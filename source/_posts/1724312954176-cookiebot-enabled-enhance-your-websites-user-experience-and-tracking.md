@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Website's User Experience & Tracking"
-date: 2024-11-14T02:13:46.386Z
-updated: 2024-11-17T02:50:08.759Z
+date: 2024-11-24T17:06:43.868Z
+updated: 2024-11-26T20:22:17.852Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5996397f505d52b0f60ffe77c36fd8859621590a57dd0707f44eeaa06c560dbc.jpg
@@ -10,6 +10,10 @@ thumbnail: https://thmb.techidaily.com/5996397f505d52b0f60ffe77c36fd8859621590a5
 ## Cookiebot-Enabled: Enhance Your Website's User Experience & Tracking
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## ABBYY’s UK Partner Day Highlights Innovation and ROI Using AI
 
@@ -25,6 +29,10 @@ Despite some claims that intelligent document processing (IDP) is obsolete, Max 
 
 **![abbyy-uk-partner-day-1](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-uk-partner-day/abbyy-partner-day-uk-2024_1.jpg)** 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### How the NHS found success with ABBYY Vantage and Extra Technology 
 
 Extra Technology showcased the transformative power of [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/), for fully automating invoice processing and reducing payment risk at the Manchester NHS Trust, where thousands of different types of invoices are processed a year. With ABBYY’s continuous machine learning capabilities, post-processing and data validation, invoicing times were significantly reduced, freeing up staff to focus on other business-critical areas and yielding cost-savings in the millions. 
@@ -36,6 +44,10 @@ Adopting ABBYY IDP has resulted in an evolution of our function and our staff, e
 Edd Berry, Director of Finance Innovation, Manchester University NHS Foundation Trust
 
 **![abbyy-uk-partner-day-2](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/abbyy-uk-partner-day/abbyy-partner-day-uk-2024_3.jpg)** 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### How to streamline freight processes with ABBYY 
 
@@ -72,6 +84,10 @@ Thank you to all our partners for their continued dedication and collaboration. 
 _Subscribe to stay connected with email updates and thought leadership insights from ABBYY._ 
 
 ![Dan Corp](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/autors-headshots/dan_corp.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Dan Corp
 
@@ -138,28 +154,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-transform-tweets-converting-video-to-gifs-at-no-cost/"><u>[Updated] In 2024, Transform Tweets Converting Video to GIFs at No Cost</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-to-dailymotion-transferring-videos-seamlessly/"><u>2024 Approved YouTube to Dailymotion Transferring Videos Seamlessly</u></a></li>
-<li><a href="https://techtrends.techidaily.com/macx-video-converter-pro/"><u>公式 MacX Video Converter Pro 使用方法解説：新たなバージョンで利用可能なライセンスコード登録ガイド</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1728495422440-dropbox/"><u>失われたDropboxファイルを取り戻す：削除後でも復活させるテクニック</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/backup-comparison-essentials-analyzing-aomei-backupper-in-the-face-of-alternative-software-options/"><u>Backup Comparison Essentials: Analyzing AOMEI Backupper in the Face of Alternative Software Options</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/complete-guide-restore-lost-partitions-with-ifind-data-recovery-on-windows-10-and-11-by-ifind/"><u>Complete Guide: Restore Lost Partitions with IFind Data Recovery on Windows 10 & 11 by iFinD</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/empfindungswerte-raw-datensicherung-tools-leistungsstarke-softwarelosungen/"><u>Empfindungswerte RAW-Datensicherung Tools – Leistungsstarke Softwarelösungen</u></a></li>
-<li><a href="https://games-able.techidaily.com/exploring-handheld-gamers-choices/"><u>Exploring Handheld Gamers' Choices</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/families-and-the-world-of-generative-ai/"><u>Families and the World of Generative AI</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-the-top-7-stardew-valley-improvement-packs/"><u>In 2024, The Top 7 Stardew Valley Improvement Packs</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/protect-yourself-from-chatgpt-scam-sites-detection-and-prevention-tips/"><u>Protect Yourself From ChatGPT Scam Sites: Detection & Prevention Tips</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/resolving-the-d3dx933dll-file-missing-issue-a-comprehensive-guide/"><u>Resolving the d3dx9_33.dll File Missing Issue: A Comprehensive Guide</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionize-file-transfer-on-your-pc-the-top-4-methods-in-windows-11/"><u>Revolutionize File Transfer on Your PC: The Top 4 Methods in Windows 11</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/schritt-fur-schritt-anleitung-fur-die-sicherung-ihrer-daten-unter-windows/"><u>Schritt-Für-Schritt Anleitung Für Die Sicherung Ihrer Daten Unter Windows</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/1728481140669-windows-server-2008r2/"><u>Windows Server 2008/R2 裸機恢復技術解析 | 多元入手法</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/windows-server-2019-uefi-3f75a48c-d6e6-44bd-b8d8-dcf3ecfbcd4f/"><u>Windows Server 2019 UEFI引导修复快速捷要：高级技师的指南 -3F75a48c-D6e6-44bd-B8d8-Dcf3ecfbcd4f</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-frame-your-photos-right-a-guide-to-top-notch-edges-in-instagram-for-2024/"><u>[New] Frame Your Photos Right A Guide to Top-Notch Edges in Instagram for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-optimizing-youtube-presentations-with-precise-times/"><u>[New] Optimizing YouTube Presentations with Precise Times</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-decoding-the-functionality-of-youtubes-media-hub/"><u>[Updated] 2024 Approved Decoding the Functionality of YouTube's Media Hub</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-revolutionize-your-online-audio-with-these-5-methods/"><u>[Updated] 2024 Approved Revolutionize Your Online Audio with These 5 Methods</u></a></li>
+<li><a href="https://win-forum.techidaily.com/engage-and-share-on-leading-social-sites-facebook-twitter-instagram-and-youtube/"><u>Engage and Share on Leading Social Sites: Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Xiaomi Redmi Note 13 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/no-more-silent-meetings-effective-ways-to-address-black-screens-in-facetime-chats/"><u>No More Silent Meetings: Effective Ways to Address Black Screens in FaceTime Chats</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-accounts-payable-the-strategic-alliance-between-siemens-and-abbyy-in-process-automation/"><u>Revolutionizing Accounts Payable: The Strategic Alliance Between Siemens & ABBYY in Process Automation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/sysbus-verstarkung-der-digitalen-fahigkeiten-ihrer-teammitglieder/"><u>Sysbus - Verstärkung Der Digitalen Fähigkeiten Ihrer Teammitglieder</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/the-limits-of-identity-checks-in-fraud-prevention-a-deeper-look-into-effective-strategies/"><u>The Limits of Identity Checks in Fraud Prevention - A Deeper Look Into Effective Strategies</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-insurance-claims-handling-with-cognitive-scanning-success-stories-from-leading-companies/"><u>Transforming Insurance Claims Handling with Cognitive Scanning - Success Stories From Leading Companies</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-the-future-of-automated-efficiency-a-look-at-the-successful-alliance-between-abbyy-and-uipath/"><u>Transforming the Future of Automated Efficiency: A Look at the Successful Alliance Between ABBYY and UiPath</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-instagram-slowness-top-6-solutions-for-android-and-ios/"><u>Troubleshooting Instagram Slowness: Top 6 Solutions for Android & iOS</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlocking-greater-roi-transform-your-site-using-our-revolutionary-cookiebot-solutions/"><u>Unlocking Greater ROI: Transform Your Site Using Our Revolutionary Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlocking-the-key-strategies-for-thriving-in-digital-conversion/"><u>Unlocking the Key Strategies for Thriving in Digital Conversion</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

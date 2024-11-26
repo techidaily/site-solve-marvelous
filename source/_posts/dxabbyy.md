@@ -1,7 +1,7 @@
 ---
 title: 企業に最適なDX加速ツール：ABBYYで導くデジタルインテリジェンス力向上法
-date: 2024-11-15T19:51:26.405Z
-updated: 2024-11-16T19:42:38.229Z
+date: 2024-11-19T19:57:14.200Z
+updated: 2024-11-26T19:36:30.238Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fc6a682db0e3d4f0e7a82dcc086d1d5b243871658075302bd97663f943820452.jpg
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/fc6a682db0e3d4f0e7a82dcc086d1d5b243871658
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## DXを加速させるエンタープライズ向けデジタルインテリジェンスのパワー
 
 9月2日, 2020
 
 ![Digital Intelligence for the Enterprise | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/29319/8851e_blog_abbyy-technology-summit-2017-ignites-momentum-for-oneabbyyblog.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 「ABBYYでは、今日の最もチャレンジングな課題を解決するためにAIを活用しています。」 ABBYYの最高イノベーション責任者（CIO）であるAnthony Macciolaは、Unite.AIへのインタビューにて、 ABBYYがどのように自然言語処理、機械学習、ニューラルネットワークなどのAIテクノロジーを活用し、企業に対してビジネスプロセスとそれらを刺激するコンテンツとデータの理解を深めるための必要なツールを提供し、デジタルインテリジェンスソリューションを強化しているかを語っています。
 
@@ -30,10 +38,7 @@ DX（デジタルトランスフォーメーション）イニシアチブを加
 [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [AI（人工知能）](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### いいね！、シェア、再投稿
@@ -99,19 +104,19 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-help.techidaily.com/new-flv-video-unification-techniques/"><u>[New] FLV Video Unification Techniques</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-gpu-narrative-radeons-recent-revolution-for-2024/"><u>[New] GPU Narrative Radeon's Recent Revolution for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-dialogue-enrichment-system/"><u>[New] In 2024, Dialogue Enrichment System</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-subtitled-uninterrupted-access-to-9-festive-holiday-movies-free/"><u>[Updated] Subtitled, Uninterrupted Access to 9 Festive Holiday Movies - Free</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1-facil-guia-de-sincronizacion-bidireccional-para-windows-dos-metodos-faciles/"><u>1. Fácil Guía De Sincronización Bidireccional Para Windows: Dos Métodos Fáciles</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/erkundung-der-superlative-die-besten-alternativen-zur-datenwiederherstellung-mit-icare-expertenrat/"><u>Erkundung Der Superlative: Die Besten Alternativen Zur Datenwiederherstellung Mit iCare | Expertenrat</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-itel-p55plus-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Itel P55+ Devices</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/leading-synthetic-ps3-games-for-pc-gamers/"><u>Leading Synthetic PS3 Games for PC Gamers</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/losung-fur-itunes-synchronisation-unter-windows-11-10-und-8-probleme-mit-der-musikintegration/"><u>Lösung Für iTunes-Synchronisation Unter Windows 11, 10 Und 8 - Probleme Mit Der Musikintegration</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/nvidia-accelerates-ai-with-microns-latest-24gb-hbm3e-memory-chips-in-upcoming-h200-series-gpus/"><u>Nvidia Accelerates AI with Micron's Latest 24GB HBM3E Memory Chips in Upcoming H200 Series GPUs</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/repossessing-corrupted-or-erased-information-a-3-step-guide-on-your-external-hard-disk/"><u>Repossessing Corrupted or Erased Information: A 3-Step Guide on Your External Hard Disk</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/sincronizacao-de-arquivos-offline-com-o-windows-11-explicado/"><u>Sincronização De Arquivos Offline Com O Windows 11 Explicado</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/transform-your-content-the-science-of-instagram-video-loops/"><u>Transform Your Content The Science of Instagram Video Loops</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/windows-11-wiederherstellung-sicher-ohne-dateien-und-anwendungen-zu-verlieren/"><u>Windows 11 Wiederherstellung Sicher Ohne Dateien Und Anwendungen Zu Verlieren</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-all-inclusive-guide-what-is-googles-podcast-service/"><u>[New] 2024 Approved All-Inclusive Guide What Is Google's Podcast Service?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-advanced-webcam-and-chat-software-rankings-for-2024/"><u>[New] Advanced Webcam & Chat Software Rankings for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-elevate-video-branding-incorporating-watermarks-into-youtube-media-for-2024/"><u>[New] Elevate Video Branding Incorporating Watermarks Into YouTube Media for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-list-of-engaging-history-content-on-youtube/"><u>[New] In 2024, The Ultimate List of Engaging History Content on YouTube</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/descargas-gratuitas-transforma-tus-archivos-mp3-en-videos-avi-con-movavi/"><u>Descargas Gratuitas: Transforma Tus Archivos MP3 en Vídeos AVI Con Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-your-site-performance-with-the-robust-capabilities-of-cookiebot-technology/"><u>Enhance Your Site Performance with the Robust Capabilities of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-performance-through-personalization-the-cookiebot-advantage/"><u>Enhanced Performance Through Personalization: The Cookiebot Advantage</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-personalization-through-cookiebot-driven-engagement-tools/"><u>Enhanced Personalization Through Cookiebot-Driven Engagement Tools</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-personalization-with-dynamic-cookiebot-technology/"><u>Enhanced Personalization with Dynamic Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-tracking-with-cookiebot-technology/"><u>Enhanced Tracking with Cookiebot Technology</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/gtx-950-code-43-error-on-windows-10-solved/"><u>GTX 950 Code 43 Error on Windows 10 [Solved]</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-fixes-for-the-exception-has-been-reached-on-pcs/"><u>Mastering Fixes for The Exception Has Been Reached on PCs</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/resonant-revelations-blending-visuals-with-vocal-tones-on-windows/"><u>Resonant Revelations Blending Visuals with Vocal Tones on Windows</u></a></li>
+<li><a href="https://fox-info.techidaily.com/streamlined-signal-synchronizer-for-podcasters/"><u>Streamlined Signal Synchronizer For Podcasters</u></a></li>
 </ul></div>
 

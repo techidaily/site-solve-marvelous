@@ -1,7 +1,7 @@
 ---
 title: "Mastering the IDP Peak Matrix 2023: ABBYY Rises as Everest Group Leader"
-date: 2024-11-13T22:02:12.521Z
-updated: 2024-11-17T00:06:13.871Z
+date: 2024-11-23T16:52:31.205Z
+updated: 2024-11-26T16:27:50.583Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/07be777ce45c307461ad22ca534398f5c53e5285da087031d4c184f1389088d2.jpg
@@ -13,17 +13,22 @@ Rapport
 
 ## Évaluation PEAK Matrix® 2023 d’Everest Group sur les produits de Traitement Intelligent des Documents
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Everest Group a désigné ABBYY comme l’un des Leaders des produits de Traitement Intelligent des Documents dans son évaluation PEAK Matrix® 2023
 
 ![](https://static1.abbyy.com/abbyycommedia/37866/intelligent-document-processing-2023-peak-matrix-award-logo-leader.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://static1.abbyy.com/abbyycommedia/37865/peak-2023-idp-products-abbyy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ABBYY a été reconnu, pour la quatrième année consécutive, comme l’un des leaders du marché des produits IDP (traitement intelligent des documents) par Everest Group, dans son évaluation PEAK Matrix 2023.
@@ -31,10 +36,7 @@ ABBYY a été reconnu, pour la quatrième année consécutive, comme l’un des 
 **ABBYY est très bien positionné pour son efficacité en termes de Vision & de Capacités, ainsi que pour son impact sur le marché avec ABBYY Vantage. Vantage est la seule plateforme IDP low-code / no-code pouvant s’intégrer à n’importe quelle plateforme d’automatisation intelligente.**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Télécharger le rapport maintenant
@@ -48,20 +50,10 @@ La PEAK Matrix donne un cadre pour évaluer la réussite relative sur le marché
 _Vaibhav Bansal, Vice-Président, Everest Group_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Request information
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Merci de votre intérêt pour ABBYY.
 
@@ -134,18 +126,17 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-in-2024-convert-twitter-vids-to-customized-soundtracks/"><u>[New] In 2024, Convert Twitter Vids to Customized Soundtracks</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-bust-a-smile-well-up-in-tears-with-top-10-instagram-meme-groups/"><u>[Updated] 2024 Approved Bust a Smile, Well Up in Tears with Top 10 Instagram Meme Groups</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-android-playground-the-hottest-wildlife-games/"><u>[Updated] In 2024, Android Playground The Hottest Wildlife Games</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1726028221036-youtube-mp4/"><u>最適な品質のまま YouTube ビデオを MP4 形式で安全にダウンロードするコツ</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/cal-asmr-series-to-experience-for-2024/"><u>Critical ASMR Series to Experience for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/fijado-problemas-con-la-division-del-disco-en-wd-mi-pasaporte/"><u>Fijado: Problemas Con La División Del Disco en WD Mi Pasaporte</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1728471021547-sd/"><u>SDカードのデータを簡単な手順で回復する方法</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/securing-your-emails-with-two-effective-methods-on-windows-11/"><u>Securing Your Emails with Two Effective Methods on Windows 11</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-zte-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from ZTE</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-apple-iphone-15-plus-drfone-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transferir-archivos-de-ssd-a-hdd-con-facilidad-en-windows/"><u>Transferir Archivos De SSD a HDD Con Facilidad en Windows</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ubertragung-von-musik-cds-direkt-auf-ios-gerate-ohne-itunes/"><u>Übertragung Von Musik-CDs Direkt Auf iOS Geräte Ohne iTunes</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1728462149604-windows-10/"><u>オフライン時のファイル同期：Windows 10環境で実現する手順</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-ice-racers-unite-celebrating-snowboard-cross-victories-winter-olympics-edition/"><u>[New] In 2024, Ice Racers Unite Celebrating Snowboard Cross Victories, Winter Olympics Edition</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-insta-influence-made-simple-for-2024/"><u>[Updated] Insta-Influence Made Simple for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-photo-enhancing-apps-for-smartphones-with-overlays-top-10/"><u>2024 Approved Best Photo-Enhancing Apps for Smartphones with Overlays (Top 10)</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/2024-approved-how-to-translate-video-from-japanese-to-english-online/"><u>2024 Approved How To Translate Video From Japanese to English Online?</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-at-the-joint-conference-on-shared-services-and-outsourcing/"><u>ABBYY at the Joint Conference on Shared Services & Outsourcing</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-clinches-top-position-in-gartners-2023-magic-quadrant-for-advanced-process-mining-solutions/"><u>ABBYY Clinches Top Position in Gartner's 2023 Magic Quadrant for Advanced Process Mining Solutions</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/convert-techtalkstv-shows-into-multiple-formats-including-mp4-wmv-and-more/"><u>Convert TechTalks.tv Shows Into Multiple Formats Including MP4, WMV & More</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724312954176-cookiebot-enabled-enhance-your-websites-user-experience-and-tracking/"><u>Cookiebot-Enabled: Enhance Your Website's User Experience & Tracking</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724313307643-cookiebot-enabled-optimized-data-collection-and-consent-management/"><u>Cookiebot-Enabled: Optimized Data Collection & Consent Management</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/descarga-sin-problemas-los-10-mejores-programas-de-video-4k-gratuitos-con-listados-y-reproduccion-perfecta/"><u>Descarga Sin Problemas: Los 10 Mejores Programas De Vídeo 4K Gratuitos Con Listados Y Reproducción Perfecta</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlocking-website-potential-with-cookiebot-technology/"><u>Unlocking Website Potential with Cookiebot Technology</u></a></li>
 </ul></div>
 

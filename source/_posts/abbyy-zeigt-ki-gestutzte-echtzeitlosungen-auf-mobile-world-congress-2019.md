@@ -1,7 +1,7 @@
 ---
 title: ABBYY Zeigt KI-Gestützte Echtzeitlösungen Auf Mobile World Congress 2019
-date: 2024-10-13T23:43:03.326Z
-updated: 2024-10-14T23:18:24.216Z
+date: 2024-11-23T20:32:04.629Z
+updated: 2024-11-26T20:19:20.974Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ae200a2185b5d6e93408c97ace7b66b8254fa867626e84f986d0cc30e800ea8d.jpg
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/ae200a2185b5d6e93408c97ace7b66b8254fa8676
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ABBYY stellt KI-fähige Echtzeit-Lösungen auf dem MWC 2019 vor
 
 12\. Februar 2019
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### _Reibungsloses Kundenerlebnis mit mobilen Erfassungslösungen von ABBYY_ 
 
@@ -82,27 +90,17 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-boosting-earnings-in-cosmetic-videography-for-2024/"><u>[New] Boosting Earnings in Cosmetic Videography for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nhancing-youtube-viewing-experience-with-right-video-formats-for-2024/"><u>[New] Enhancing YouTube Viewing Experience with Right Video Formats for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1724312994221-abbyy/"><u>「ABBYYによる国際調査:ドキュメント内容情報取得技術の最新研究結果」</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-dominates-the-2024-evalgroups-peak-matrix-benchmark/"><u>ABBYY Dominates the 2024 EvalGroup's PEAK Matrix Benchmark</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/abbyy-japan-sb/"><u>ABBYY Japan ソフトウェア投入に合わせて SBモバイルサービスが新規事業を展開 - プレスリリース</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/achieve-better-engagement-with-websites-optimized-using-the-cookiebot-platform/"><u>Achieve Better Engagement with Websites Optimized Using the Cookiebot Platform</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/comprehensive-guide-fresh-windows-graphics-driver-installation-steps/"><u>Comprehensive Guide: Fresh Windows Graphics Driver Installation Steps</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-pro-max-to-androidios-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 Pro Max To Android/iOS? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-sifting-through-social-media-stars-targeting-your-specific-interests/"><u>In 2024, Sifting Through Social Media Stars Targeting Your Specific Interests</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-on-apple-iphone-13-pro-max-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID On Apple iPhone 13 Pro Max Making It Possible</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/reconnecting-brothers-print-to-end-offline-status-woes/"><u>Reconnecting Brothers Print to End Offline Status Woes</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-5-benefits-of-embracing-process-intelligence-in-your-business/"><u>Top 5 Benefits of Embracing Process Intelligence in Your Business</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/warum-unternehmen-content-kenntnis-erwerben-mussen-um-die-entwicklung-der-intelligenten-prozessautomation-voranzutreiben-eine-abbyy-langzeitstudie-versteht-17/"><u>Warum Unternehmen Content-Kenntnis Erwerben Müssen, Um Die Entwicklung Der Intelligenten Prozessautomation Voranzutreiben – Eine ABBYY-Langzeitstudie Versteht Es</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/what-is-process-mining-and-why-use-it-a-comprehensive-guide/"><u>What Is Process Mining and Why Use It: A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/windows-server-2022c/"><u>Windows Server 2022のCドライブ容量増加手順</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-automated-opener-your-srt-files-windows-and-mac/"><u>[New] Automated Opener Your SRT Files, Windows & Mac</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-harnessing-skypes-voice-free-mp3-exclusive/"><u>[New] In 2024, Harnessing Skype's Voice - Free MP3 Exclusive</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-top-3-voice-capturing-ipad-apps-reviewed/"><u>[Updated] In 2024, TOP 3 Voice Capturing iPad Apps Reviewed</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-productivity-boosters-while-binge-listening-to-podcasts/"><u>[Updated] Productivity Boosters While Binge-Listening to Podcasts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-vlc-media-recording-evaluation/"><u>2024 Approved VLC Media Recording Evaluation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converti-video-mp4-a-formato-libero-aac-sul-web-senza-costi-usando-lapplicazione-di-moveavi/"><u>Converti Video MP4 a Formato Libero AAC Sul Web Senza Costi, Usando L'applicazione Di Moveavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guia-passo-a-passo-para-criar-e-gravar-videoaulas-em-windows-ou-macos/"><u>Guia Passo-a-Passo Para Criar E Gravar VideoAulas Em Windows Ou macOS</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guide-rapide-transformez-vos-fichiers-raw-en-images-de-haute-qualite-au-format-jpeg/"><u>Guide Rapide : Transformez Vos Fichiers RAW en Images De Haute Qualité Au Format JPEG</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-best-unsung-free-speech-to-text-apps-for-your-mac/"><u>In 2024, Best Unsung Free Speech-to-Text Apps for Your Mac</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mastering-imovie-solving-the-imovie-freezes-and-crashes-challenge/"><u>Mastering iMovie: Solving the 'iMovie Freezes and Crashes' Challenge</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-6-substitutes-for-windows-movie-maker-a-comprehensive-guide/"><u>Top 6 Substitutes for Windows Movie Maker : A Comprehensive Guide</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mkvavi-wmvm4v/"><u>오픈소스 MKV/AVI를 WMV/M4V로 자유성: 영상 코어 강조</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

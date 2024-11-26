@@ -1,7 +1,7 @@
 ---
 title: Easy Backup & Save Guide - Outlook Emails on PC | Quick Tips
-date: 2024-11-14T02:52:39.872Z
-updated: 2024-11-16T17:34:13.758Z
+date: 2024-11-20T16:25:38.553Z
+updated: 2024-11-26T19:12:26.572Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/d1f3ab1e0f303254b5da0d1c46b4cd5df7801fb77b72cd0a87c2f6333bdfc5bd.jpg
@@ -28,6 +28,10 @@ Von[Holiday](https://tools.techidaily.com/ubackup/products/)/ Aktualisiert am 14
 
 Teilen Sie dies: [![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg)](https://www.ubackup.com/de/data-recovery-disk/javascript:void%280%29;) [![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg)](https://www.ubackup.com/de/data-recovery-disk/javascript:void%280%29;) [![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg)](https://www.ubackup.com/de/data-recovery-disk/javascript:void%280%29;) [![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg)](https://www.ubackup.com/de/data-recovery-disk/javascript:void%280%29;) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Inhaltsverzeichnis** 
 
 1. [Ist es sicher, den Papierkorb zu löschen?](https://tools.techidaily.com/ubackup/products/)
@@ -51,10 +55,7 @@ Nicht zu vergessen sind die kürzlich gelöschten Dateien im Papierkorb. Sie wer
 [![Papierkorb leeren](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows-recovery/empty-recycle-bin.png "Papierkorb leeren")
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Um Speicherplatz freizugeben, leeren viele Benutzer ihren Papierkorb. Aber ist es sicher, den Papierkorb zu löschen? Um spätere Bedauern zu vermeiden, öffnen Sie diesen temporären Speicherplatz, um zu prüfen, ob sich darin Dateien befinden, die Sie wiederherstellen möchten.
@@ -70,10 +71,7 @@ Vor der dauerhaften Löschung des Papierkorbs sollten Sie sicherstellen, dass ke
 [![Windows-Einstellungen Personalisierung](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/windows-settings-personalization.png "Windows-Einstellungen Personalisierung")
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Schritt 2**. Klicken Sie auf die Schaltfläche „**Designs**“.
@@ -84,22 +82,12 @@ Vor der dauerhaften Löschung des Papierkorbs sollten Sie sicherstellen, dass ke
 
 [![Desktopsymbol-Einstellungen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/desktop-icon-settings.png "Desktopsymbol-Einstellungen")
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Schritt 4**. Suchen Sie das „**Papierkorb**“-Symbol, entfernen Sie das Häkchen und bestätigen Sie mit „**Übernehmen**“ und „**OK**“.
 
 [![Papierkorb](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/check-recycle-bin-click-ok.png "Papierkorb")
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Teil 2\. Wie kann man den Papierkorb vom Desktop entfernen?
@@ -115,10 +103,7 @@ Wenn Sie den Papierkorb mittels erhöhter Eingabeaufforderung zurücksetzen möc
 [![cmd Papierkorb zurücksetzen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/command-prompt/cmd-reset-recycle-bin.png "cmd Papierkorb zurücksetzen")
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Teil 3\. Wie kann man gelöschte Dateien aus dem Papierkorb nach dem Leeren wiederherstellen?
@@ -149,13 +134,6 @@ Sicherer Download
 
 [![x Dateien wiederherstellen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/data-recovery-disk/windows-recovery/select-deleted-excel-files-click-recover.png "x Dateien wiederherstellen")
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Bonus-Tipps: Wie verhindert man Datenverlust auf Computern?**
 
 Angesichts der Bedeutung von Sicherheitsmaßnahmen wie regelmäßigen Backups, um Datenverlust zu vermeiden, fragen Sie sich vielleicht, ob es spezielle Software zur Datenverlustprävention für Windows-Computer gibt.
@@ -179,15 +157,31 @@ Sicherer Download
 
 [![dateisicherung](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/de/std/backup/file-backup/file-backup.png "dateisicherung")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Schritt** **2**. Sie können ihn im Feld „**Aufgabename**“ benennen, um ihn von anderen Backups zu unterscheiden.
 
 [![aufgabename eingeben](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/de/std/backup/file-backup/task-name.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Schritt** **3**. Klicken Sie auf „**\+ Datei**“ oder „**\+ Ordner**“, damit Sie die Dateien/Ordner auswählen können, die Sie sichern möchten. (Sie können mehrere Ordner und Dateien als Quelle hinzufügen; Sie können auch Ordner und Dateien direkt als Quelle auf den Backupper ziehen).
 
 [![Ordner hinzufügen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/de/std/backup/file-backup/add-folder.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Schritt 4**. Nach Abschluss des Sicherungsvorgangs klicken Sie auf „Fertig“, um das Fenster zu schließen.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Zusammenfassung
 
@@ -257,21 +251,7 @@ Wiederherstellen von gelöschten und verlorenen Daten aus allen Katastrophen in 
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Sauber & Sicher
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://www.ubackup.com/resource/images/ub-mr-theme/ub-article-mr-img-dibu.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -288,21 +268,20 @@ Wiederherstellen von gelöschten und verlorenen Daten aus allen Katastrophen in 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-beyond-tube-the-premier-spots-for-online-video-sharing/"><u>[New] 2024 Approved Beyond Tube The Premier Spots for Online Video Sharing</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-how-to-choose-a-live-streaming-platform-with-10-tips-in-2024/"><u>[New] How to Choose a Live Streaming Platform with 10 Tips, In 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-highlighted-14-examples-of-motion-texts/"><u>[Updated] Highlighted 14 Examples of Motion Texts</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-sketching-your-signature-tiktok-end-note/"><u>[Updated] Sketching Your Signature TikTok End-Note</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/1-seamless-guide-transferring-your-tunes-from-icloud-directly-to-desktop/"><u>1. Seamless Guide: Transferring Your Tunes From iCloud Directly to Desktop</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726225779161-avi-mp4-movavi/"><u>網路直接免費 AVI-MP4 改編工具 - 利用 Movavi 影片編輯軟體</u></a></li>
-<li><a href="https://blog-min.techidaily.com/jpgpng/"><u>移動華維：在線上免費JPG與PNG形象封包間變化工具</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mpeg-wma-movavi/"><u>在线免费将 MPEG 文件转换为 WMA音频 - 利用 Movavi 软件</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/clique-aqui-para-converter-seu-mp3-em-wav-gratuitamente-ao-vivo-tecnicas-de-conversao-pela-web/"><u>Clique Aqui Para Converter Seu MP3 Em WAV Gratuitamente Ao Vivo - Técnicas De Conversão Pela Web</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/convertissez-vos-videos-m2ts-en-mp4-sans-frais-via-le-service-de-movavi-en-ligne/"><u>Convertissez Vos Vidéos M2TS en MP4 Sans Frais via Le Service De Movavi en Ligne</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/how-to-repair-corrupt-mov-mp4-avi-mkv-and-other-video-files/"><u>How to Repair Corrupt MOV, MP4, AVI, MKV, and Other Video Files</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-perfect-audio-the-10-premier-podcast-mics/"><u>In 2024, Perfect Audio The 10 Premier Podcast Mics</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/premier-video-converters-for-tweeting-videos-for-2024/"><u>Premier Video Converters for Tweeting Videos for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transform-nef-photos-to-png-gratis-quick-and-simple-online-tool-by-movavi/"><u>Transform NEF Photos to PNG Gratis - Quick & Simple Online Tool by Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/wifi-ram-mpeg-and-desktop/"><u>무료 WiFi RAM MPEG 변환 - 모바일 & Desktop 호환성</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mp4-on/"><u>무료 이미지 영상을 MP4로 전환하는 방법 - Onラインでトゥーディ</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-pro-tips-for-streaming-and-screening-netflix-on-mac-for-2024/"><u>[New] Pro-Tips for Streaming & Screening Netflix on Mac for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-essential-handbook-to-planning-zoom-sessions/"><u>[Updated] 2024 Approved The Essential Handbook to Planning Zoom Sessions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-discovering-instagram-de-follows-quickly/"><u>[Updated] In 2024, Discovering Instagram De-Follows Quickly</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/1728489752847-photoshop/"><u>挽救 Photoshop 資料 - 重組已删除、未保存或損壞的文件</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-dominates-gartners-magic-quadrant-with-top-spot-in-process-mining-tools/"><u>ABBYY Dominates Gartner's Magic Quadrant with Top Spot in Process Mining Tools</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-legal-evolution-empowering-law-firms-with-digitization-and-process-automation/"><u>ABBYY Legal Evolution - Empowering Law Firms with Digitization & Process Automation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-mobile-web-capture-sdk-innovatives-losungsangebot-fur-eine-optimierte-einarbeitung-auf-mobilen-endgeraten/"><u>Abbyy Mobile Web Capture SDK: Innovatives Lösungsangebot Für Eine Optimierte Einarbeitung Auf Mobilen Endgeräten</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/advanced-analytics-through-automated-data-collection-the-cookiebot-edge/"><u>Advanced Analytics Through Automated Data Collection: The Cookiebot Edge</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/ai/"><u>AI駆動知覚学習: 高度なコンテンツ分析が求められる時代</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/arsenal-womens-fc-champions-abbyy-as-top-tier-cognitive-processing-partner/"><u>Arsenal Womens FC Champions ABBYY as Top-Tier Cognitive Processing Partner</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-emotion-to-entertainment-the-artisans-approach-to-making-memes-gifs-for-2024/"><u>From Emotion to Entertainment The Artisan’s Approach to Making Memes (GIFs) for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-oppo-a38-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Oppo A38 Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-from-iphone-7-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently From iPhone 7</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-celebrated-selections-honorable-websites-for-securing-snapchat-alerts/"><u>In 2024, Celebrated Selections Honorable Websites for Securing Snapchat Alerts</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Honor Magic 5 Lite | Dr.fone</u></a></li>
 </ul></div>
 

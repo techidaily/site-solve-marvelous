@@ -1,7 +1,7 @@
 ---
 title: Installazione E Configurazione Del Software Libero per La Sincronizzazione Automatica Con Disco Rigido Esterno
-date: 2024-11-09T22:39:58.879Z
-updated: 2024-11-17T05:55:12.900Z
+date: 2024-11-24T20:43:09.085Z
+updated: 2024-11-26T18:45:36.584Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/c614df743851cde902b9dc7b624e356646f565efb6b83602d7f5ffd347873428.jpg
@@ -28,6 +28,10 @@ Da[Aira](https://tools.techidaily.com/ubackup/products/)L'ultimo Aggiornamento 3
 
 Condividi questo: ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Sommario** 
 
 1. [Introduzione](https://tools.techidaily.com/ubackup/products/)
@@ -50,17 +54,7 @@ Incontrare il problema di non poter digitare nella barra di ricerca di Windows 1
 [![non riesco a digitare nella barra di ricerca di windows 10](https://www.ubackup.com/it/articoli/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/it/others/log/can-t-type-in-search-bar-windows-10.png)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Capire il Problema di Non Poter Digitare nella Barra di Ricerca su Windows 10
@@ -83,6 +77,10 @@ Alcune applicazioni di terze parti o conflitti software potrebbero interferire c
 
 Ora, esploriamo cinque soluzioni per affrontare il problema di non poter digitare nulla nella casella di ricerca su Windows 10, garantendo un'esperienza utente fluida.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Soluzione 1: Riavvio dei Servizi Cortana e Ricerca di Windows
 
 Passo 1\. Apri il Task Manager:
@@ -100,6 +98,10 @@ Fai clic con il tasto destro su entrambi Cortana ed Esplora file di Windows e sc
 Passo 4\. Prova a Digitare nella Barra di Ricerca:
 
 Prova a digitare nella barra di ricerca dopo aver riavviato i servizi.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Soluzione 2: Esegui il Risolutore dei Problemi di Ricerca e Indicizzazione
 
@@ -212,10 +214,7 @@ La ricostruzione dell'indice non influisce sui file, ma migliora la funzionalit�
 Sì, AOMEI Backupper fornisce una soluzione affidabile per il ripristino del sistema in caso di problemi.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Consigli per un'Operazione Fluida di Windows 10
@@ -227,10 +226,7 @@ Utilizza strumenti di risoluzione dei problemi come AOMEI Backupper per affronta
 Monitora i servizi di sistema come Cortana e Ricerca di Windows per un funzionamento ottimale.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusione
@@ -245,19 +241,6 @@ Le informazioni fornite sono state utili? Il tuo voto è importante per noi!
 
 ![Aira](https://www.ubackup.com/assets/images/author/aira.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Aira](https://tools.techidaily.com/ubackup/products/) · Editore
 
 Aira è l'editore tecnico di AOMEI, principalmente responsabile di AOMEI Backupper. Le piace aiutare gli utenti con domande su backup e ripristino del computer, clonazione del disco, sincronizzazione e altro ancora. Ha scritto molti articoli su AOMEI Backupper. Nel tempo libero ama fare sport e guardare film. Come un redattore professionale di AOMEI. Aira sarà felice di aiutarti.
@@ -268,13 +251,6 @@ Le informazioni fornite sono state utili? Il tuo voto è importante per noi!
 
 [Sì](https://tools.techidaily.com/ubackup/products/)[No](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Scarica Gratis AOMEI Backupper Ora
 
 Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione.
@@ -282,6 +258,10 @@ Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione
 [**Scarica Gratuito**  Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/) 
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Pulito e Sicuro
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
 
@@ -300,16 +280,22 @@ Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://solve-marvelous.techidaily.com/explorez-les-meilleures-options-de-sauvegarde-avec-clonage-et-image-disque-uefi-sur-votre-systeme-windows/"><u>« Explorez Les Meilleures Options De Sauvegarde Avec Clonage Et Image Disque UEFI Sur Votre Système Windows »</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-exploring-the-monetary-mechanics-of-t-series-youtube-channel/"><u>[Updated] Exploring the Monetary Mechanics of T-Series Youtube Channel</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-simplified-techniques-for-converting-vimeo-media/"><u>[Updated] Simplified Techniques for Converting Vimeo Media</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/c/"><u>伸び代を超えたサーバーCドライブは最適化されますか？</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/easy-steps-to-restore-lost-unsaved-excel-files-in-2016-with-ifind-data-recovery/"><u>Easy Steps to Restore Lost Unsaved Excel Files in 2016 with IFind Data Recovery</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-xiaomi-redmi-note-13-proplus-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Xiaomi Redmi Note 13 Pro+ 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ssdhddwindows-111087/"><u>SSD到HDD换算路径：详解Windows 11/10/8/7桌面操作</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/start-with-the-original-equation-8x-plus-3-5x-6/"><u>Start with the Original Equation: $8X + 3 = 5X - 6$</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/transformador-on-line-sem-custo-m4a-para-wma-em-segundos-maquiagem-basica-e-rapida/"><u>Transformador On-Line Sem Custo: M4A Para WMA Em Segundos - Maquiagem Básica E Rápida</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/sh-your-live-stream-potential-with-superior-webcam-tech/"><u>Unleash Your Live Stream Potential with Superior Webcam Tech</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1728469594631-windows-11/"><u>Windows 11でのデータセーフティ:バックアップと復元機能の実行方法</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-top-screen-recording-tools-face-off-summary/"><u>[New] 2024 Approved Top Screen Recording Tools Face-Off Summary</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-media-showdown-podcasts-vs-youtube-in-the-modern-world/"><u>[New] Media Showdown Podcasts Vs. YouTube in the Modern World</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-reinstate-lost-watch-icon-on-facebook-platform/"><u>[Updated] In 2024, Reinstate Lost Watch Icon on Facebook Platform</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-seamless-fb-to-mp4-conversion-high-definition-options-now/"><u>2024 Approved Seamless FB to MP4 Conversion, High Definition Options Now</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-speaking-and-listening-to-create-better-decks/"><u>2024 Approved Speaking and Listening to Create Better Decks</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-online-insights-effortlessly-harnessing-the-power-of-cookiebot-technology/"><u>Enhance Online Insights Effortlessly: Harnessing the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-user-experience-with-our-cookiebot-solutions/"><u>Enhance User Experience with Our Cookiebot Solutions!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-performance-through-advanced-cookiebot-solutions/"><u>Enhanced Performance Through Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-performance-using-cookiebot-solutions/"><u>Enhanced Performance Using Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-traffic-growth-with-cookiebot-technology/"><u>Enhanced Traffic Growth with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-web-analytics-with-the-power-of-cookiebot-technology/"><u>Enhanced Web Analytics with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-web-traffic-with-automated-tracking-the-power-of-cookiebot/"><u>Enhanced Web Traffic with Automated Tracking: The Power of Cookiebot</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/expanding-horizons-in-the-world-of-digital-intelligence-with-roboyo-and-abbyy/"><u>Expanding Horizons in the World of Digital Intelligence with Roboyo and ABBYY</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/frame-your-memories-the-best-free-and-paid-vignette-apps-for-mobile-for-2024/"><u>Frame Your Memories The Best Free and Paid Vignette Apps for Mobile for 2024</u></a></li>
+<li><a href="https://win-help.techidaily.com/guide-complet-a-hirens-bootcd-la-meilleure-alternative-pour-resoudre-les-problemes-informatiques-rapidement-et-facilement/"><u>Guide Complet À Hiren's BootCD: La Meilleure Alternative Pour Résoudre Les Problèmes Informatiques Rapidement Et Facilement</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-user-dialogue-shapes-ai-understanding-in-chatgpt/"><u>How User Dialogue Shapes AI Understanding in ChatGPT?</u></a></li>
 </ul></div>
 

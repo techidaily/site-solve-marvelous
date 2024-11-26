@@ -1,7 +1,7 @@
 ---
 title: ABBYY at the Joint Conference on Shared Services & Outsourcing
-date: 2024-11-10T06:41:57.150Z
-updated: 2024-11-16T23:51:08.760Z
+date: 2024-11-22T19:53:45.732Z
+updated: 2024-11-26T18:01:11.074Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7190f701d24b2bca2702a5bcd803eaeb74415822adafed338c6c5049f6c7aefb.jpg
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/7190f701d24b2bca2702a5bcd803eaeb74415822a
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ABBYY auf der Shared Service und Outsourcing Woche
 
 22\. November 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Mehr Effizienz und Transparenz durch intelligente Input Management Lösungen**
 
@@ -80,22 +88,15 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-initiatives-to-enhance-your-podcasts-rss-feeds/"><u>[New] In 2024, Initiatives to Enhance Your Podcast's RSS Feeds</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ssdcwindows-1087/"><u>如何快速将SSD挂载成C驱动器：适用于Windows 10、8和7的方法</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/a-roadmap-for-monetization-success-on-youtube-via-adsense-for-2024/"><u>A Roadmap for Monetization Success on YouTube via AdSense for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/about-crystal-discover-the-inspiring-world-of-an-accomplished-author/"><u>About Crystal: Discover the Inspiring World of an Accomplished Author</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/come-recuperare-un-documento-excel-cancellato-su-windows-11-passi-facili/"><u>Come Recuperare Un Documento Excel Cancellato Su Windows 11: Passi Facili</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fix-how-to-get-steam-games-running-again-in-windows-11/"><u>Fix: How to Get Steam Games Running Again in Windows 11</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/guia-paso-a-paso-para-rescatar-datos-desaparecidos-accidentalmentedefinitivamente-en-windows-windows-7-con-metodos-probados-y-confirmados/"><u>Guía Paso a Paso Para Rescatar Datos Desaparecidos Accidentalmente/Definitivamente en Windows 지(Windows 7) Con Métodos Probados Y Confirmados</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-poco-f5-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Poco F5 5G</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/real-time-streaming-with-manycam-premium-video-chat-software-and-digital-camera-alternative/"><u>Real-Time Streaming with ManyCam: Premium Video Chat Software and Digital Camera Alternative</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/recover-lost-files-with-ease-using-these-top-3-free-tools-on-windows-11/"><u>Recover Lost Files with Ease Using These Top 3 Free Tools on Windows 11</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-privacy-first-securely-document-your-fb-video-conversations-for-2024/"><u>[Updated] Privacy First Securely Document Your FB Video Conversations for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-travel-film-kit-the-necessary-arsenal/"><u>2024 Approved Travel Film Kit The Necessary Arsenal</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/charting-the-top-of-idc-landscape-how-abbyy-sets-industry-standards-in-data-capture-solutions/"><u>Charting the Top of IDC Landscape - How ABBYY Sets Industry Standards in Data Capture Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-analytics-elevating-data-management-and-personalization/"><u>Cookiebot-Driven Analytics: Elevating Data Management and Personalization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-personalization-for-superior-online-engagement/"><u>Cookiebot-Driven Personalization for Superior Online Engagement</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-digital-solutions/"><u>Cookiebot-Enabled Digital Solutions</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/fcpx-pr/"><u>FCPX Pr</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/emales-in-youtube-a-list-of-leading-creators/"><u>Top Females in YouTube A List of Leading Creators</u></a></li>
+<li><a href="https://howto.techidaily.com/xiaomi-redmi-note-13-pro-5g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi Redmi Note 13 Pro 5G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-samsung-galaxy-s24-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Samsung Galaxy S24 | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

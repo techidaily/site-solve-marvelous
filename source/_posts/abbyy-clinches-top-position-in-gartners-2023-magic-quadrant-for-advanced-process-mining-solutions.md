@@ -1,7 +1,7 @@
 ---
 title: ABBYY Clinches Top Position in Gartner's 2023 Magic Quadrant for Advanced Process Mining Solutions
-date: 2024-11-12T06:37:00.693Z
-updated: 2024-11-17T05:05:32.145Z
+date: 2024-11-21T17:44:11.089Z
+updated: 2024-11-26T19:23:27.056Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/648356b382a636832a6e99201a4517a582a77b906dab7a37be3d640b5bfda50d.jpg
@@ -17,7 +17,15 @@ April 06, 2023
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![News Partners7](https://static2.abbyy.com/abbyycommedia/33722/news-partners7.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/) today announced it has been named a Leader in the Gartner® 2023 Magic Quadrant™ for Process Mining Tools. According to the report, “Process mining tools deliver visibility and insights to technology innovation leaders that enable smart decision making and strong performance on an organization’s critical priorities. In this report, Gartner examines market forces and enterprise vendors of such software.”
 
@@ -43,10 +51,7 @@ _1 Gartner® Magic Quadrant™ for Process Mining Tools, March 20, 2023, ID G007
 _2 Gartner, [Forecast Analysis: Process Mining, Worldwide](https://www.gartner.com/en/documents/4007520), Oct. 26, 2021_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### About ABBYY
@@ -60,10 +65,7 @@ ABBYY is a US-based global company with offices in 14 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### ABBYY Editorial Contact
@@ -71,10 +73,7 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Gina Ray
@@ -100,24 +99,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-aural-and-visual-summary-synthesizer/"><u>[Updated] Aural and Visual Summary Synthesizer</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-chasing-the-crash-action-cameras-reviewed/"><u>[Updated] In 2024, Chasing the Crash Action Cameras Reviewed</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-codec-battlegrounds-assessing-the-advantages-of-av1-and-vp9/"><u>2024 Approved Codec Battlegrounds Assessing the Advantages of Av1 and VP9</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1728461407476-windows/"><u>如何在不上网的情况下，用Windows</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-apple-watch-series-se-analysis/"><u>Budget-Friendly Apple Watch Series SE Analysis</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-honor-80-pro-straight-screen-edition-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Honor 80 Pro Straight Screen Edition</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/come-ritrovare-i-tuoi-segnalibri-persi-su-chrome-una-guida-passo-passo/"><u>Come Ritrovare I Tuoi Segnalibri Persi Su Chrome: Una Guida Passo-Passo</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/comment-installer-et-utiliser-un-point-de-recuperation-sur-le-serveur-dechange-microsoft/"><u>Comment Installer Et Utiliser Un Point De Récupération Sur Le Serveur D'Échange Microsoft</u></a></li>
-<li><a href="https://win-data.techidaily.com/download-the-top-171plus-free-bootstrap-template-packs-from-creative-tim-enhance-your-project-today/"><u>Download the Top 171+ Free Bootstrap Template Packs From Creative Tim - Enhance Your Project Today!</u></a></li>
-<li><a href="https://win-dash.techidaily.com/effortless-installation-of-scansnap-s1300i-drivers-get-started/"><u>Effortless Installation of ScanSnap S1300i Drivers - Get Started!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/expert-raid-data-restoration-with-ifind-tech-comprehensive-solutions-for-raid-0-1-and-5/"><u>Expert RAID Data Restoration with iFind Tech - Comprehensive Solutions for Raid 0, 1 & 5</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/fixing-missing-physxloaderdll-file-a-step-by-step-solution/"><u>Fixing Missing PhysXLoader.Dll File – A Step-by-Step Solution</u></a></li>
-<li><a href="https://games-able.techidaily.com/game-on-identifying-premier-titles-on-apples-marketplace/"><u>Game On: Identifying Premier Titles on Apple's Marketplace</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mastering-data-revival-with-ifind-software-the-ultimate-manual-for-retrieving-lost-microsoft-word-documents/"><u>Mastering Data Revival with IFind Software: The Ultimate Manual for Retrieving Lost Microsoft Word Documents</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/passaggi-facili-per-il-ripristino-dei-promemoria-sui-dispositivi-iphone-una-guida-completa/"><u>Passaggi Facili per Il Ripristino Dei Promemoria Sui Dispositivi iPhone: Una Guida Completa</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/professionelles-guide-die-effektivsten-methoden-zur-wiederherstellung-von-hdd-partitionen/"><u>Professionelles Guide: Die Effektivsten Methoden Zur Wiederherstellung Von HDD Partitionen.</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/step-by-step-guide-creating-a-bootable-usb-or-hdd-on-windows-11/"><u>Step-by-Step Guide: Creating a Bootable USB or HDD on Windows 11</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-canvas-reborn-spotlight-on-top-6-in-digital-arts/"><u>The Canvas Reborn Spotlight on Top 6 in Digital Arts</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transfer-files-from-windows-7-to-windows-11-a-comprehensive-guide-with-five-methods/"><u>Transfer Files From Windows 7 to Windows 11: A Comprehensive Guide with Five Methods</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-turn-your-webcam-into-a-broadcast-device-with-vlc/"><u>[New] Turn Your Webcam Into a Broadcast Device with VLC</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-capture-the-light-filmographys-five-essential-camera-techniques-of-24/"><u>[Updated] Capture the Light Filmography's Five Essential Camera Techniques of '24</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-9-live-game-streaming-platform-you-should-know/"><u>2024 Approved Top 9 Live Game Streaming Platform You Should Know</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/1728477967448-outlook/"><u>簡単な手順でOutlook メールを安全に保存する方法</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-website-with-smart-analytics/"><u>Cookiebot-Enabled: Enhancing Your Website with Smart Analytics</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/cyber-celebrity-surge-2024/"><u>Cyber Celebrity Surge 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/efficient-data-capture-with-abbyy-integrating-flexicapture-and-laserfiche-technologies/"><u>Efficient Data Capture with ABBYY: Integrating FlexiCapture and Laserfiche Technologies</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/elevate-user-experience-with-our-advanced-cookiebot-technology-solutions/"><u>Elevate User Experience with Our Advanced Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/elite-mortgage-firms-streamlining-processes-for-swift-convenient-client-solutions/"><u>Elite Mortgage Firms: Streamlining Processes for Swift, Convenient Client Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/empowered-through-innovative-automated-conversion-optimization/"><u>Empowered Through Innovative Automated Conversion Optimization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-conversions-with-cookiebot-integration-the-key-to-seo-success/"><u>Enhance Conversions with Cookiebot Integration - The Key to SEO Success!</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/pinnacle-of-pc-clicker-fun-top-12-must-try-games/"><u>Pinnacle of PC Clicker Fun Top 12 Must-Try Games</u></a></li>
 </ul></div>
 

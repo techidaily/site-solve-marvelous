@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: Enhancing Your Website's Performance with Advanced Analytics Tools"
-date: 2024-11-09T22:20:36.372Z
-updated: 2024-11-17T03:39:26.920Z
+date: 2024-11-22T19:58:09.182Z
+updated: 2024-11-26T17:08:23.177Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/aefba9f0ac6f593076f657b0dfeebc66593ffd1b9ade996e1956601a5424d0a8.jpg
@@ -11,6 +11,10 @@ thumbnail: https://thmb.techidaily.com/aefba9f0ac6f593076f657b0dfeebc66593ffd1b9
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Calling ISVs and Partners: Upskill Your Business Solutions to Intelligently Process Documents
 
 ###### Bill Galusha,Maxime Vermeir,Stefan Schmainta
@@ -19,6 +23,10 @@ April 29, 2021
 
 ![Upskill Your Business Solutions to Intelligently Process Documents | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/33506/bright-future-new.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Today, organizations are using various solutions to automate all types of back office and customer facing business processes. However, these robotic process automation (RPA) solutions, intelligent automation systems, chatbots, and mobile apps typically lack the advanced technology for being able to understand and process a document that contains unstructured data. As a software vendor or partner, you might have cobbled together a solution for a customer where you added OCR into your platform and tried to build some logic for extraction, but at the end of the day you never quite achieved a production level offering.
 
 With the beta launch of ABBYY Vantage, a cloud-first platform of cognitive services that applies AI to understand documents in a fast and simple way, ISVs and partners now have the perfect platform for integrating trained document models (Vantage Skills) into virtually any business application. A Vantage Skill delivers the advanced capabilities of OCR, machine learning, and NLP into a nice, simple design that is easy to integrate into virtually any business application. The [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/) is also new and introduces an online community where ABBYY has started building a vibrant ecosystem that will enable enterprise organizations to benefit from ABBYY Vantage and the combined technology and solutions ABBYY partners bring to the marketplace.
@@ -26,10 +34,7 @@ With the beta launch of ABBYY Vantage, a cloud-first platform of cognitive servi
 In this blog post, we want to provide insight into a few of the technology integrations that are already being developed and will be generally available soon. During our [ABBYY Reimagine](https://tools.techidaily.com/abbyy/products/) event, you may have already heard about the great capabilities Vantage has, but it gets even better. When Vantage is combined with other powerful technologies, it allows enterprises to further realize the benefits of combining AI technology for understanding documents with a larger end-to-end to solution. The combined technology not only has a major impact on operations but the customer experience as well.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Cognitive virtual assistants
@@ -46,22 +51,13 @@ RPA bots are great for automating simple, repetitive tasks, but imagine if robot
 
 ![Kyron ABBYY skills for rpa](https://static1.abbyy.com/abbyycommedia/32872/abbyy-kryon-customer-story.gif)
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Leveraging the power of SAP Business Technology Platform
 
 If you are looking to enhance and upgrade your SAP cloud environment, Incutre's [Cherrywork platform](https://incture.com/cherrywork-intelligent-digital-applications/) provides enterprises with pre-packaged and ready-to-deploy intelligent digital applications, and also seamlessly integrates with ABBYY Vantage. With a click of a button, you can enable your SAP cloud with the ability to understand documents and structure data that can be integrated into your SAP processes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tapping into the power of the Microsoft Power platform
 
@@ -82,22 +78,12 @@ Do you have a great idea for a new Cognitive skill? Want to build a connector fo
 ![Bill Galusha ABBYY](https://static5.abbyy.com/abbyycommedia/25718/billgalusha-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Bill Galusha
 
 ![](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Maxime Vermeir
 
@@ -174,24 +160,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-decoding-silent-snapchat-user-possible-block/"><u>[New] 2024 Approved Decoding Silent Snapchat User Possible Block</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-ultimate-free-switch-console-simulations/"><u>[New] 2024 Approved Ultimate Free Switch Console Simulations</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-three-tricks-for-transforming-videos-on-iphone-by-merging-melodies-for-2024/"><u>[New] Three Tricks for Transforming Videos on iPhone by Merging Melodies for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-collageknights-syncing-videos-across-devices/"><u>[Updated] CollageKnights Syncing Videos Across Devices</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-craft-a-captivating-story-integrating-images-on-instagram/"><u>2024 Approved Craft a Captivating Story Integrating Images on Instagram</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/3-tipps-zum-ubertragen-und-einrichten-einer-bootfahigen-windows-11-system-auf-usb-effizienter-workaround/"><u>3 Tipps Zum Übertragen Und Einrichten Einer Bootfähigen Windows 11 System Auf USB – Effizienter Workaround</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-infinix-note-30-vip-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Infinix Note 30 VIP Phone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-oppo-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Oppo FRP In 3 Different Ways</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-the-required-apple-store-verification-for-apple-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, How To Bypass the Required Apple Store Verification For Apple iPhone 14 Pro Max</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-verizon-apple-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, How to Unlock Verizon Apple iPhone 13 Pro Max</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/infuse-kinetic-smear-into-photos-in-photoshop/"><u>Infuse Kinetic Smear Into Photos in Photoshop</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/is-it-possible-to-use-samsung-data-migration-tool-for-cloning-non-samsung-ssds/"><u>Is It Possible to Use Samsung Data Migration Tool for Cloning Non-Samsung SSDs?</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/rencana-praktis-untuk-kopi-file-ke-ssd-dari-hdd-proses-terperinci-dalam-3-langkah-yang-efektif/"><u>Rencana Praktis Untuk Kopi File Ke SSD Dari HDD: Proses Terperinci Dalam 3 Langkah Yang Efektif!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/resolved-how-to-fix-the-apple-id-verification-unsuccessful-issue-in-detail/"><u>Resolved! How to Fix the 'Apple ID Verification Unsuccessful' Issue in Detail</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/resolviendo-el-error-de-backup-en-windows-11-guia-completa/"><u>Resolviendo El Error De Backup en Windows 11 - Guía Completa</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/sichere-daten-anleitung-zum-einfachen-aufbau-von-inkrementeller-backup-in-microsoft-hyper-v-vms-auf-dem-windows-server/"><u>Sichere Daten: Anleitung Zum Einfachen Aufbau Von Inkrementeller Backup in Microsoft Hyper-V VMs Auf Dem Windows Server</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/sketchup-mastery-expert-techniques-for-retrieving-and-repairing-skp-files/"><u>SketchUp Mastery: Expert Techniques for Retrieving and Repairing SKP Files</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/troubleshooting-tips-how-to-get-your-windows-eboot-task-manager-up-and-running-again/"><u>Troubleshooting Tips: How to Get Your Windows Eboot Task Manager Up and Running Again</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ultimate-list-of-the-7-most-effective-apps-for-iphone-to-windows-10-image-migration/"><u>Ultimate List of the 7 Most Effective Apps for iPhone-to-Windows 10 Image Migration</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-delving-into-the-world-of-asmr-soundscapes-for-2024/"><u>[Updated] Delving Into the World of ASMR Soundscapes for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-best-8-linux-programs-for-media-makers/"><u>[Updated] In 2024, Best 8 Linux Programs for Media Makers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-intova-x-visionary-action-camera-unveiled-today/"><u>[Updated] Intova X Visionary Action Camera Unveiled Today</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-cha-cha-chickadees/"><u>2024 Approved Cha-Cha Chickadees</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-honor-magic-5-pro-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Honor Magic 5 Pro to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/achieve-high-definition-quality-with-video-enhancer-22-tutorial/"><u>Achieve High-Definition Quality with Video Enhancer 2.2 Tutorial</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-solutions-enhancing-user-experience-and-conversions/"><u>Cookiebot-Enabled Solutions: Enhancing User Experience & Conversions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhanced-optimize-your-site-with-expert-tracking-technology/"><u>Cookiebot-Enhanced: Optimize Your Site with Expert Tracking Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-the-key-ingredient-for-boosting-website-engagement-and-seo-success/"><u>Cookiebot: The Key Ingredient for Boosting Website Engagement and SEO Success</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-your-key-to-unlocking-advanced-tracking-features-on-websites/"><u>Cookiebot: Your Key to Unlocking Advanced Tracking Features on Websites</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/discover-abbyy-one-your-key-to-next-generation-innovative-workflow-automation-solutions/"><u>Discover ABBYY One: Your Key to Next-Generation Innovative Workflow Automation Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effective-strategies-for-boosting-web-page-visibility-and-traffic/"><u>Effective Strategies for Boosting Web Page Visibility and Traffic</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/efficient-health-management-top-5-advantages-of-implementing-automated-referrals/"><u>Efficient Health Management: Top 5 Advantages of Implementing Automated Referrals</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/elevate-web-analytics-effortlessly-discover-tools-beyond-traditional-cookies/"><u>Elevate Web Analytics Effortlessly: Discover Tools Beyond Traditional Cookies!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/elevate-your-accounts-payable-how-scena-achieved-a-staggering-60-reduction-in-invoice-and-credit-note-processing-with-seamless-abbyy-engeneum-automation-and11/"><u>Elevate Your Accounts Payable: How Scena Achieved a Staggering 60% Reduction in Invoice & Credit Note Processing with Seamless ABBYY, Engeneum Automation and Sage Integration - Insider Customer Insights</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-worlds-best-short-videos-download-now-free/"><u>In 2024, World's Best Short Videos – Download Now! (Free)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/step-by-step-diving-into-the-world-of-igtv/"><u>Step-by-Step Diving Into the World of IGTV</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-and-resolving-windows-11-setup-failures-successfully/"><u>Troubleshooting and Resolving Windows 11 Setup Failures Successfully</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/ultimate-selection-of-the-7-premier-mp4-fusion-tools-to-unite-your-videos-in-one-clip/"><u>Ultimate Selection of the 7 Premier MP4 Fusion Tools to Unite Your Videos in One Clip</u></a></li>
 </ul></div>
 

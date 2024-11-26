@@ -1,7 +1,7 @@
 ---
 title: L'Évolution Récente De La Logiciel CapturFlex Avec ABBYY
-date: 2024-11-10T23:36:35.083Z
-updated: 2024-11-16T19:39:27.003Z
+date: 2024-11-21T19:55:36.424Z
+updated: 2024-11-26T18:27:58.795Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4b4c42d86cbc7f5900b95e8b4af00dbe97e236701df75d0c16e39e29a2174a46.jpg
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/4b4c42d86cbc7f5900b95e8b4af00dbe97e236701
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ABBYY lance une nouvelle version de FlexiCapture, plus rapide et puissante, directement dans le Cloud
 
 27 septembre 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### _La nouvelle version de cette plateforme intelligente de capture de données dotée de l’IA et fonctionnant avec le cloud permet aux clients de l’adopter dès maintenant._
 
@@ -88,31 +96,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-beyond-expectations-the-new-samsung-ubd-k8500-edition-for-2024/"><u>[New] Beyond Expectations The New Samsung UBD-K8500 Edition for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-top-image-editing-suite-for-text-overlay/"><u>[New] In 2024, Top Image Editing Suite for Text Overlay</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-streamline-your-zoom-talks-with-camera-snaps/"><u>[Updated] In 2024, Streamline Your Zoom Talks with Camera Snaps</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-transformative-approaches-to-engaging-with-online-video-reviews-for-2024/"><u>[Updated] Transformative Approaches to Engaging with Online Video Reviews for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/windows-10synctoy/"><u>「ファイル間の自動同期: Windows 10でSyncToyを使った効果的な方法」</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1-seamless-methods-to-move-your-itunes-library-directly-onto-an-ipad-without-using-the-sync-feature/"><u>1. Seamless Methods to Move Your iTunes Library Directly Onto an iPad Without Using the Sync Feature</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1728492841658-m2-ssd/"><u>上市最高效 M.2 SSD 擦拭器，簡化您的資料夾過程</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-boundaries-exploring-virtual-realitys-future/"><u>Beyond Boundaries: Exploring Virtual Reality's Future</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/from-virtual-to-physical-a-comprehensive-guide-on-interpreting-vcpus-as-cpu-units-with-case-studies-and-instructions/"><u>From Virtual to Physical: A Comprehensive Guide on Interpreting vCPUs as CPU Units with Case Studies and Instructions</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-zte-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock ZTE Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-redirect-saved-image-to-custom-folder-on-mac/"><u>In 2024, Redirect Saved Image to Custom Folder on Mac</u></a></li>
-<li><a href="https://win-blog.techidaily.com/online-vrijetijdige-flv-in-ogg-converter-leesbare-flexibele-oplossing-met-movavi/"><u>Online Vrijetijdige Flv-in-Ogg Converter: Leesbare, Flexibele Oplossing Met Movavi</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/recovering-irretrievably-lost-screen-captures-a-guide-with-find-data-rescue-tool-by-ifind/"><u>Recovering Irretrievably Lost Screen Captures: A Guide with Find Data Rescue Tool by iFinD</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/resolvez-lenregistrement-exterieur-bloquant-les-transferts-de-donnees-vers-le-disque-dur/"><u>Résolvez L'Enregistrement Extérieur Bloquant Les Transferts De Données Vers Le Disque Dur</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/unveiling-the-secrets-of-itunes-backups-locating-and-modifying-settings-for-better-control/"><u>Unveiling the Secrets of iTunes Backups: Locating & Modifying Settings for Better Control</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/update-and-install-lenovo-thinkpad-x260-drivers-on-windows-11-step-by-step-guide/"><u>Update and Install Lenovo ThinkPad X260 Drivers on Windows 11: Step-by-Step Guide</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/updated-in-2024-talkshoplive-reviews-and-pro-tips-is-this-the-live-commerce-tool-you-need/"><u>Updated In 2024, Talkshoplive Reviews & Pro Tips Is This the Live Commerce Tool You Need?</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/utiliser-linvite-de-commande-pour-sauvegarde-des-donnees-avec-wbadmin-sous-windows/"><u>Utiliser L'Invite De Commande Pour Sauvegarde Des Données Avec WBAdmin Sous Windows</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/wie-ubertrage-ich-videos-von-einem-usb-stick-auf-das-iphone-oder-ipad/"><u>Wie Übertrage Ich Videos Von Einem USB-Stick Auf Das iPhone Oder iPad?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-tv-shutdown-procedure/"><u>[Updated] 2024 Approved Instagram TV Shutdown Procedure</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-crafting-easy-youtube-animation-subscribe-bars-in-filmora/"><u>[Updated] Crafting Easy YouTube Animation Subscribe Bars in Filmora</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-stay-ahead-adapting-your-approach-for-instagrams-evolved-feed/"><u>[Updated] Stay Ahead Adapting Your Approach for Instagram’s Evolved Feed</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-realme-10t-5g-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Realme 10T 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/overcoming-frame-loss-in-high-pace-broadcasts-with-obs-for-2024/"><u>Overcoming Frame Loss in High-Pace Broadcasts with OBS for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quick-fixes-to-printer-drivers-on-windows-7/"><u>Quick Fixes to Printer Drivers on Windows 7</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revamping-your-online-presence-mastering-the-art-of-page-optimization/"><u>Revamping Your Online Presence: Mastering the Art of Page Optimization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/rparpaabbyy/"><u>RPA技術の先駆者：日商エレ、RPAテクノロジーズ、ABBYYジャパンの新たな提携</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/significant-financial-boost-abbyy-records-a-25-surge-in-revenue-during-2017/"><u>Significant Financial Boost: ABBYY Records a 25% Surge in Revenue During 2017</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/streamline-client-onboarding-for-increased-devotion-to-your-financial-firm/"><u>Streamline Client Onboarding for Increased Devotion to Your Financial Firm</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/telefonicas-dsl-gesuche-nutzen-abbyy-formreader-schnellere-breitbandverbindungen-bevorstehen/"><u>Telefonicas DSL-Gesuche Nutzen ABBYY FormReader - Schnellere Breitbandverbindungen Bevorstehen</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-complete-guide-to-the-garmin-forerunner-945-a-revolutionary-multi-sport-tracking-device/"><u>The Complete Guide to the Garmin Forerunner 945 - A Revolutionary Multi-Sport Tracking Device</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-7-queries-that-challenge-chatgpts-response-abilities/"><u>Top 7 Queries That Challenge ChatGPT's Response Abilities</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlock-enhanced-online-performance-with-our-secret-sauce-cookiebot-technology/"><u>Unlock Enhanced Online Performance with Our Secret Sauce - Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlocking-efficiency-in-purchase-to-pay-processes-strategies-for-success/"><u>Unlocking Efficiency in Purchase-to-Pay Processes: Strategies for Success</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

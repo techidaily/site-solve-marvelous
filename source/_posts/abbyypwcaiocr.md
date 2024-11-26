@@ -1,7 +1,7 @@
 ---
 title: ABBYYとPwCコンサルティングがAI・OCR技術による新しいパートナーシップを結ぶ
-date: 2024-11-16T02:39:36.429Z
-updated: 2024-11-17T06:21:55.609Z
+date: 2024-11-21T16:55:46.084Z
+updated: 2024-11-26T17:43:27.437Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a88766153a92e1f9e8401a4428c9fb.jpg
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a887661
 
 [ニュースルーム](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ABBYYとPwCコンサルティング、AI‐OCR分野での協業を開始
 
 8月9日, 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _レイアウトフリーかつ多言語対応のAI搭載のOCR技術とRPAを統合し間接業務の自動化ソリューションを更に強化_
 
@@ -67,25 +75,22 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-simplify-tv-broadcasts-introducing-youtube-content-loops/"><u>[New] Simplify TV Broadcasts Introducing YouTube Content Loops</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-androids-finest-podcasting/"><u>[Updated] Android's Finest Podcasting</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-best-quadcopters-for-kids-and-playtime/"><u>[Updated] Best Quadcopters for Kids & Playtime</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-palettes-power-in-film-editing-techniques-for-2024/"><u>[Updated] The Palette's Power in Film Editing Techniques for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-zte-nubia-z60-ultra-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock ZTE Nubia Z60 Ultra Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-xiaomi-redmi-a2plus-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Xiaomi Redmi A2+ to iPhone Easily | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-motorola-edgeplus-2023-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Motorola Edge+ (2023) Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/replicacion-de-disco-duro-en-windows-server-2012-r2-dos-metodos-eficaces/"><u>Replicación De Disco Duro en Windows Server 2012 R2: Dos Métodos Eficaces</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/solucion-al-problema-de-clonacion-de-disco-con-acronis-error-resuelto/"><u>Solución Al Problema De Clonación De Disco Con Acronis: Error Resuelto</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/step-by-step-guide-accessing-the-windows-11-control-panel/"><u>Step-by-Step Guide: Accessing the Windows 11 Control Panel</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-5-solutions-for-resolving-boot-device-not-found-errors-in-windows-server-2019/"><u>Top 5 Solutions for Resolving 'Boot Device Not Found' Errors in Windows Server 2019</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-review-on-how-orbi-mesh-wi-fi-system-revolutionizes-whole-home-internet-experience-with-wi-fi-ntruction/"><u>Top Review on How Orbi Mesh Wi-Fi System Revolutionizes Whole Home Internet Experience With Wi-Fi Ntruction</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1728476029654-windows/"><u>Windows システムのバックアップ完了に問題あり - トラブルシューティング手順</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-capture-clarity-ideal-phone-tripod-pairs/"><u>2024 Approved Capture Clarity Ideal Phone-Tripod Pairs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-incorporating-b-footage-a-filmmakers-guide/"><u>2024 Approved Incorporating B-Footage A Filmmaker's Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlock-creative-shots-with-photoshops-radial-distortion/"><u>2024 Approved Unlock Creative Shots with Photoshop's Radial Distortion</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-facetime-call-history-on-iphone-14-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover FaceTime Call History on iPhone 14 | Stellar</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-nokia-130-music-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Nokia 130 Music in Minutes | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-digital-domination-diaries/"><u>In 2024, Digital Domination Diaries</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/metodos-probados-y-confiables-para-la-recuperacion-de-archivos-borrados-en-discos-solid-state/"><u>Métodos Probados Y Confiables Para La Recuperación De Archivos Borrados en Discos Solid State</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/microsoft-decides-against-adding-sudo-feature-in-windows-server-2025-insights-from-zdnet/"><u>Microsoft Decides Against Adding Sudo Feature in Windows Server 2025: Insights From ZDNet</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimizing-with-cookiebot-boosting-your-websites-potential/"><u>Optimizing with Cookiebot: Boosting Your Website's Potential</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionize-automation-through-informed-decisions-discover-how-with-process-and-task-mining-at-abbyys-special-webinar/"><u>Revolutionize Automation Through Informed Decisions: Discover How with Process and Task Mining at ABBYY's Special Webinar</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-wine-selection-how-abbyys-ocr-technology-fuels-vivinos-global-success/"><u>Revolutionizing Wine Selection: How ABBYY's OCR Technology Fuels Vivino's Global Success</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/seamless-user-engagement-boosted-by-innovative-cookiebot-technology-solutions/"><u>Seamless User Engagement Boosted by Innovative Cookiebot Technology Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/the-future-is-now-understanding-ai-governance-on-the-ai-pulse-podcast/"><u>The Future Is Now: Understanding AI Governance on the AI Pulse Podcast</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transform-images-into-editable-text-ocr-for-pdfjpg-files-on-ios-via-finereader/"><u>Transform Images Into Editable Text - OCR for PDF/JPG Files on iOS via FineReader</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-jobs-tomorrow-insightful-analysis-on-rpas-impact-and-abbyys-forecast-white-paper/"><u>Transforming Jobs Tomorrow: Insightful Analysis on RPA's Impact and ABBYY's Forecast [White Paper]</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transforming-legal-text-analysis-with-abbyys-advanced-docs-enhanced-capabilities-and-seamless-rag-sync/"><u>Transforming Legal Text Analysis with ABBYY's Advanced Docs: Enhanced Capabilities and Seamless RAG Sync</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

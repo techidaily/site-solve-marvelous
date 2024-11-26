@@ -1,7 +1,7 @@
 ---
 title: Introducing ABBYY's Comprehensive FineReader Engine N - The Ultimate OCR Solution for Simulated and Cloud Settings
-date: 2024-11-14T06:14:44.195Z
-updated: 2024-11-16T20:35:12.236Z
+date: 2024-11-23T18:02:13.039Z
+updated: 2024-11-26T16:37:58.563Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/67fbae13bc8823b0a301a4edbd98e7b90a3759ff0f1b1dda3ab1c9790066eccf.jpg
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/67fbae13bc8823b0a301a4edbd98e7b90a3759ff0
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ABBYY、仮想環境およびクラウド環境に最適な最新の OCR SDK「FineReader Engine 12」を発表
 
 5月28日, 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **_新バージョンのソフトウェア開発キットはテキスト認識、_ _PDF_ _変換、データキャプチャをオンプレミスで稼働するアプリケーションだけでなく、仮想環境およびクラウド環境で稼働するアプリケーションにも統合します。_**
 
@@ -70,25 +78,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-discovering-the-syma-x5c-the-premier-drone-for-rookies/"><u>[Updated] 2024 Approved Discovering the Syma X5C The Premier Drone for Rookies</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-enjoy-pure-browsing-our-selections-of-7-top-android-adblockers/"><u>[Updated] Enjoy Pure Browsing Our Selections of 7 Top Android AdBlockers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-low-cost-recording-choices-top-11-vlogger-essentials-for-2024/"><u>[Updated] Low-Cost Recording Choices Top 11 Vlogger Essentials for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/como-hacer-una-copia-perfecta-de-su-pc-en-un-disco-duro-exterior-una-practica-totalmente-segura/"><u>Cómo Hacer Una Copia Perfecta De Su PC en Un Disco Duro Exterior: Una Práctica Totalmente Segura</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/exploring-iclouds-automatic-data-replication-understanding-backup-frequency-and-retention-policy/"><u>Exploring iCloud's Automatic Data Replication: Understanding Backup Frequency and Retention Policy</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-step-by-step-guide-to-add-clearer-subtitles-on-youtube/"><u>In 2024, Step-By-Step Guide to Add Clearer Subtitles on YouTube</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/les-deux-meilleures-techniques-pour-surmonter-linstallation-de-windows-11/"><u>Les Deux Meilleures Techniques Pour Surmonter L'Installation De Windows 11</u></a></li>
-<li><a href="https://win11.techidaily.com/removing-hitchhiking-devices-win-1011-printer-uninstallation/"><u>Removing Hitchhiking Devices: Win 10/11 Printer Uninstallation</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revival-von-usb-daten-in-nur-3-einfachen-schritten-lernen-sie-wie-man-verlorene-informationen-wiederfindet/"><u>Revival Von USB-Daten in Nur 3 Einfachen Schritten - Lernen Sie, Wie Man Verlorene Informationen Wiederfindet!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/step-by-step-tutorial-track-down-and-retrieve-missing-pdf-files/"><u>Step-by-Step Tutorial: Track Down and Retrieve Missing PDF Files</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/streamlining-video-production-mastering-the-use-of-obs-and-zoom-for-2024/"><u>Streamlining Video Production Mastering the Use of OBS & Zoom for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ultimate-adata-ssd-rescue-and-restore-solutions-discover-the-best-options-available/"><u>Ultimate ADATA SSD Rescue & Restore Solutions: Discover the Best Options Available</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-troubleshooting-tips-for-linking-a-samsung-blu-ray-remote-controller-to-hdtvs/"><u>Ultimate Troubleshooting Tips for Linking a Samsung Blu-Ray Remote Controller to HDTVs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/xplore-deep-with-these-immersive-vr-clips/"><u>[New] Explore Deep with These Immersive VR Clips</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-streamline-your-soundtrack-with-these-playlist-tips-for-youtube/"><u>[New] Streamline Your Soundtrack with These Playlist Tips for YouTube</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-budget-friendly-alternatives-to-premium-vr-headsets/"><u>[Updated] Budget-Friendly Alternatives to Premium VR Headsets</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-igtv-switch-off-a-comprehensible-guide/"><u>[Updated] In 2024, IGTV Switch-Off A Comprehensible Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-profit-from-youtube-monetize-youtube-shorts-and-boost-your-income/"><u>[Updated] Profit From YouTube Monetize YouTube Shorts and Boost Your Income</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/displaying-non-fullscreen-on-monitors-with-win10/"><u>Displaying Non-Fullscreen on Monitors with Win10</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/enhancing-your-feed-with-new-instagram-filters/"><u>Enhancing Your Feed with New Instagram Filters</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-enable-disable-and-change-safari-location-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Enable, Disable, and Change Safari Location on Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/la-charge-innovante-de-labbyy-sdk-une-integration-fluide-pour-le-recuperation-en-temps-reel-des-informations/"><u>La Charge Innovante De L'ABBYY SDK: Une Intégration Fluide Pour Le Récupération en Temps Réel Des Informations</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-tailored-content-delivery-and-seo-success/"><u>Leveraging Cookiebot Technology for Tailored Content Delivery and SEO Success</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-tailored-web-experiences/"><u>Leveraging Cookiebot Technology for Tailored Web Experiences</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-innovative-analytics-solutions-for-optimized-engagement/"><u>Leveraging Innovative Analytics Solutions for Optimized Engagement</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/masterclass-in-crafting-high-performance-digital-pages-for-maximum-seo-impact/"><u>Masterclass in Crafting High-Performance Digital Pages for Maximum SEO Impact</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ry-in-captioning-a-youtube-creators-handbook-for-2024/"><u>Mastery in Captioning A YouTube Creator's Handbook for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/navigating-the-essentials-of-kyc-regulations-in-depth-strategies-for-successful-implementation/"><u>Navigating the Essentials of KYC Regulations: In-Depth Strategies for Successful Implementation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/neuer-methodik-von-abbyy-fur-die-prazise-einordnung-von-schriftstucken/"><u>Neuer Methodik Von ABBYY Für Die Präzise Einordnung Von Schriftstücken</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimisation-et-traitement-efficace-des-documents-grace-a-la-solution-abbyy-enterprise-capture-par-les-systemes-arvato/"><u>Optimisation Et Traitement Efficace Des Documents Grâce À La Solution ABBYY Enterprise Capture Par Les Systèmes Arvato</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/rapid-digital-transformation-strategies-for-the-artificial-intelligence-sector-ebook-by-abbyy/"><u>Rapid Digital Transformation Strategies for the Artificial Intelligence Sector – eBook by ABBYY</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/athway-to-recognition-youtubers-guide-to-personal-brands-for-2024/"><u>The Pathway to Recognition YouTubers' Guide to Personal Brands for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

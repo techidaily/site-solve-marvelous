@@ -1,7 +1,7 @@
 ---
 title: Personalized Engagement with Our Services, Powered by the Advanced Technology of Cookiebot
-date: 2024-11-13T02:34:20.084Z
-updated: 2024-11-16T19:35:54.540Z
+date: 2024-11-21T18:43:03.244Z
+updated: 2024-11-26T20:29:21.222Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/681aed17cbdddeac0350ff3fe9a9a1770d531416a3cf82559b42c4110e5fe7f0.jpg
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/681aed17cbdddeac0350ff3fe9a9a1770d531416a
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Unravelling the mysteries of medical billing with artificial intelligence
 
 May 25, 2017
 
 ![Unravelling the mysteries of medical billing with artificial intelligence | ABBYY Blog Post](https://static5.abbyy.com/abbyycommedia/25196/unravelling-the-mysteries-of-medical-billing-with-artificial-intelligence.jpg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Medical bills are difficult to decipher. In most cases, they contain “test codes” and “CPT codes” which makes spotting an error very difficult. Reviewing medical records is both expensive and time consuming because they are usually provided in an unstructured textual form such as a Word document or PDF. Up to 90 percent of hospital bills contain errors totaling some $750 billion annually, according to a recent study. A person trying to recover funds associated with overcharging requires requesting the relevant patient medical records and having them reviewed by a clinician. Today, [intelligent text recognition](https://tools.techidaily.com/abbyy/products/) and AI can analyze the unstructured textual data contained in medical records, which can be used by clinicians to accurately extract entities, events, and facts. AI technologies also provide capabilities to automatically cross-reference the information contained within the medical records such as CPT Codes, ICD Codes, Drugs, Dosages and Medical Tests.
 
@@ -26,10 +34,7 @@ _By David Bayer, Vice President, Compreno Group at ABBYY_
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") 
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Like, share or repost
@@ -95,24 +100,14 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-capture-without-capsule-the-no-limit-story-saving-app/"><u>[New] Capture Without Capsule The No-Limit Story Saving App</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-navigating-screen-customization-a-google-meet-essentials-guide/"><u>[New] In 2024, Navigating Screen Customization A Google Meet Essentials Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-superior-screen-refinement-software-for-video-lovers/"><u>[Updated] 2024 Approved Superior Screen Refinement Software for Video Lovers</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-navigating-subtitle-files-like-a-pro-in-macos/"><u>[Updated] Navigating Subtitle Files Like a Pro in macOS</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/dvdvideots/"><u>「無償ガイド：DVD化するためのvideo_tsディレクトリー入力手順」</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/come-creare-un-backup-automatico-dei-tuoi-file-con-la-utilita-di-pianificazione-guida-passo-passo/"><u>Come Creare Un Backup Automatico Dei Tuoi File Con La Utilità Di Pianificazione: Guida Passo-Passo</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/comment-installer-en-toute-securite-une-sauvegarde-windows-11-sur-un-cle-usb/"><u>Comment Installer En Toute Sécurité Une Sauvegarde Windows 11 Sur Un Clé USB</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/de-herstelprotocollen-voor-de-codeerde-efi-partitie-in-windows-10-drie-schaalvatten/"><u>De Herstelprotocollen Voor De Codeerde EFI-Partitie In Windows 10 - Drie Schaalvatten</u></a></li>
-<li><a href="https://facebook.techidaily.com/expert-tips-for-updating-fb-birth-yearmonth-with-ease/"><u>Expert Tips for Updating FB Birth Year/Month with Ease</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/force-windows-11-updates-with-ease-masterful-tricks-revealed/"><u>Force Windows 11 Updates with Ease: Masterful Tricks Revealed</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-does-atandt-handle-international-mobile-roaming-charges/"><u>How Does AT&T Handle International Mobile Roaming Charges?</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/how-to-efficiently-save-your-vmware-vms-on-an-external-disk-device-3-expert-tips/"><u>How to Efficiently Save Your VMware VMs on an External Disk Device: 3 Expert Tips</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-editors-dream-machine-top-portable-video-edits-tools/"><u>In 2024, Editor's Dream Machine Top Portable Video Edits Tools</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-infinix-hot-30i-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Infinix Hot 30i to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revamp-your-idevices-file-sharing-overcome-common-airdrop-issues-in-just-6-steps/"><u>Revamp Your iDevice's File Sharing: Overcome Common AirDrop Issues in Just 6 Steps</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/schlussel-zur-aktivierung-von-systemwiederherstellungsfunktionen-in-windows-11/"><u>Schlüssel Zur Aktivierung Von Systemwiederherstellungsfunktionen in Windows 11</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-the-turtle-beach-headset-microphone-malfunction-step-by-step-solutions/"><u>Solving the Turtle Beach Headset Microphone Malfunction: Step by Step Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ultimate-fix-for-lost-texts-retrieving-deleted-iphone-memos-on-latest-series-i-to-v/"><u>Ultimate Fix for Lost Texts: Retrieving Deleted iPhone Memos on Latest Series I to V</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/windowsfound000/"><u>ファイルが破損した場合、Windowsで「Found.000フォルダ」を理解するとどうか？パーツごとに保存されたデータの復元手順</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-innovators-crafting-marvels-digital-realm/"><u>[Updated] Innovators Crafting Marvel's Digital Realm</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-leveraging-obs-for-top-notch-social-media-streaming-for-2024/"><u>[Updated] Leveraging OBS for Top-Notch Social Media Streaming for 2024</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/guideline-on-how-to-copy-dvd-movies-onto-your-hard-drive-in-windows-11-10-or-7-and-macos/"><u>Guideline on How to Copy DVD Movies Onto Your Hard Drive in Windows 11, 10 or 7 and macOS</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/how-rhenus-enhances-operational-speed-using-abbyys-advanced-scanning-technology/"><u>How Rhenus Enhances Operational Speed Using ABBYY's Advanced Scanning Technology</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-revive-your-bricked-lava-yuva-2-pro-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Lava Yuva 2 Pro in Minutes | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/introducing-abbyys-comprehensive-finereader-engine-n-the-ultimate-ocr-solution-for-simulated-and-cloud-settings/"><u>Introducing ABBYY's Comprehensive FineReader Engine N - The Ultimate OCR Solution for Simulated and Cloud Settings</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/levolution-recente-de-la-logiciel-capturflex-avec-abbyy/"><u>L'Évolution Récente De La Logiciel CapturFlex Avec ABBYY</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mastering-the-idp-peak-matrix-2023-abbyy-rises-as-everest-group-leader/"><u>Mastering the IDP Peak Matrix 2023: ABBYY Rises as Everest Group Leader</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-features-of-smart-photo-editor-by-anthropics-an-expert-guide-and-review/"><u>Navigating the Features of Smart Photo Editor by Anthropics: An Expert Guide and Review</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: AI Investments Reaching £3M by UK Firms Amidst Strategic Planning Hurdles
-date: 2024-11-11T23:30:51.314Z
-updated: 2024-11-17T04:28:57.595Z
+date: 2024-11-21T18:54:15.910Z
+updated: 2024-11-26T19:08:58.364Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a413f5ab643b8cf8455ddf8b717ffddc460e77cb815227b37c65333c5c3e3180.jpg
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/a413f5ab643b8cf8455ddf8b717ffddc460e77cb8
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## UK businesses investing £3 million each in AI but struggling with lack of strategy and skills
 
 June 13, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### _94% of UK businesses have embarked on automation projects_
 
@@ -26,6 +34,10 @@ Efficiency was the highest-ranking benefit for these technologies, with a majori
 It also provided higher ROI than general AI technologies when it came to productivity, revenue growth and business transformation (see Figure 2). What’s more, content-centric automation beat businesses’ expectations, helping businesses grow their revenue, increase market share, and get ahead of the competition by 15% more than anticipated before deployment.  
   
 ![Figure 2. ‘Since implementing X technology, which of the following has been accurate?’](https://static1.abbyy.com/abbyycommedia/22292/table-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Figure 2\. ‘Since implementing X technology, which of the following has been accurate?’_
 
@@ -81,29 +93,20 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://solve-marvelous.techidaily.com/explorez-les-meilleures-options-de-sauvegarde-avec-clonage-et-image-disque-uefi-sur-votre-systeme-windows/"><u>« Explorez Les Meilleures Options De Sauvegarde Avec Clonage Et Image Disque UEFI Sur Votre Système Windows »</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-making-your-twitter-videos-dance-convert-them-into-expressive-animated-gifs/"><u>[New] Making Your Twitter Videos Dance Convert Them Into Expressive Animated GIFs</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-maximizing-color-correction-advanced-techniques-for-lut-applications-for-2024/"><u>[New] Maximizing Color Correction Advanced Techniques for LUT Applications for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-skyrocket-views-with-these-effective-youtube-methods-for-2024/"><u>[Updated] Skyrocket Views with These Effective YouTube Methods for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Infinix Smart 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/5aac5l2v6zmn5l2o5zyw54mh5asn5bcp5l6g56plusa55yb56gs56kf56m66zat/"><u>如何降低圖片大小來節省硬碟空間</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/c/"><u>伸び代を超えたサーバーCドライブは最適化されますか？</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/p-dive-into-effective-youtube-banner-techniques-for-2024/"><u>A Deep Dive Into Effective YouTube Banner Techniques for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/discover-the-next-level-with-10-revolutionary-gpts-enhancing-chatgpt/"><u>Discover the Next Level with 10 Revolutionary GPTs Enhancing ChatGPT</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/easy-steps-to-restore-lost-unsaved-excel-files-in-2016-with-ifind-data-recovery/"><u>Easy Steps to Restore Lost Unsaved Excel Files in 2016 with IFind Data Recovery</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ifind-data-recovery-tutorial-effortless-file-rescue-for-windows-users-versions-1078/"><u>IFind Data Recovery Tutorial: Effortless File Rescue for Windows Users (Versions 10/7/8)</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Apple iPhone 6 Plus | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-honor-80-pro-straight-screen-edition-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Honor 80 Pro Straight Screen Edition to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/probleme-mit-dem-migration-assistenten-von-mac-effektive-losungen-um-ihre-datenmigration-zu-reaktivieren/"><u>Probleme Mit Dem Migration Assistenten Von Mac: Effektive Lösungen, Um Ihre Datenmigration Zu Reaktivieren</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ssdhddwindows-111087/"><u>SSD到HDD换算路径：详解Windows 11/10/8/7桌面操作</u></a></li>
-<li><a href="https://driver-error.techidaily.com/step-by-step-fix-hp-laptop-keyboard-not-working-issue/"><u>Step by Step Fix HP Laptop Keyboard Not Working Issue</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1728469594631-windows-11/"><u>Windows 11でのデータセーフティ:バックアップと復元機能の実行方法</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagram-excellence-optimizing-post-reach/"><u>[Updated] 2024 Approved Instagram Excellence Optimizing Post Reach</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-flashy-fiddles-short-form-melodic-roles-for-2024/"><u>[Updated] Flashy Fiddles Short Form Melodic Roles for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1-iphone-xs-and-x-comparative-review-with-enhanced-scanning-features-on-the-abbeyy-blog/"><u>1. IPhone Xs & X: Comparative Review with Enhanced Scanning Features on the ABBEYY Blog</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-innovates-unveils-state-of-the-art-indian-randd-hub/"><u>ABBYY Innovates: Unveils State-of-the-Art Indian R&D Hub</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-realise-sustains-double-digit-growth-streak-for-third-consecutive-year/"><u>ABBYY Réalise Sustains Double-Digit Growth Streak for Third Consecutive Year</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/connecting-with-ai-through-quoras-poe-routes/"><u>Connecting with AI Through Quora's POE Routes</u></a></li>
+<li><a href="https://program-issues.techidaily.com/expert-advice-reactivating-the-msi-mystic-light-feature-in-windows-environments/"><u>Expert Advice: Reactivating the MSI Mystic Light Feature in Windows Environments</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Lava Blaze Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-permanent-bond-incorquadible-tiktok-profile-url-addition/"><u>In 2024, Permanent Bond Incorquadible TikTok Profile URL Addition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-ringtone-recommendations-for-your-chromium-phone/"><u>In 2024, Ringtone Recommendations for Your Chromium Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-mastery-boosting-brain-power-and-social-connectivity/"><u>Language Mastery: Boosting Brain Power and Social Connectivity</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-blueprint-of-successful-video-endorsements/"><u>The Blueprint of Successful Video Endorsements</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/understanding-the-distinctions-between-process-intelligence-and-bi-techniques-for-strategic-decision-making/"><u>Understanding the Distinctions Between Process Intelligence and BI Techniques for Strategic Decision-Making</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlocking-features-of-finescanner-in-ios-12-expert-insights-from-the-abbyy-community/"><u>Unlocking Features of FineScanner in iOS 12 - Expert Insights From the ABBYY Community</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/utilizing-cookiebot-technology-for-improved-online-engagement-analysis/"><u>Utilizing Cookiebot Technology for Improved Online Engagement Analysis</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Repossessing Corrupted or Erased Information: A 3-Step Guide on Your External Hard Disk"
-date: 2024-11-16T03:15:53.181Z
-updated: 2024-11-17T03:20:14.811Z
+date: 2024-11-21T16:17:09.922Z
+updated: 2024-11-26T17:27:26.620Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/4914ba55ffacf89f7eecf219812b0360d597ec64675cc9c86f982f27e5ed1c09.jpg
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/4914ba55ffacf89f7eecf219812b0360d597ec646
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Risolvere l'Impossibilità di Digitare nella Barra di Ricerca su Windows 10: Guida Completa
 
 Scopri passaggi efficaci per risolvere il problema "non riesco a digitare nella barra di ricerca su Windows 10". Impara su AOMEI Backupper e misure preventive per evitare futuri inconvenienti con la barra di ricerca. Migliora subito la tua esperienza su Windows 10!
@@ -27,6 +31,10 @@ Scopri passaggi efficaci per risolvere il problema "non riesco a digitare nella 
 Da[Aira](https://tools.techidaily.com/ubackup/products/)L'ultimo Aggiornamento 31.01.2024
 
 Condividi questo: ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Sommario** 
 
@@ -42,13 +50,6 @@ Condividi questo: ![facebook](https://www.ubackup.com/resource/images/ab-theme/u
 5. [Domande Frequenti su Impossibilità di Digitare nella Barra di Ricerca su Windows 10](https://tools.techidaily.com/ubackup/products/)
 6. [Consigli per un'Operazione Fluida di Windows 10](https://tools.techidaily.com/ubackup/products/)
 7. [Conclusione](https://tools.techidaily.com/ubackup/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Introduzione
 
@@ -72,22 +73,13 @@ La corruzione dei file di sistema può influenzare la funzionalità della barra 
 
 Alcune applicazioni di terze parti o conflitti software potrebbero interferire con il corretto funzionamento della barra di ricerca.
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Soluzioni: Ripristinare la Funzionalità della Barra di Ricerca di Windows 10
 
 Ora, esploriamo cinque soluzioni per affrontare il problema di non poter digitare nulla nella casella di ricerca su Windows 10, garantendo un'esperienza utente fluida.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Soluzione 1: Riavvio dei Servizi Cortana e Ricerca di Windows
 
@@ -106,6 +98,10 @@ Fai clic con il tasto destro su entrambi Cortana ed Esplora file di Windows e sc
 Passo 4\. Prova a Digitare nella Barra di Ricerca:
 
 Prova a digitare nella barra di ricerca dopo aver riavviato i servizi.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Soluzione 2: Esegui il Risolutore dei Problemi di Ricerca e Indicizzazione
 
@@ -142,13 +138,6 @@ Sotto la scheda Opzioni Avanzate, clicca su "Ricostruisci."
 Passo 4\. Attendi il Completamento:
 
 Permetti al processo di indicizzazione di completarsi. Successivamente, controlla se il problema di non poter digitare nella barra di ricerca di Windows 10 persiste.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Soluzione 4: Controlla gli Aggiornamenti di Windows
 
@@ -190,6 +179,10 @@ Passo 6\. Testa la Barra di Ricerca:
 
 Nel nuovo account utente, testa la funzionalità della barra di ricerca. Se funziona, suggerisce che il problema potrebbe essere specifico del tuo account utente originale.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Utilizza AOMEI Backupper per la Protezione del Sistema su Windows 10
 
 Assicurarsi la protezione dei dati è cruciale durante la risoluzione dei problemi. Considera l'utilizzo di AOMEI Backupper per creare un backup del sistema di Windows 10.
@@ -210,19 +203,6 @@ Passo 4\. Avvia il Backup:
 
 Clicca su "Avvia Backup" per creare un backup completo del tuo sistema Windows 10.
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Domande Frequenti su Impossibilità di Digitare nella Barra di Ricerca su Windows 10
 
 #1: Perché la mia barra di ricerca di Windows 10 non risponde alla digitazione?
@@ -238,10 +218,7 @@ La ricostruzione dell'indice non influisce sui file, ma migliora la funzionalit�
 Sì, AOMEI Backupper fornisce una soluzione affidabile per il ripristino del sistema in caso di problemi.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Consigli per un'Operazione Fluida di Windows 10
@@ -264,6 +241,10 @@ Le informazioni fornite sono state utili? Il tuo voto è importante per noi!
 
 ![Aira](https://www.ubackup.com/assets/images/author/aira.jpg) 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Aira](https://tools.techidaily.com/ubackup/products/) · Editore
 
 Aira è l'editore tecnico di AOMEI, principalmente responsabile di AOMEI Backupper. Le piace aiutare gli utenti con domande su backup e ripristino del computer, clonazione del disco, sincronizzazione e altro ancora. Ha scritto molti articoli su AOMEI Backupper. Nel tempo libero ama fare sport e guardare film. Come un redattore professionale di AOMEI. Aira sarà felice di aiutarti.
@@ -273,13 +254,6 @@ Aiutaci a migliorare questo articolo
 Le informazioni fornite sono state utili? Il tuo voto è importante per noi!
 
 [Sì](https://tools.techidaily.com/ubackup/products/)[No](https://tools.techidaily.com/ubackup/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Scarica Gratis AOMEI Backupper Ora
 
@@ -306,20 +280,22 @@ Proteggi tutti i dati del tuo computer con backup, sincronizzazione e clonazione
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-solutions.techidaily.com/solved-cs-go-lag-quickly-and-easily/"><u>[SOLVED] | CS: GO Lag | Quickly & Easily</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-ultimate-companion-for-a-seamless-instagram-video-journey/"><u>[Updated] 2024 Approved The Ultimate Companion for a Seamless Instagram Video Journey</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1-pasos-faciles-para-transferir-informacion-de-una-memoria-usb-no-oficial-a-un-disco-solid-state-samsung/"><u>1. Pasos Fáciles Para Transferir Información De Una Memoria USB No Oficial a Un Disco Solid State Samsung</u></a></li>
-<li><a href="https://games-able.techidaily.com/benefits-vs-pitfalls-in-mobile-playing/"><u>Benefits vs Pitfalls in Mobile Playing</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/effortless-file-sharing-enabling-automatic-onedrive-backup-on-your-windows-server/"><u>Effortless File Sharing: Enabling Automatic OneDrive Backup on Your Windows Server</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/guide-pratique-pour-la-restauration-dun-fichier-pst-de-microsoft-outlook-dans-windows/"><u>Guide Pratique Pour La Restauration D'Un Fichier PST De Microsoft Outlook Dans Windows</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-samsung-galaxy-xcover-7-phone-forgot-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Samsung Galaxy XCover 7 Phone Forgot Password</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/hp-stream-11-review/"><u>HP Stream 11 Review</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-samsung-galaxy-s23-fe-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Samsung Galaxy S23 FE</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/resolved-how-to-fix-the-apple-id-verification-unsuccessful-issue-in-detail/"><u>Resolved! How to Fix the 'Apple ID Verification Unsuccessful' Issue in Detail</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/resolviendo-el-error-de-backup-en-windows-11-guia-completa/"><u>Resolviendo El Error De Backup en Windows 11 - Guía Completa</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/sichere-daten-anleitung-zum-einfachen-aufbau-von-inkrementeller-backup-in-microsoft-hyper-v-vms-auf-dem-windows-server/"><u>Sichere Daten: Anleitung Zum Einfachen Aufbau Von Inkrementeller Backup in Microsoft Hyper-V VMs Auf Dem Windows Server</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/sketchup-mastery-expert-techniques-for-retrieving-and-repairing-skp-files/"><u>SketchUp Mastery: Expert Techniques for Retrieving and Repairing SKP Files</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Infinix Note 30 5G | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/windows-camera-malfunction-overcome-error-code-0xa00f4292-with-these-simple-fixes/"><u>Windows Camera Malfunction? Overcome Error Code 0XA00F4292 with These Simple Fixes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-beyond-headsets-ultimate-vr-gear-guide/"><u>[New] 2024 Approved Beyond Headsets Ultimate VR Gear Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-essential-tips-for-configuring-and-measuring-facebooks-in-stream-ads-for-2024/"><u>[Updated] Essential Tips for Configuring and Measuring Facebook's In-Stream Ads for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-iphone-users-guide-to-picture-softening-four-ways/"><u>[Updated] IPhone Users' Guide to Picture Softening (Four Ways)</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-secrets-of-earning-big-reddits-13-money-makers/"><u>[Updated] Secrets of Earning Big Reddit's 13 Money Makers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-chromebook-voice-overhaul-guide-top-5-cloud-vocal-modification-tools-reviewed/"><u>2024 Approved Chromebook Voice Overhaul Guide Top 5 Cloud Vocal Modification Tools Reviewed</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724312527575-ai-ocr-abbyy/"><u>高精度AI-OCRを活用した効率的な会計文書管理システムの解決方法 | ABBYYデジタルドキュメントソリューション</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-appoints-torsten-malchow-as-new-vp-and-global-enterprise-sales-leader/"><u>ABBYY Appoints Torsten Malchow as New VP and Global Enterprise Sales Leader</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-cloud-services-terms-agreement-comprehensive-data-protection-policy-including-gdpr-compliance/"><u>ABBYY Cloud Services Terms Agreement: Comprehensive Data Protection Policy Including GDPR Compliance</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-xiaomi-redmi-k70e-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Xiaomi Redmi K70E to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-sony-xperia-1-v-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Sony Xperia 1 V Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-realme-gt-neo-5-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Realme GT Neo 5</u></a></li>
+<li><a href="https://driver-install.techidaily.com/increase-screen-output-performance-windows/"><u>Increase Screen Output Performance (Windows)</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/seamless-conversion-with-the-cookiebot-platform-powering-your-sites-performance/"><u>Seamless Conversion with the Cookiebot Platform Powering Your Site's Performance</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/simplify-paperwork-automation-master-the-art-of-no-code-document-revolution/"><u>Simplify Paperwork Automation: Master the Art of No-Code Document Revolution</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unleashing-growth-potential-with-the-power-of-cookiebot-technology-for-sites/"><u>Unleashing Growth Potential with the Power of Cookiebot Technology for Sites</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/unlock-growth-potential-with-cookiebots-advanced-user-tracking-solutions/"><u>Unlock Growth Potential with Cookiebot's Advanced User Tracking Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/website-optimization-with-cookiebot-integration/"><u>Website Optimization with Cookiebot Integration</u></a></li>
 </ul></div>
 

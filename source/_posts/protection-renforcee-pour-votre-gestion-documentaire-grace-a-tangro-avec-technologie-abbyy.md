@@ -1,7 +1,7 @@
 ---
 title: Protection Renforcée Pour Votre Gestion Documentaire Grâce À Tangro® Avec Technologie ABBYY
-date: 2024-11-11T01:57:14.586Z
-updated: 2024-11-17T03:32:32.707Z
+date: 2024-11-22T16:49:31.132Z
+updated: 2024-11-26T17:05:09.104Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/485101ae8f555e145174a15eda6071c25617b2b00c96089d339b8e4537366b75.jpg
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/485101ae8f555e145174a15eda6071c25617b2b00
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## tangro® renforce la sécurité des processus de capture de ses documents grâce à ABBYY
 
 30 juin 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
   
 **_Grâce à l’intégration du gestionnaire de licence réseau redondant dans les composants OCR d’ABBYY, le fabricant de logiciels renforce la sécurité de sa solution pour la gestion des documents entrants dans SAP®_** 
@@ -75,26 +83,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-secret-sauce-for-successful-youtubers-channel-featuring-techniques/"><u>[New] In 2024, The Secret Sauce for Successful YouTubers Channel Featuring Techniques</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-setup-smoothly-share-soon-the-ifunny-meme-adventure-begins/"><u>[New] Setup Smoothly, Share Soon The iFunny Meme Adventure Begins</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-superior-3d-viewing-playback-on-android/"><u>[Updated] Superior 3D Viewing, Playback on Android</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-newcomer-needs-efficient-purchases-of-monetizing-platforms/"><u>2024 Approved Newcomer Needs Efficient Purchases of Monetizing Platforms</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-palette-playbook-utilizing-theoretical-knowledge/"><u>2024 Approved Palette Playbook Utilizing Theoretical Knowledge</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1728505564943-clip-studio-paint/"><u>迷失在 Clip Studio Paint中：找回删除或未保存文件的完全指南</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/das-problem-ist-behoben-unpassender-ordner-kann-nun-nicht-mehr-in-den-papierkorb-passen-hilfe-von-myrecover/"><u>Das Problem Ist Behoben! Unpassender Ordner Kann Nun Nicht Mehr in Den Papierkorb Passen - Hilfe Von MyRecover</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-tecno-spark-10c-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Tecno Spark 10C Pattern Lock Screen</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-nokia-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Nokia FRP</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mastering-file-retrieval-expert-tips-for-restoring-deleted-word-documents-using-ifinds-recovery-suite/"><u>Mastering File Retrieval: Expert Tips for Restoring Deleted Word Documents Using iFinD's Recovery Suite</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/simple-solutions-to-get-your-ssd-detected-by-bios-again/"><u>Simple Solutions to Get Your SSD Detected by BIOS Again</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/suche-nach-einer-kostenlosen-alternative-zum-sandisk-backup-manager-fur-windows-perfekt-geeignet-fur-windows-11-10-8-and-ab-version-7/"><u>Suche Nach Einer Kostenlosen Alternative Zum SanDisk Backup Manager Für Windows - Perfekt Geeignet Für Windows 11, 10, 8 & Ab Version 7</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/unlocking-the-secrets-convert-your-h265-footage-to-expandable-h264-without-size-restrictions/"><u>Unlocking the Secrets: Convert Your H.265 Footage to Expandable H.264 Without Size Restrictions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/vrije-and-simpele-installer-voor-geformateerde-partities-in-windows-versies-10-8-7-en-11/"><u>Vrije & Simpele Installer Voor Geformateerde Partities in Windows Versies 10, 8, 7 en 11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-metaverse-branding-strategies-unveiled/"><u>[New] Metaverse Branding Strategies Unveiled</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-crafting-powerful-instagram-content-top-strategies-for-video-marketing-for-2024/"><u>[Updated] Crafting Powerful Instagram Content Top Strategies for Video Marketing for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-leading-video-call-options-safe-small-enterprises-guide-for-2024/"><u>[Updated] Leading Video Call Options Safe Small Enterprises Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-exclusive-access-8-top-fb-link-extractors/"><u>2024 Approved Exclusive Access 8 Top FB Link Extractors</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/from-freezing-points-to-inviting-landscapes-for-2024/"><u>From Freezing Points to Inviting Landscapes for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-bypass-the-required-apple-store-verification-for-apple-iphone-14-drfone-by-drfone-ios/"><u>How To Bypass the Required Apple Store Verification For Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-4k-desktop-screens-full-integration-and-touch/"><u>In 2024, Ultimate 4K Desktop Screens Full Integration & Touch</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/investigating-why-specific-youtube-remarks-get-prominence/"><u>Investigating Why Specific YouTube Remarks Get Prominence</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/navigating-new-horizons-in-talent-acquisition-with-artificial-intelligence-in-hr/"><u>Navigating New Horizons in Talent Acquisition with Artificial Intelligence in HR.</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/navigating-the-shifting-landscape-understanding-modern-supply-chain-vulnerabilities-amidst-pandemic-recovery/"><u>Navigating the Shifting Landscape: Understanding Modern Supply Chain Vulnerabilities Amidst Pandemic Recovery</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimize-with-cookiebot-boosting-traffic-and-conversions-on-your-website/"><u>Optimize with Cookiebot: Boosting Traffic and Conversions on Your Website</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/personalized-engagement-with-our-services-powered-by-the-advanced-technology-of-cookiebot/"><u>Personalized Engagement with Our Services, Powered by the Advanced Technology of Cookiebot</u></a></li>
+<li><a href="https://android-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-motorola-moto-g73-5g-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Motorola Moto G73 5G FRP</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

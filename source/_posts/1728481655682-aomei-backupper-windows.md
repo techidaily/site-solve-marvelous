@@ -1,7 +1,7 @@
 ---
 title: AOMEI Backupper - Windows向け最適なデータ保護と復元ソフトウェア
-date: 2024-11-12T17:48:00.742Z
-updated: 2024-11-16T17:55:14.927Z
+date: 2024-11-19T16:30:41.022Z
+updated: 2024-11-26T18:44:13.445Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e527c0b15c86864ff7f2cf4ce.png
@@ -35,6 +35,10 @@ Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-a
 3. [Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers](https://tools.techidaily.com/ubackup/products/)
 4. [Dernières réflexions sur l'utilitaire de sauvegarde Buffalo](https://tools.techidaily.com/ubackup/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Logiciel de sauvegarde NAS Buffalo pour système Windows
 
 NAS Buffalo est la solution idéale pour la protection des données et peut facilement éviter les défaillances informatiques causées par une attaque de virus, un plantage système, une corruption de disque, etc. Cependant, il peut également se bloquer et entraîner une perte de données dans ces situations. Vous ne souhaitez probablement pas perdre vos données, il est donc judicieux de sauvegarder votre NAS Buffalo sur un disque dur externe, une clé USB ou d'autres périphériques.
@@ -43,21 +47,7 @@ NAS Buffalo est la solution idéale pour la protection des données et peut faci
 
 [![buffalo](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/others/image/nas-buffalo.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ne vous inquiétez pas trop. Vous pouvez envisager d'utiliser un logiciel de sauvegarde NAS tiers pour vous aider. [AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/) est un excellent choix en raison de sa grande compatibilité (prise en charge de Windows 7/8/10/11/XP/Vista), de sa gratuité, de sa facilité d'utilisation, de sa flexibilité et de ses fonctionnalités riches.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Avantages du logiciel de sauvegarde NAS Buffalo - AOMEI Backupper Standard
 
@@ -74,6 +64,10 @@ AOMEI Backupper Standard est un logiciel de sauvegarde tout-en-un pour Windows 1
 Toutes les opérations s'effectuent dans une interface intuitive, ce qui permet à la majorité des utilisateurs de comprendre rapidement le logiciel et de l'utiliser facilement. Veuillez le télécharger et l'installer sur votre ordinateur.
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-logo-ab-32.svg)AOMEI Backupper
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Meilleur logiciel de sauvegarde Windows gratuit pour usage personnel.
 
@@ -95,6 +89,10 @@ Tout d'abord, cliquez sur **Ajouter un dossier** ou **Ajouter un fichier** sur l
 
 [![ajouter un fichier ou un dossier](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ajouter-dossier-fichier.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
@@ -111,13 +109,6 @@ Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le no
 
 [![mode planifier](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/mode-planifier.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Par défaut, ce logiciel créera une sauvegarde complète et 6 sauvegardes incrémentielles si vous définissez une tâche de sauvegarde planifiée. Cela peut entraîner un problème d'espace disque plein à long terme, il est donc recommandé d'activer le [Plan de sauvegarde](https://tools.techidaily.com/ubackup/products/) et de supprimer automatiquement les fichiers de sauvegarde. Pour profiter de ces fonctions, passez à l'édition [Professional](https://tools.techidaily.com/ubackup/products/).
 
 Et la sauvegarde incrémentielle nécessite une récupération plus complexe tandis que la sauvegarde différentielle est beaucoup plus facile. Pour connaître les différences entre elles, consultez « [Sauvegarde incrémentielle ou différentielle](https://tools.techidaily.com/ubackup/products/) ».
@@ -127,16 +118,7 @@ De plus, vous pouvez activer la notification par e-mail une fois la tâche termi
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
@@ -155,16 +137,13 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
 
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Autres articles connexes
 
@@ -194,13 +173,14 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Propre & Sûr
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -218,24 +198,18 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-beatbox-recorder-a-compreeved-guide/"><u>[New] BeatBox Recorder A Compreeved Guide</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/outube-vision-navigating-video-degrees-with-ease/"><u>[New] YouTube Vision Navigating Video Degrees with Ease</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-infiltrating-the-top-channels-in-youtube-space/"><u>[Updated] Infiltrating the Top Channels in YouTube Space</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-in-depth-evaluation-gopro-slr4-silver-hero4-model/"><u>2024 Approved In-Depth Evaluation GoPro SLR4 Silver HERO4 Model</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/elevate-web-analytics-effortlessly-discover-tools-beyond-traditional-cookies/"><u>Elevate Web Analytics Effortlessly: Discover Tools Beyond Traditional Cookies!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/elevate-your-accounts-payable-how-scena-achieved-a-staggering-60-reduction-in-invoice-and-credit-note-processing-with-seamless-abbyy-engeneum-automation-and11/"><u>Elevate Your Accounts Payable: How Scena Achieved a Staggering 60% Reduction in Invoice & Credit Note Processing with Seamless ABBYY, Engeneum Automation and Sage Integration - Insider Customer Insights</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhance-your-site-performance-with-the-robust-capabilities-of-cookiebot-technology/"><u>Enhance Your Site Performance with the Robust Capabilities of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-performance-through-personalization-the-cookiebot-advantage/"><u>Enhanced Performance Through Personalization: The Cookiebot Advantage</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-personalization-through-cookiebot-driven-engagement-tools/"><u>Enhanced Personalization Through Cookiebot-Driven Engagement Tools</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-personalization-with-dynamic-cookiebot-technology/"><u>Enhanced Personalization with Dynamic Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-tracking-with-cookiebot-technology/"><u>Enhanced Tracking with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-traffic-with-cookiebot-technology-boost-your-sites-performance/"><u>Enhanced Traffic with Cookiebot Technology: Boost Your Site's Performance</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhancing-visitor-engagement-through-smart-session-management-backed-by-cutting-edge-cookieless-technology/"><u>Enhancing Visitor Engagement Through Smart Session Management - Backed by Cutting-Edge Cookieless Technology</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-realme-11-proplus-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Realme 11 Pro+ Phones with/without a PC</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-the-ultimate-drone-buying-roadmap-pre-purchase-essentials/"><u>In 2024, The Ultimate Drone Buying Roadmap Pre-Purchase Essentials</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-realme-10t-5g-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Realme 10T 5G and Browser | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/stand-alone-hold-tight-camera-stability-techniques-for-2024/"><u>Stand Alone, Hold Tight Camera Stability Techniques for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-connection-issues-is-discord-experiencing-downtime-or-are-your-access-problems-personalized/"><u>Troubleshooting Connection Issues: Is Discord Experiencing Downtime or Are Your Access Problems Personalized?</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/unleashing-the-power-of-teamsnap-for-virtual-meetings/"><u>Unleashing the Power of TeamSnap for Virtual Meetings</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-unmuting-your-social-network-fixing-half-volume-videos/"><u>[New] Unmuting Your Social Network Fixing Half-Volume Videos</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/3-methoden-zum-erstellen-eines-bildbackups-fur-windows-81/"><u>3 Methoden Zum Erstellen Eines Bildbackups Für Windows 8.1</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/a-comprehensive-guide-to-adjusting-video-pace-in-youtube-viewing-mode/"><u>A Comprehensive Guide to Adjusting Video Pace in YouTube Viewing Mode</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/about-crystal-discover-the-inspiring-world-of-an-accomplished-author/"><u>About Crystal: Discover the Inspiring World of an Accomplished Author</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/guia-paso-a-paso-para-rescatar-datos-desaparecidos-accidentalmentedefinitivamente-en-windows-windows-7-con-metodos-probados-y-confirmados/"><u>Guía Paso a Paso Para Rescatar Datos Desaparecidos Accidentalmente/Definitivamente en Windows 지(Windows 7) Con Métodos Probados Y Confirmados</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-detailed-methods-for-seamless-wirecast-livestreams-on-youtube/"><u>In 2024, Detailed Methods for Seamless WireCast Livestreams on YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-make-snapchat-memories-shine-2-lens-creation-methods/"><u>In 2024, Make Snapchat Memories Shine 2 Lens-Creation Methods</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/prime-approaches-to-chronicle-lol-clashes-for-2024/"><u>Prime Approaches to Chronicle LOL Clashes for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/recover-lost-files-with-ease-using-these-top-3-free-tools-on-windows-11/"><u>Recover Lost Files with Ease Using These Top 3 Free Tools on Windows 11</u></a></li>
+<li><a href="https://win-forum.techidaily.com/revolutionize-your-pc-maintenamo-by-creating-deleting-and-tweaking-registry-settings-using-revo-uninstaller/"><u>Revolutionize Your PC Maintenamo by Creating, Deleting, and Tweaking Registry Settings Using Revo Uninstaller</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/securely-swap-hp-laptop-storage-device-while-preserving-all-files-and-information/"><u>Securely Swap HP Laptop Storage Device While Preserving All Files and Information</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Xiaomi 13 Ultra | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-and-fixing-mount-and-blade-2-bannerlords-system-errors/"><u>Troubleshooting and Fixing Mount & Blade 2: Bannerlord's System Errors</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Easy Steps to Restore Lost Unsaved Excel Files in 2016 with IFind Data Recovery
-date: 2024-11-10T00:41:02.963Z
-updated: 2024-11-16T21:56:48.420Z
+date: 2024-11-25T17:52:28.544Z
+updated: 2024-11-26T18:25:01.051Z
 tags:
   - product
 categories:
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/e68430bcb106e10e6ed671e16682f01d022f0799c
 
 * ![how to recover unsaved excel files](https://www.ifind-recovery.com/wp-content/uploads/2019/03/how-to-recover-unsaved-excel-file.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 We expand our office recovery series to Excel recovery this week, and with the most asked question: how to recover excel file?
 
 Unlike the office word, Excel is all about tables and calculations. You may face more problems when dealing with excel files. As always, we give you some tips for how to get them back and how to Not lose them.
@@ -29,10 +33,7 @@ Unlike the office word, Excel is all about tables and calculations. You may face
 As a part of Microsoft office, the recovery of excel is very similar with office word. In case you read this before our office word tips, here is the detailed step by step methods to help you to recover excel file not saved.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 1: Recover Unsaved excel Documents From Office Autosave
@@ -43,22 +44,13 @@ Autosave is a new function for Office 365 which allows the Microsoft Excel to sa
 
 With this feature, Recover Autosave Excel is easy and self-acting, The Excel will save your working files every few seconds. You can even find some previous versions if you need a restore.
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 2: Recover Unsaved excel Documents From Excel Autorecover
 
 ![excel autorecover](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-autorecover-e1553241342364.jpg?resize=680%2C238&ssl=1)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Excel Autorecover is a building-in function of Microsoft office(2003-2016) for saving your file copy at a custom setup period automatically. You can use these copies to recover your unsaved Excel documents when you forgot to save the excel document, your excel crashed, or your Computer suddenly shut down.
 
@@ -97,10 +89,7 @@ First, you need to select the “Always create backup” option in File – Save
 ![excel-saveas](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-saveas.jpg?resize=800%2C165&ssl=1)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![excel-backup-options](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-backup-options.jpg?resize=800%2C267&ssl=1)
@@ -112,29 +101,16 @@ Then, the Excel will store a \*.xlk backup file for you. So you have a chance to
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-backup-xlk.jpg?resize=800%2C131&ssl=1)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 4: Recover Unsaved excel Documents From windows previous versions
 
 **Related Tip: [Restore Deleted Files With Previous Versions Tabs In Windows](https://tools.techidaily.com/ifind-recovery/products/)**
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 5: Recover Unsaved excel Documents From iFinD data recovery
 
@@ -142,16 +118,13 @@ If you get no luck with the tips above, or all or part of your computer data was
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2024/03/R-C.png?resize=100%2C100&ssl=1)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [andy woo](https://tools.techidaily.com/ifind-recovery/products/)
 
 Andy is an editor of the iFinD Team. She worked in this big family since her graduation. Her articles mainly focus on data backup and recovery, disk cloning, and file syncing, committed to resolving the data loss issues users may encounter on their PCs. Besides, more related computer articles are shared here.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Show Us some Love:
 
@@ -204,24 +177,22 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2019-03-29T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-engage-and-inspire-with-these-essential-10-igtv-best-practices-for-brands/"><u>[New] Engage & Inspire with These Essential 10 IGTV Best Practices for Brands</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/rime-vocal-changer-tools-for-digital-personalities/"><u>[New] Prime Vocal Changer Tools for Digital Personalities</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-unlock-professional-editing-skills-using-gopro-studio-for-2024/"><u>[New] Unlock Professional Editing Skills Using GoPro Studio for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/6acc57sa5ywn6lk75zyo57q6keg6akr5ymq6l6r5bel5yw35rif5y2v77ya5bc95bplusr5lyy5yyw5oko55qe5b2x54mh5l2t6aqm/"><u>頂級免費在线视频剪辑工具清单：尽快优化您的影片体验</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/aide-a-la-conversion-en-ligne-changer-votre-fichier-ogg-en-aiff-sans-frais-solution-de-movavi/"><u>Aide À La Conversion en Ligne : Changer Votre Fichier Ogg en Aiff Sans Frais, Solution De Movavi</u></a></li>
-<li><a href="https://win-best.techidaily.com/comment-creer-un-clone-identique-du-disque-dur-avec-facilite/"><u>Comment Créer Un Clone Identique Du Disque Dur Avec Facilité</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/conversione-gratuita-da-wav-a-3gp-on-line-con-lutilita-convertitore-multimediale-di-movavi-percorso-facile-e-rapido/"><u>Conversione Gratuita Da WAV a 3GP On-Line Con L'utilità Convertitore Multimediale Di Movavi – Percorso Facile E Rapido</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/descargar-y-convertir-videos-de-ogv-a-formato-mpeg-completamente-libres-desde-la-web/"><u>Descargar Y Convertir Videos De OGV a Formato MPEG Completamente Libres Desde La Web</u></a></li>
-<li><a href="https://blog-min.techidaily.com/efficient-methods-for-transcoding-h264-into-h265-with-compression-and-uncompromised-quality/"><u>Efficient Methods for Transcoding H.264 Into H.265 With Compression and Uncompromised Quality</u></a></li>
-<li><a href="https://fox-search.techidaily.com/effortless-chromebook-video-capture-a-beginners-guide-to-quick-and-easy-recording/"><u>Effortless Chromebook Video Capture: A Beginner's Guide to Quick and Easy Recording</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/eficientes-metodos-para-hacer-selecciones-de-captura-en-windows-10/"><u>Eficientes Métodos Para Hacer Selecciones De Captura en Windows 10.</u></a></li>
-<li><a href="https://win-able.techidaily.com/expert-tips-to-overcome-discord-glitches-and-ensure-smooth-streaming-experiences/"><u>Expert Tips to Overcome Discord Glitches and Ensure Smooth Streaming Experiences</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/guia-passo-a-passo-para-criar-e-gravar-videoaulas-em-windows-ou-macos/"><u>Guia Passo-a-Passo Para Criar E Gravar VideoAulas Em Windows Ou macOS</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-6-ways-to-transfer-text-messages-from-samsung-galaxy-s23-tactical-edition-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 6 Ways to Transfer Text Messages from Samsung Galaxy S23 Tactical Edition to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/y-letters-on-screen-bounce-with-ease-and-style-for-2024/"><u>Lively Letters on Screen Bounce with Ease and Style for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-6-substitutes-for-windows-movie-maker-a-comprehensive-guide/"><u>Top 6 Substitutes for Windows Movie Maker : A Comprehensive Guide</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/tudo-sobre-o-cortador-de-mp3-da-movavi-funcionamento-download-e-tecnicas-de-baixar-com-maior-sucesso/"><u>Tudo Sobre O Cortador De Mp3 Da Movavi: Funcionamento, Download E Técnicas De Baixar Com Maior Sucesso</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-best-whiteboard-animation-software-for-hand-drawn-videos/"><u>Updated 2024 Approved Best Whiteboard Animation Software for Hand-Drawn Videos</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mov-m4v/"><u>무료 MOV M4V 파일 변환기 - 화면을 위한 원활한 이미지로 전환하는 가장 최신 도구</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-seamless-viewing-clearing-up-streaming-hiccups-on-vimeo-for-2024/"><u>[New] Seamless Viewing Clearing Up Streaming Hiccups on Vimeo for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unraveling-the-complexity-of-youtube-analytics-analysis-for-2024/"><u>[Updated] Unraveling the Complexity of YouTube Analytics Analysis for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/8-top-3-methods-for-a-smooth-update/"><u>8 – Top 3 Methods for a Smooth Update</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1728478797608-windows-8/"><u>资源管理器還原刪除的檔案——深入Windows 8解密指南</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/amd-requests-removal-of-zluda-open-source-software-creator-determined-to-restore-and-revise-project/"><u>AMD Requests Removal of ZLUDA Open Source Software; Creator Determined to Restore and Revise Project</u></a></li>
+<li><a href="https://win11.techidaily.com/black-friday-bonanza-lifelong-windows-10-priced-low-612/"><u>Black Friday Bonanza: Lifelong Windows 10 Priced Low ($6.12)</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cloning-soluzioni-efficienti-con-aomei-backupper-ideale-per-lampliare-ssd-m2/"><u>Cloning Soluzioni Efficienti Con AOMEI Backupper - Ideale per L'Ampliare SSD M.2</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/dealing-with-disturbing-audio-noises-a-step-by-step-solution-for-the-arctis-n-7-sound-issue-on-windows-systems/"><u>Dealing with Disturbing Audio Noises: A Step-by-Step Solution for the Arctis N 7 Sound Issue on Windows Systems</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/descubra-a-aomei-su-historia-y-soluciones-de-respaldos-expertas/"><u>Descubra a AOMEI: Su História Y Soluciones De Respaldos Expertas</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/1725288446088-dvdmac/"><u>DVD映像データをMacへ転送し、保管する効果的な方法</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/kingston-sd-3/"><u>Kingston SDメモリカード復元策: 信頼性と速さを追求した3つの選び方</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mbrgpt-windows-1110/"><u>MBRからGPTへの変換: Windows 11/10でパーティションマップを最適化する手順</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/solving-the-bootmgr-not-found-issue-on-windows-11-post-cloning-a-guide-with-7-methods/"><u>Solving the 'Bootmgr Not Found' Issue on Windows 11 Post-Cloning: A Guide with 7 Methods</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-realme-gt-neo-5-se-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/win-11-unlinking-saved-wi-fi/"><u>Win 11: Unlinking Saved Wi-Fi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/windows-1011pc/"><u>Windows 10/11下以免费方式将PC数据备份到云端—极佳选项</u></a></li>
+<li><a href="https://fox-making.techidaily.com/sd-windows/"><u>フリーソフトウェアを使ったSDカードからのデータ回復 - Windows機能も活用方法</u></a></li>
 </ul></div>
 

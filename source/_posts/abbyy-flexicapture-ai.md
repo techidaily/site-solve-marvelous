@@ -1,7 +1,7 @@
 ---
 title: ABBYY FlexiCapture - AI駆使した最先端の帳票自動認識プラットフォームについて学ぶ
-date: 2024-11-10T21:07:52.079Z
-updated: 2024-11-16T19:38:07.296Z
+date: 2024-11-25T18:34:43.958Z
+updated: 2024-11-26T16:52:51.980Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/670a3d23e314a574aa8e5af4448af6d1aaae629960eef8dd3da5be3e28617436.jpg
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/670a3d23e314a574aa8e5af4448af6d1aaae62996
 
 #### 4\. 外部接続・連携
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. スケーラビリティ・アベイラビリティ
 
 ABBYY FlexiCaptureは、最大で以下のような構成を組むことが可能となっており、高トランザクション、高可用性対応が可能な帳票処理ソリューションです。
@@ -44,13 +48,14 @@ ABBYY FlexiCaptureは、最大で以下のような構成を組むことが可�
 ![Processing CPU cores per pages](https://static1.abbyy.com/abbyycommedia/29914/flexicapture-rpa-image2-diagram.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 また、冗長化構成によりHA/DR (High Availability/Disaster Recovery)も実現可能となっています。
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. セキュリティ
 
@@ -80,35 +85,22 @@ ABBYY FlexiCaptureは、エンタープライズ利用にとって必須要件�
 
 ![FlexiCapture ユーザーロール管理](https://static1.abbyy.com/abbyycommedia/29917/image-5.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. 様々なワークフローへの対応
 
 ABBYY FlexiCaptureは、ビジネスにおける様々な業務フローに合わせ、柔軟にワークフローを設定する事が可能です。
 
 ![FlexiCapture 様々なワークフローへの対応](https://static1.abbyy.com/abbyycommedia/29918/image-6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 例えば上記のようなビジネスプロセスを実現するため、以下のようにワークフローの順番を変更したり、追加、カスタマイズが可能となっています。
 
 ![FlexiCapture Sample Invoice ブロパティ](https://static1.abbyy.com/abbyycommedia/29919/image-7.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. 外部接続・連携
@@ -133,6 +125,10 @@ ABBYY FlexiCaptureは日本語の手書き文字認識はサポートしてお�
 
 ![他社エンジンとの連携 FlexiCapture](https://static1.abbyy.com/abbyycommedia/29920/image-9.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 以上、今回はABBYY FlexiCaptureのAI-OCRプラットフォーム（基盤）としての特長についてご紹介いたしました。
 
 ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせは[こちら](https://tools.techidaily.com/abbyy/products/)から承ります。
@@ -140,13 +136,6 @@ ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせ�
 [RPA](https://tools.techidaily.com/abbyy/products/) [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [データプライバシー](https://tools.techidaily.com/abbyy/products/) [AI OCR](https://tools.techidaily.com/abbyy/products/) [エンタープライズ](https://tools.techidaily.com/abbyy/products/) 
 
 ![ABBYY logo circle](https://static5.abbyy.com/abbyycommedia/29971/abbyy-logo-2021-blog-99x99.png)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ABBYY Japan エンジニアリングチーム
 
@@ -213,24 +202,18 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-honored-advisors-elite-iphone-audio-experts/"><u>[New] Honored Advisors Elite iPhone Audio Experts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-discover-9-free-whole-film-festive-movie-gems-on-youtube/"><u>[New] In 2024, Discover 9 Free, Whole-Film Festive Movie Gems on Youtube</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-driving-healthy-change-via-digital-campaign-tactics/"><u>[Updated] In 2024, Driving Healthy Change via Digital Campaign Tactics</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-premier-online-calling-apps-all-free-and-user-friendly/"><u>[Updated] Premier Online Calling Apps - All Free & User-Friendly</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/change-your-windows-11-startup-disk-to-an-ssd/"><u>Change Your Windows 11 Startup Disk to an SSD</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/claim-the-crown-strategies-for-staff-picked-videos-at-vimeo-for-2024/"><u>Claim the Crown Strategies for Staff-Picked Videos at Vimeo for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/effortless-methods-to-import-your-favorite-cd-tracks-directly-onto-your-iphone-a-guide-beyond-itunes/"><u>Effortless Methods to Import Your Favorite CD Tracks Directly Onto Your iPhone: A Guide Beyond iTunes</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/enhancing-gaming-performance-updating-amd-drivers-on-windows-10-11-and-7-platforms/"><u>Enhancing Gaming Performance: Updating AMD Drivers on Windows 10, 11, and 7 Platforms</u></a></li>
-<li><a href="https://techidaily.com/how-to-recover-apple-iphone-13-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover Apple iPhone 13 Data From iOS iCloud? | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/introduce-natural-photo-smear-in-ps/"><u>Introduce Natural Photo Smear in PS</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/lost-dxgidll-in-win11-swift-recovery-steps-explored/"><u>Lost Dxgi.dll in Win11? Swift Recovery Steps Explored</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/migrar-tu-os-usando-aomei-backupper-para-otro-tipo-de-hardware-tutorial-completo/"><u>Migrar Tu OS Usando AOMEI Backupper Para Otro Tipo De Hardware – Tutorial Completo</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/probleme-mit-der-installation-von-windows-nicht-bootfahigem-usb-tipps-zur-fehlerbehebung-und-wiederherstellung/"><u>Probleme Mit Der Installation Von Windows Nicht Bootfähigem USB: Tipps Zur Fehlerbehebung Und Wiederherstellung</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/retrieve-deleted-youtube-footage-effortlessly-using-ifinds-ifind-data-recovery-guide-and-software-solutions/"><u>Retrieve Deleted YouTube Footage Effortlessly Using iFinD's IFind Data Recovery Guide and Software Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revive-your-laptop-solutions-for-when-it-shuts-down-unexpectedly/"><u>Revive Your Laptop: Solutions for When It Shuts Down Unexpectedly</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-duplicateur-nvme-certifie-clonage-reliable-et-securise-de-disques-nvme-en-nvme-avec-logiciels-windows/"><u>Top Duplicateur NVMe Certifié : Clonage Reliable Et Sécurisé De Disques NVMe en NVMe Avec Logiciels Windows</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-rated-free-corsair-migration-tools-for-windows-users/"><u>Top Rated Free Corsair Migration Tools for Windows Users</u></a></li>
-<li><a href="https://video-capture.techidaily.com/unveiling-voice-memo-creation-on-ios-devices/"><u>Unveiling Voice Memo Creation on iOS Devices</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/win11bootmgr-is-missing/"><u>フォトレスキュー後のWin11で発生するBOOTMGR Is Missing問題を解決</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-groundbreaking-camera-work-insight-and-backup-films/"><u>2024 Approved Groundbreaking Camera Work Insight and Backup Films</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/average-payout-for-a-million-view-youtube-video/"><u>Average Payout for a Million-View YouTube Video</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722977448715-effortless-installation-get-your-amd-ryzen-5-2600-driver-downloads-now/"><u>Effortless Installation: Get Your AMD Ryzen 5 2600 Driver Downloads Now!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhancing-digital-footprints-how-our-services-are-powered-by-cookiebot-technology/"><u>Enhancing Digital Footprints: How Our Services Are Powered by Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/harness-the-power-of-cookiebot-for-dynamic-web-analytics-and-conversion-optimization/"><u>Harness the Power of Cookiebot for Dynamic Web Analytics and Conversion Optimization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/hochwertiger-treibstoff-fur-den-motor-des-unternehmenserfolgs/"><u>Hochwertiger Treibstoff Für Den Motor Des Unternehmenserfolgs</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-restore-and-fix-the-missing-d3dx940dll-error-in-windows-systems/"><u>How to Restore and Fix the Missing d3dx9_40.dll Error in Windows Systems</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/inspire-dont-impose-the-art-of-attracting-subscribers/"><u>Inspire, Don't Impose The Art of Attracting Subscribers</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leverage-cookiebot-technology-for-advanced-website-personalization-and-analytics/"><u>Leverage Cookiebot Technology for Advanced Website Personalization & Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leverage-the-power-of-cookiebot-for-superior-web-analytics-and-conversion-tracking/"><u>Leverage the Power of Cookiebot for Superior Web Analytics and Conversion Tracking</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-advanced-web-analytics-solutions/"><u>Leveraging Cookiebot Technology for Advanced Web Analytics Solutions</u></a></li>
+<li><a href="https://win-docs.techidaily.com/nuovi-trucchi-e-risoluzioni-per-superare-il-blocco-del-trasferimento-sul-tuo-nuovo-ipad/"><u>Nuovi Trucchi E Risoluzioni per Superare Il Blocco Del Trasferimento Sul Tuo Nuovo iPad</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pivot-past-moments-an-android-video-reversal-tutorial-for-2024/"><u>Pivot Past Moments An Android Video Reversal Tutorial for 2024</u></a></li>
 </ul></div>
 

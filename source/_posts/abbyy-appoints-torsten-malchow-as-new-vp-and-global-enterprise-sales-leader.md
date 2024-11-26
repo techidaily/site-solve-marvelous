@@ -1,7 +1,7 @@
 ---
 title: ABBYY Appoints Torsten Malchow as New VP and Global Enterprise Sales Leader
-date: 2024-11-10T01:10:11.497Z
-updated: 2024-11-16T21:23:48.610Z
+date: 2024-11-25T17:00:06.799Z
+updated: 2024-11-26T18:14:20.466Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a50d24fd1a27318344d95b256.jpg
@@ -11,11 +11,19 @@ thumbnail: https://thmb.techidaily.com/74045d9d6303c7a70563d004d7c7b11c2909530a5
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ABBYY beruft Torsten Malchow zum neuen Vice President, Head of Global Enterprise Sales
 
 12\. September 2018
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### _Malchow soll mit seiner Erfahrung den Verkauf von Content-Intelligence-Lösungen noch stärker vorantreiben_
 
@@ -79,26 +87,14 @@ Vernetzen Sie sich mit uns
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-the-zen-of-zoom-advanced-tips-for-flawless-audio-recording-on-video-platforms/"><u>[New] 2024 Approved The Zen of Zoom Advanced Tips for Flawless Audio Recording on Video Platforms</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-top-5-ps1-emulation-software-on-modern-computers/"><u>[Updated] 2024 Approved Top 5 PS1 Emulation Software on Modern Computers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-elevate-your-visual-narratives-with-mastered-stories-bokeh-for-2024/"><u>[Updated] Elevate Your Visual Narratives with Mastered Stories Bokeh for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-the-essential-guide-to-twitters-video-converters/"><u>2024 Approved The Essential Guide to Twitters Video Converters</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-success-boosting-web-analytics-and-conversion/"><u>Cookiebot-Enabled Success: Boosting Web Analytics and Conversion</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhanced-enhance-your-sites-analytics-efficiency/"><u>Cookiebot-Enhanced: Enhance Your Site's Analytics Efficiency</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhanced-the-secure-way-to-personalize-your-website/"><u>Cookiebot-Enhanced: The Secure Way to Personalize Your Website</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-the-key-driver-behind-efficient-user-analytics-tracking/"><u>Cookiebot: The Key Driver Behind Efficient User Analytics Tracking</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/effortlessly-digitize-paperwork-from-iphone-snaps-to-searchable-docs-using-scan-and-ocr-technology-finereader-pro/"><u>Effortlessly Digitize Paperwork From iPhone Snaps to Searchable Docs Using Scan and OCR Technology | FineReader Pro</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolved-fixing-recurring-crashes-in-overwatch-game/"><u>Resolved: Fixing Recurring Crashes in Overwatch Game</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-zmi-powerpack-20000-revealed-an-authoritative-portable-power-unit-assessment/"><u>The ZMI PowerPack 20000 Revealed: An Authoritative Portable Power Unit Assessment</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/top-8-collaborative-video-collage-apps-for-android-users-freepaid-for-2024/"><u>Top 8 Collaborative Video Collage Apps for Android Users (Free/Paid) for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-the-initialization-error-of-vanguard-ability-on-valorant-a-comprehensive-fix/"><u>Troubleshooting the Initialization Error of Vanguard Ability on Valorant: A Comprehensive Fix</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-best-drone-selections-for-young-pilots-and-rookie-flyers/"><u>[Updated] Best Drone Selections for Young Pilots and Rookie Flyers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-banter-bonanza-the-best-comedians-on-the-web/"><u>[Updated] In 2024, Banter Bonanza The Best Comedians on the Web</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-unveiling-vsdcs-potential-and-top-alternatives-for-2024/"><u>[Updated] Unveiling VSDC’s Potential & Top Alternatives for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-convertir-nsv-a-avi-online-de-forma-gratuita-con-herramientas-de-movavi/"><u>Cómo Convertir NSV a AVI Online De Forma Gratuita Con Herramientas De Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converti-file-ts-in-mp4-gratuitamente-online-con-movavi/"><u>Converti File TS in MP4 Gratuitamente Online Con Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-conversion-change-ts-files-into-flv-format-with-movavi-tools/"><u>Free Online Conversion: Change .TS Files Into FLV Format with Movavi Tools</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/how-to-fix-and-stretch-videos-to-perfectly-fit-your-screen-the-ultimate-4-techniques/"><u>How to Fix and Stretch Videos to Perfectly Fit Your Screen: The Ultimate 4 Techniques</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-top-10-video-animation-apps-for-mobile-devices-for-2024/"><u>New Top 10 Video Animation Apps for Mobile Devices for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/perfect-harmony-how-to-add-audio-content-in-adobe-premiere/"><u>Perfect Harmony How To Add Audio Content in Adobe Premiere</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

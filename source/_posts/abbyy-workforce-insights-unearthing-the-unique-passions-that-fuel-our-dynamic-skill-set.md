@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Workforce Insights: Unearthing the Unique Passions that Fuel Our Dynamic Skill Set"
-date: 2024-10-08T22:45:21.592Z
-updated: 2024-10-15T00:22:49.287Z
+date: 2024-11-25T18:03:53.436Z
+updated: 2024-11-26T18:45:00.345Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5b41f1296863a8cc22d3a2c3dbb979d19c4362b2b1c96fbfb8d71b7193c17bd8.jpg
@@ -18,9 +18,17 @@ August 9, 2024
 
 In this edition of our "Beyond the Job Title" interview series, we sat down with our colleagues Liza, Dmitry, Tetiana, and Sergey to delve into their fascinating hobbies and interests outside of their professional roles at ABBYY. These activities not only showcase their diverse talents but also highlight how their passions contribute to their personal growth and professional success. Read on to find out more: 
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Elizaveta (Liza) Lagireva, Talent Acquisition Partner, Serbia 
 
 ![elizaveta-lagireva](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-unique-passions-of-abbyy/elizaveta_lagireva.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza’s love for chess began in childhood when her father introduced her to the game. For her, chess is more than a game—it's a mental challenge that she embraces both competitively and leisurely, and which helps her recharge and stay focused at work. 
 
@@ -45,10 +53,7 @@ Liza finds solace in blitz games during breaks, describing them as a mental rech
 ![abbyy-greta-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-unique-passions-of-abbyy/dmitry_golivets.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Dmitry Golivets’ passion for Historical Medieval Battles (Buhurt) stems from his lifelong fascination with medieval history and combat sports. He sees this unique hobby as a physical and mental challenge that complements his professional responsibilities. 
@@ -70,10 +75,7 @@ Dmitry emphasized teamwork and resilience as key takeaways from Buhurt, essentia
 ![tetiana-ryznik-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-unique-passions-of-abbyy/tetiana_riznyk.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 For Tetiana Riznyk, pysanka (Ukrainian Easter eggs painting) is more than a creative outlet; it’s a cultural tradition that connects her deeply to her heritage and brings joy through artistic expression. 
@@ -94,16 +96,13 @@ Tetiana’s patience and focus during the intricate process of creating pysanka 
 
 This meditative practice not only enhances her artistic skills but also fosters a sense of well-being and satisfaction, contributing positively to her ability to bring her best self to work at ABBYY. 
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Sergey Kaginyan, Website Marketing Project Manager, Cyprus 
 
 ![sergey-abbyy-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-unique-passions-of-abbyy/sergey_kaginyan.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Sergey Kaginyan’s passion for motorcycles is more than just a hobby; it’s a way of life that fuels his personal and professional growth. 
 
@@ -126,13 +125,6 @@ Sergey believes that the discipline and routine instilled by riding motorcycles 
 The stories of Elizaveta, Dmitry, Tetiana, and Sergey remind us of the power of personal interests to complement and enhance professional endeavors, fostering creativity, resilience, and a well-rounded approach to achieving success. 
 
 ![common-abbyy-848](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/beyond-the-job-title-the-unique-passions-of-abbyy/image-2024-08-09-12-07-35-919.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 These unique hobbies not only provide moments of relaxation and rejuvenation but also equip our team members with valuable skills such as strategic thinking, teamwork, and creativity, which are essential in driving innovation and excellence in everything we do. 
 
@@ -198,21 +190,15 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-ultimate-win10-screen-and-video-recording-tool-for-2024/"><u>[New] Ultimate Win10 Screen & Video Recording Tool for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unlock-the-potential-of-vr-video-on-your-iphone/"><u>2024 Approved Unlock the Potential of VR Video on Your iPhone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ovative-yt-tales-share-your-life-journey-for-2024/"><u>5 Innovative YT Tales Share Your Life Journey for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-music-files-on-honor-magic-vs-2-by-fonelab-android-recover-music/"><u>Complete guide for recovering music files on Honor Magic Vs 2</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-opinion-the-nook-glowlight-4-edition-assessment/"><u>Expert Opinion: The Nook Glowlight 4 Edition Assessment</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/ideal-modeling-software-for-animation-professionals-for-2024/"><u>Ideal Modeling Software for Animation Professionals for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/leverage-advanced-analytics-with-our-cookiebot-integration-services-for-website-optimization/"><u>Leverage Advanced Analytics with Our Cookiebot Integration Services for Website Optimization</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mastering-data-with-abbyy-and-arsenal-women-cutting-edge-ai-insights/"><u>Mastering Data with ABBYY & Arsenal Women: Cutting-Edge AI Insights</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mastering-networking-with-bcr-for-ios-nv-10-unveiling-latest-features-by-abbyy-exclusive-tips-from-our-companys-blog/"><u>Mastering Networking with BCR for iOS Nv 10: Unveiling Latest Features by ABBYY | Exclusive Tips From Our Company's Blog</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/optimized-by-cookiebot-enhanced-sales-funnel-management-and-analytics/"><u>Optimized by Cookiebot: Enhanced Sales Funnel Management and Analytics</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/paragon-customer-communications-advances-with-abbyys-digital-intelligence-for-comprehensive-digital-overhaul/"><u>Paragon Customer Communications Advances with ABBYY's Digital Intelligence for Comprehensive Digital Overhaul</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionize-your-data-collection-state-of-the-art-tools-powered-by-cookiebot/"><u>Revolutionize Your Data Collection: State-of-the-Art Tools Powered by Cookiebot</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-mobile-tech-music-streaming-and-e-signatures-with-smartwatches-insights-from-the-abbyy-blog/"><u>Revolutionizing Mobile Tech: Music Streaming & E-Signatures with Smartwatches – Insights From the ABBYY Blog</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/the-cfaa-was-enacted-in-1986-and-has-been-amended-several-times-to-address-the-evolving-nature-of-computer-crimes/"><u>The CFAA Was Enacted in 1986 and Has Been Amended Several Times to Address the Evolving Nature of Computer Crimes.</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/top-10-strategies-for-impactful-spotify-ads/"><u>Top 10 Strategies for Impactful Spotify Ads</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-12-prominent-motorola-moto-g84-5g-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Motorola Moto G84 5G Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-reversing-the-clock-a-complete-guide-for-instagram-users/"><u>[New] 2024 Approved Reversing the Clock A Complete Guide for Instagram Users</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-smoothly-record-your-desktop-on-win11/"><u>[Updated] 2024 Approved Smoothly Record Your Desktop on Win11</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-complete-mastery-over-picsart-the-ultimate-users-guide/"><u>[Updated] Complete Mastery over PicsArt The Ultimate User's Guide</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/2024s-premiere-lineup-elite-sleeves-and-shields-for-your-ipad-pro-13-inch/"><u>2024'S Premiere Lineup: Elite Sleeves and Shields for Your iPad Pro 13-Inch</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/3gpwmv-movavi/"><u>免費移動中的3GP到WMV格式轉換 - 利用Movavi工具</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/a-lista-dos-8-mestres-gratis-em-gerar-glitch-effects-and-imperfections-for-designers/"><u>A Lista Dos 8 Mestres Grátis Em Gerar Glitch Effects and Imperfections for Designers</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-converter-video-mp4-a-fotos-jpg-de-manera-gratuita-en-linea-guia-paso-a-paso-con-herramienta-movavi/"><u>Cómo Converter Video MP4 a Fotos JPG De Manera Gratuita en Línea - Guía Paso a Paso Con Herramienta Movavi</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-seamlessly-incorporate-premium-visuals-at-zero-expense-for-2024/"><u>How to Seamlessly Incorporate Premium Visuals at Zero Expense for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/resolving-no-video-issue-on-sony-a6400-device/"><u>Resolving No-Video Issue on Sony A6400 Device</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transformez-les-videos-vob-en-mp4-de-qualityguard-pour-la-playstation-gratuitement-online/"><u>Transformez Les Vidéos VOB en MP4 De QualityGuard Pour La PlayStation Gratuitement Online!</u></a></li>
 </ul></div>
 

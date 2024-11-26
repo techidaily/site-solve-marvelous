@@ -1,7 +1,7 @@
 ---
 title: "Navigating the Shifting Landscape: Understanding Modern Supply Chain Vulnerabilities Amidst Pandemic Recovery"
-date: 2024-11-14T21:28:20.025Z
-updated: 2024-11-17T04:44:53.572Z
+date: 2024-11-25T18:30:45.696Z
+updated: 2024-11-26T19:23:37.085Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7e377b50c4e513bd18b3a4caf17d4fa401f54e28db3371c8a6654c909a09f9e7.png
@@ -30,10 +30,7 @@ Vice President and Principal Analyst, **Forrester Research**
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25498/20-andrewpery-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Andrew Pery
@@ -43,19 +40,13 @@ Digital Intelligence Consultant, **ABBYY**
 ![Marko Kovacevic 198X198](https://static4.abbyy.com/abbyycommedia/30088/dsci-logo-forspeakers.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Marko Kovacevic 198X198](https://static4.abbyy.com/abbyycommedia/30085/marko-kovacevic-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Forrester Research
@@ -63,10 +54,7 @@ Digital Intelligence Consultant, **ABBYY**
 Executive Director Membership and Engagement, **DSCI**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Overview
@@ -74,10 +62,7 @@ Executive Director Membership and Engagement, **DSCI**
 The first wave of digital disruption enabled brands to sell directly to online consumers — and even allowed manufacturers to engage directly with industrial customers. But many existing supply chains lack transparency and resilience and have proved brittle in the face of increasing customer expectations, disruptions, and new levels of trade uncertainty.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch this webinar to learn about:
@@ -90,13 +75,6 @@ The first wave of digital disruption enabled brands to sell directly to online c
 
 ### Watch now
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
@@ -107,6 +85,10 @@ All personal information collected via this method is under full scope of all pr
 [![ABBYY Expert Talks Forrester Webinar 750X421 2](https://static5.abbyy.com/abbyycommedia/30230/abbyy-expert-talks-forrester-webinar-750x421-2.jpg)](https://www.youtube.com/watch?v=bhPVZZUXjFA) 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -173,24 +155,24 @@ Connect with us
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-effortlessly-create-a-cross-platform-conversation-space-on-skype-a-detailed-manual-for-users-of-all-os-platforms/"><u>[New] In 2024, Effortlessly Create a Cross-Platform Conversation Space on Skype A Detailed Manual for Users of All OS Platforms</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-sociostreamer-convert-to-webmmp4/"><u>[New] In 2024, SocioStreamer Convert to WebM/MP4</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-easiest-way-to-convert-your-youtube-videos-into-texts-for-free/"><u>[New] The Easiest Way to Convert Your YouTube Videos Into Texts for FREE</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-what-actions-can-i-take-if-my-content-is-swiftly-stripped-by-fb-in-2024/"><u>[New] What Actions Can I Take if My Content Is Swiftly Stripped by FB, In 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-best-box-customization-havens-on-the-internet/"><u>2024 Approved Best Box-Customization Havens on the Internet</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-imovies-power-to-transform-ordinary-openers-into-epic/"><u>2024 Approved IMovie's Power to Transform Ordinary Openers Into Epic</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-top-9-androidios-video-chat-platforms-ranked/"><u>2024 Approved Top 9 Android/iOS Video Chat Platforms Ranked</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/asus-2024/"><u>ASUS 損壞磁區修復程式成功處理 (2024年)</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-dynamic-presentations-how-to-integrate-screens-into-online-spaces/"><u>In 2024, Dynamic Presentations How to Integrate Screens Into Online Spaces</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/migrate-your-contact-list-from-ipad-to-desktop-discover-4-easy-techniques/"><u>Migrate Your Contact List From iPad to Desktop: Discover 4 Easy Techniques</u></a></li>
-<li><a href="https://win-data.techidaily.com/protecting-all-of-your-gmail-messages-the-ultimate-2-step-strategy/"><u>Protecting All of Your Gmail Messages: The Ultimate 2-Step Strategy</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1728510408114-smart/"><u>SMARTフィクスチャ・オプション - 自動的に異常を発見</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/step-by-step-guide-installing-windows-1n-10-using-the-media-creation-utility/"><u>Step-by-Step Guide: Installing Windows 1N 10 Using the Media Creation Utility</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-6-forms-of-data-corruption-visual-guide-by-ifind-data-recovery-tool-ifind/"><u>Top 6 Forms of Data Corruption: Visual Guide by IFind Data Recovery Tool - iFinD</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transferencia-sencilla-de-windows-11-entre-discos-ssd-sin-problemas/"><u>Transferencia Sencilla De Windows 11 Entre Discos SSD Sin Problemas</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1728469193019-usb-3/"><u>USB 備份所有品牌電腦上的數據：3 個適合你的選擇方式</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/windows-11-lenovo-pc/"><u>Windows 11 Lenovo PC 再起動プロセスガイド</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/44oh44o844k44gu56e76kgm77ya44op44o844oj44oj44op44kk44ow44gl44kj44kv44op44km44oj44g45a655pit44gr6lui6ycb44gz44kl5oml6acg/"><u>データの移行：ハードドライブからクラウドへ容易に転送する手順</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-obs-recording-tech-breakdown-comparing-leading-screen-recorders/"><u>[New] 2024 Approved OBS Recording Tech Breakdown Comparing Leading Screen Recorders</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-poco-x5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/dxabbyy/"><u>企業に最適なDX加速ツール：ABBYYで導くデジタルインテリジェンス力向上法</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/comparaison-du-serieux-des-differents-domaines-selon-abbyy-quel-domaine-est-le-plus-rigoureux/"><u>Comparaison Du Sérieux Des Différents Domaines Selon ABBYY : Quel Domaine Est Le Plus Rigoureux ?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/constructing-custom-conversations-gpt-edition/"><u>Constructing Custom Conversations: GPT Edition</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-automation-streamline-your-marketing-campaigns/"><u>Cookiebot-Driven Automation: Streamline Your Marketing Campaigns</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-customization-enhance-your-websites-personalization/"><u>Cookiebot-Driven Customization: Enhance Your Website's Personalization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-solutions-optimize-your-websites-performance/"><u>Cookiebot-Driven Solutions: Optimize Your Website's Performance</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-success-enhance-your-site-with-smart-tracking/"><u>Cookiebot-Driven Success: Enhance Your Site with Smart Tracking</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-website-personalization-enhance-user-engagement/"><u>Cookiebot-Driven Website Personalization: Enhance User Engagement</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhance-your-sites-user-engagement-with-smart-analytics/"><u>Cookiebot-Enabled: Enhance Your Site's User Engagement with Smart Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enhancing-your-websites-performance-with-advanced-analytics-tools/"><u>Cookiebot: Enhancing Your Website's Performance with Advanced Analytics Tools</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-fixes-for-insufficient-volume-from-speakers-in-windows-10/"><u>Effective Fixes for Insufficient Volume From Speakers in Windows 10</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/hear-the-future-of-interaction-openai-instills-voice-functionality-into-chatgpt/"><u>Hear the Future of Interaction: OpenAI Instills Voice Functionality Into ChatGPT</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-syncing-images-pc-to-iphone-file-sharing/"><u>In 2024, Syncing Images PC-to-iPhone File Sharing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-itel-p40-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Itel P40</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725288672070-iphone-14/"><u>IPhone 14 以前版本處理照片相圖的屏蔽技巧</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/navigating-notification-history-learn-how-to-find-and-review-previous-warnings-on-your-ios-device/"><u>Navigating Notification History: Learn How to Find and Review Previous Warnings on Your iOS Device</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ling-youtube-shorts-what-it-all-means-for-2024/"><u>Unveiling YouTube Shorts What It All Means for 2024</u></a></li>
 </ul></div>
 

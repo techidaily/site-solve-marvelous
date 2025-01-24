@@ -1,7 +1,7 @@
 ---
 title: "1. Easy Guide: Retrieving Deleted Apps From Your PC with Windows 11"
-date: 2025-01-14T22:14:15.040Z
-updated: 2025-01-17T23:38:49.582Z
+date: 2025-01-20T20:58:37.544Z
+updated: 2025-01-23T16:25:05.779Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/2738dcb65655ca3023848f9ec7026a9cce211e70815a31f4f65d2f9ea9ded629.jpg
@@ -18,19 +18,23 @@ thumbnail: https://thmb.techidaily.com/2738dcb65655ca3023848f9ec7026a9cce211e708
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Logiciel de sauvegarde NAS Buffalo le plus efficace ! \[Guide inclus\]
 
 Vous obtiendrez le logiciel de sauvegarde NAS Buffalo le plus simple pour Windows 11/10/8/7/XP/Vista. Apprenez à l'utiliser pour sauvegarder automatiquement des fichiers en quelques étapes simples.
 
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Par[Aurore](https://tools.techidaily.com/ubackup/products/)Publié le 26/06/2024
 
 Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Table des matières** 
 
@@ -46,10 +50,6 @@ NAS Buffalo est la solution idéale pour la protection des données et peut faci
 À ce stade, vous avez besoin d'un logiciel de sauvegarde NAS Buffalo, de préférence le plus simple. Les Buffalo LinkStation et Buffalo TeraStation sont équipés d'un lecteur NAS pour vous aider à sauvegarder des photos, des vidéos, de la musique, etc. ou à les partager, mais la plupart des appareils ne prennent en charge que le système Linux et certains sont disponibles sur Windows Server 2016\. Que faire si vous utilisez Windows 7/8/10/11 ?
 
 [![buffalo](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/others/image/nas-buffalo.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ne vous inquiétez pas trop. Vous pouvez envisager d'utiliser un logiciel de sauvegarde NAS tiers pour vous aider. [AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/) est un excellent choix en raison de sa grande compatibilité (prise en charge de Windows 7/8/10/11/XP/Vista), de sa gratuité, de sa facilité d'utilisation, de sa flexibilité et de ses fonctionnalités riches.
 
@@ -81,6 +81,10 @@ Avant de commencer à sauvegarder des fichiers avec le logiciel de sauvegarde NA
 
 [![sauvegarde de fichiers](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/sauvegarde-de-fichiers.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Vous pouvez également choisir _Sauvegarde de disque_ et _Sauvegarde de partition_. Si vous souhaitez sauvegarder le système sur le NAS Buffalo, essayez la fonctionnalité de [Sauvegarde système](https://tools.techidaily.com/ubackup/products/).
 
 **Étape 2.** Sélectionnez les fichiers ou les dossiers sur le lecteur NAS Buffalo.
@@ -93,20 +97,20 @@ Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
 [![ajouter périphérique share ou nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/emplacement-reseau.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Étape 3.** Cliquez là où la flèche pointe et sélectionnez le disque externe préparé comme destination.
 
 [![destination](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/choix-chemin-destinations.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Étape 4.** Pour rendre la sauvegarde simple et efficace, définissez une planification de sauvegarde quotidienne, hebdomadaire ou mensuelle dans l'endroit inférieur et cliquez sur **Démarrer** pour sauvegarder le NAS Buffalo. Si vous cochez la case Réveiller l'ordinateur pour exécuter les tâches planifiées, le logiciel s'ouvrira et exécutera automatiquement cette tâche.
@@ -122,11 +126,7 @@ De plus, vous pouvez activer la notification par e-mail une fois la tâche termi
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
@@ -146,7 +146,7 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
@@ -198,22 +198,24 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-the-best-screen-recorder-apowersoft-vs-others/"><u>[New] In 2024, The Best Screen Recorder Apowersoft vs Others</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-classic-film-aesthetics-masterclass-in-video-production/"><u>[Updated] Classic Film Aesthetics Masterclass in Video Production</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-creating-illusionary-settings-with-instagrams-chroma-key/"><u>[Updated] Creating Illusionary Settings with Instagram’s Chroma Key</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-conquering-social-media-with-ig-videos-planning-an-optimal-strategy/"><u>2024 Approved Conquering Social Media with IG Videos Planning an Optimal Strategy</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-teaching-with-video-effective-editing-methods/"><u>2024 Approved Teaching with Video Effective Editing Methods</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/2024-approved-what-if-i-accidentally-refreshed-tiktok/"><u>2024 Approved What If I Accidentally Refreshed TikTok?</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-your-key-to-unlocking-advanced-tracking-features-on-websites/"><u>Cookiebot: Your Key to Unlocking Advanced Tracking Features on Websites</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/discover-abbyy-one-your-key-to-next-generation-innovative-workflow-automation-solutions/"><u>Discover ABBYY One: Your Key to Next-Generation Innovative Workflow Automation Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/effective-strategies-for-boosting-web-page-visibility-and-traffic/"><u>Effective Strategies for Boosting Web Page Visibility and Traffic</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/efficient-health-management-top-5-advantages-of-implementing-automated-referrals/"><u>Efficient Health Management: Top 5 Advantages of Implementing Automated Referrals</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/elevate-web-analytics-effortlessly-discover-tools-beyond-traditional-cookies/"><u>Elevate Web Analytics Effortlessly: Discover Tools Beyond Traditional Cookies!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/elevate-your-accounts-payable-how-scena-achieved-a-staggering-60-reduction-in-invoice-and-credit-note-processing-with-seamless-abbyy-engeneum-automation-and11/"><u>Elevate Your Accounts Payable: How Scena Achieved a Staggering 60% Reduction in Invoice & Credit Note Processing with Seamless ABBYY, Engeneum Automation and Sage Integration - Insider Customer Insights</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhance-your-site-performance-with-the-robust-capabilities-of-cookiebot-technology/"><u>Enhance Your Site Performance with the Robust Capabilities of Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhanced-performance-through-personalization-the-cookiebot-advantage/"><u>Enhanced Performance Through Personalization: The Cookiebot Advantage</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-subconscious-dialogues-in-facebook-messages/"><u>Exploring Subconscious Dialogues in Facebook Messages</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-get-it-right-screencast-tips-from-ezvid-video-maker-pros/"><u>In 2024, Get It Right Screencast Tips From EZvid Video Maker Pros</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unlocking-entertainment-best-of-google-play-pass-with-8-key-selections/"><u>Unlocking Entertainment: Best of Google Play Pass with 8 Key Selections</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-streaming-showdown-twitchs-challenge-to-youtube/"><u>[New] 2024 Approved Streaming Showdown Twitch's Challenge to YouTube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-top-terranomes-uncovering-treasure-in-virtual-landscapes/"><u>[New] 2024 Approved Top Terranomes Uncovering Treasure in Virtual Landscapes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-olyx-zones-the-creme-de-la-snowspeedcross/"><u>[New] In 2024, OlyX-Zones The Crème De La Snowspeedcross</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-tips-for-stellar-video-conclusions/"><u>[Updated] 2024 Approved Tips for Stellar Video Conclusions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-unlocking-obs-potential-incorporating-luts-seamlessly/"><u>[Updated] Unlocking OBS' Potential Incorporating LUTs Seamlessly</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/pcwindows-1110/"><u>「別PCへのWindows 11/10システムイメージ移行：専門家からのガイダンス」</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-6-budget-savvy-4k-large-screen-options/"><u>2024 Approved Top 6 Budget-Savvy 4K Large Screen Options</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/google-drive-4/"><u>効果的にデータを Google Drive に移行させる方法（4つ選びました）：ダブルシンキングテクニック解説</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1728494178418-aomei/"><u>AOMEI バックアップャーの使い方：パーティション・ボリュームの復元手順</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/definitive-guide-recovering-missing-my-documents-section-in-macos/"><u>Definitive Guide: Recovering Missing My Documents Section in macOS</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effiziente-strategien-fur-den-transfer-von-pc-songs-zu-iphones-unter-windows-1011/"><u>Effiziente Strategien Für Den Transfer Von PC-Songs Zu iPhones Unter Windows 10/11</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-90-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Honor 90 Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/ifind-data-rescue-step-by-step-guide-to-fixing-a-damaged-sd-card/"><u>IFind Data Rescue: Step-by-Step Guide to Fixing a Damaged SD Card</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-itel-p55-5g-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Itel P55 5G</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-sony-xperia-5-v-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Sony Xperia 5 V to Another | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/kompatibilitatsprufung-fur-windows-11-ist-ihr-computer-bereit/"><u>Kompatibilitätsprüfung Für Windows 11: Ist Ihr Computer Bereit?</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/la-double-voie-de-synchronisation-expliquee-significations-theoriques-et-utilisations-concretes/"><u>La Double-Voie De Synchronisation Expliquée : Significations Théoriques Et Utilisations Concrètes</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210303110-9781647501563-the-fire-that-never-dies/"><u>The Fire That Never Dies | Free Book</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-3-strategies-for-successful-server-relocation-a-guide/"><u>Top 3 Strategies for Successful Server Relocation - A Guide</u></a></li>
 </ul></div>
 

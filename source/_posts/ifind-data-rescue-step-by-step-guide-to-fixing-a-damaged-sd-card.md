@@ -1,7 +1,7 @@
 ---
 title: "IFind Data Rescue: Step-by-Step Guide to Fixing a Damaged SD Card"
-date: 2025-01-06T22:24:03.564Z
-updated: 2025-01-11T22:48:58.330Z
+date: 2025-01-29T17:14:06.750Z
+updated: 2025-01-31T16:15:18.287Z
 tags:
   - product
 categories:
@@ -43,10 +43,6 @@ _(Your sd card drive) is not accessible_
 
 And there are some other warnings like “_write protected_“, “_Please insert a disk into drive_” or “_cannot recognize (your sd card)_“.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## how to repair damaged sd card without formatting
 
 To fix a corrupted SD card, you can follow the next tips and see what’s works for you.
@@ -63,27 +59,23 @@ First, let’s check if there is something wrong around your sd card which cause
 ![sd card lock](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/01/sd-card-lock.png?resize=287%2C181&ssl=1)
 * Check if you use the windows file system in Mac or opposite. Such as Mac can’t write NTFS and windows even can’t read HFS+ drives.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Check the drivers for your SD card device, and Reinstall the driver to see how it works.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## how to repair corrupted sd card
 
 If there is nothing wrong with the device, to fix the damaged sd card, you can try the next tips.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Give the SD card drive another drive letter
 
 ![change drive letter](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/01/change-drive-letter.jpg?resize=600%2C375&ssl=1)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Sometimes there is a problem for windows system about drive letter assignment. It means when you connect your SD card device to the computer, windows can’t assign the right letter for the new device and cause the device can’t read, and sometimes with a warning message like _Please insert the disk into drive X. To solve the problem, you can assign a new letter to your memory card device with the following steps:_
 
@@ -95,15 +87,15 @@ Sometimes there is a problem for windows system about drive letter assignment. I
 
 Then check how the device works now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Use chkdsk command to fix SD card errors
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/01/cmd.png?resize=600%2C328&ssl=1)
 
 CHKDSK is a Windows built-in command which can be used to fix all the file system errors including sd card device.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Notice:
 
@@ -116,13 +108,13 @@ You need Administrators Permission to run chkdsk to fix your device, which means
 5. In the command prompt, input “_chkdsk \[your memory card drive letter\]: /f_ “, If your sd card drive letter is E: then the final command will be “”_chkdsk E: /f_“
 6. Then wait and see _chkdsk fix your drive errors, it maybe takes a while, and may ask you for some more actions until finished._
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Notice:
 
 Do NOT Interrupt or terminate the command prompt when it’s running.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Use Windows Explorer to repair corrupted SD card
 
@@ -131,7 +123,7 @@ If you are not a fan of the command prompt, you can also use windows explorer. T
 ![Windows Explorer repair sd card](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/01/Windows-Explorer-repair-sd-card.jpg?resize=418%2C538&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 1:** Connect your SD card device to your computer
@@ -145,7 +137,7 @@ If you are not a fan of the command prompt, you can also use windows explorer. T
 **Step 5:** Click Start in the next window and wait Windows scan and fix your SD card.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips:
@@ -153,7 +145,7 @@ If you are not a fan of the command prompt, you can also use windows explorer. T
 There are also any SD card repair tools made by the big manufacturer, Such as SanDisk, Fujifilm, Samsung, Transcend, Lexar, PNY, Sony, Kingston, and Toshiba. These most famous brands usually offer standalone repair, formatting tools targeting their own products. You can check their website and support center to find it out.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Repair Damaged SD Card using SD Card Recovery Software
@@ -163,6 +155,10 @@ OK, if you still can’t fix the problems without format your SD card, the next 
 > Related: [How to Recover Deleted Photos/Pictures from SD Card?](https://tools.techidaily.com/ifind-recovery/products/)
 
 ## More Tips for Keep your Sd card safe and healthy
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Backup
 
@@ -188,6 +184,10 @@ Even you fixed the problem (nice job by the way), you should know there also hav
 [andy woo](https://tools.techidaily.com/ifind-recovery/products/)
 
 Andy is an editor of the iFinD Team. She worked in this big family since her graduation. Her articles mainly focus on data backup and recovery, disk cloning, and file syncing, committed to resolving the data loss issues users may encounter on their PCs. Besides, more related computer articles are shared here.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Show Us some Love:
 
@@ -240,18 +240,19 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2019-01-24T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-mastery-guide-securely-archiving-snapchat-media-on-devices/"><u>[New] In 2024, Mastery Guide Securely Archiving Snapchat Media on Devices</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-leveraging-social-media-giants-to-skyrocket-your-marketing-game-for-2024/"><u>[New] Leveraging Social Media Giants to Skyrocket Your Marketing Game for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-analyzing-youtubes-creator-rewards-regularity/"><u>[Updated] 2024 Approved Analyzing YouTube's Creator Rewards Regularity</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unleashing-your-potential-saving-instagram-stories-like-a-pro/"><u>[Updated] In 2024, Unleashing Your Potential Saving Instagram Stories Like a Pro</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-infinix-zero-30-5g-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Infinix Zero 30 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/how-to-fix-a-dead-computer-screen-expert-advice-by-yl-software-professionals-for-laptops-that-wont-boot-up/"><u>How To Fix a Dead Computer Screen: Expert Advice by YL Software Professionals for Laptops That Won't Boot Up</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-explore-the-world-of-photo-videos-your-pixiz-companion/"><u>In 2024, Explore the World of Photo-Videos Your Pixiz Companion</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-no-cost-top-quality-premiere-pro-designs/"><u>In 2024, No-Cost, Top-Quality Premiere Pro Designs</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/in-2024-quick-steps-to-change-weather-location-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Quick Steps to Change Weather Location on Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mastering-power-management-easily-update-settings-via-the-windows-control-panel-with-tips-from-yl-software/"><u>Mastering Power Management: Easily Update Settings via the Windows Control Panel with Tips From YL Software</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-strategies-for-securely-saving-your-information-expert-advice-from-yl-computing/"><u>Top Strategies for Securely Saving Your Information: Expert Advice From YL Computing</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/yl-computing-captivating-wallpapers-and-backgrounds-inspired-by-bright-eyes/"><u>YL Computing: Captivating Wallpapers & Backgrounds Inspired by Bright Eyes</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/yl-software-tutorial-customizing-regional-settings-in-the-windows-control-panel-for-optimal-user-experience/"><u>YL Software Tutorial: Customizing Regional Settings in the Windows Control Panel for Optimal User Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-inside-out-of-t5-ultimate-sports-and-adventures-recorder-for-2024/"><u>[New] Inside Out of T5 Ultimate Sports and Adventures Recorder for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/130-anycubic-3d-printer-deal-on-prime-day-top-picks-by-tech-reviews-zdnet/"><u>$130 Anycubic 3D Printer Deal on Prime Day: Top Picks by Tech Reviews - ZDNet</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-elevate-your-visual-communication-adding-instagram-video-descriptions/"><u>2024 Approved Elevate Your Visual Communication Adding Instagram Video Descriptions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/discover-abbyy-one-your-key-to-next-generation-innovative-workflow-automation-solutions/"><u>Discover ABBYY One: Your Key to Next-Generation Innovative Workflow Automation Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effective-strategies-for-boosting-web-page-visibility-and-traffic/"><u>Effective Strategies for Boosting Web Page Visibility and Traffic</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/efficient-health-management-top-5-advantages-of-implementing-automated-referrals/"><u>Efficient Health Management: Top 5 Advantages of Implementing Automated Referrals</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/elevate-web-analytics-effortlessly-discover-tools-beyond-traditional-cookies/"><u>Elevate Web Analytics Effortlessly: Discover Tools Beyond Traditional Cookies!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/elevate-your-accounts-payable-how-scena-achieved-a-staggering-60-reduction-in-invoice-and-credit-note-processing-with-seamless-abbyy-engeneum-automation-and11/"><u>Elevate Your Accounts Payable: How Scena Achieved a Staggering 60% Reduction in Invoice & Credit Note Processing with Seamless ABBYY, Engeneum Automation and Sage Integration - Insider Customer Insights</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-your-site-performance-with-the-robust-capabilities-of-cookiebot-technology/"><u>Enhance Your Site Performance with the Robust Capabilities of Cookiebot Technology</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Samsung Galaxy F04? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-stages-of-change/"><u>In 2024, Stages of Change</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-tecno-spark-go-2023-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Tecno Spark Go (2023) ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/obs-101-youtube-live-stream-setup-tutorial-for-2024/"><u>OBS 101 Youtube Live Stream Setup Tutorial for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transforma-sus-imagenes-tiff-a-jpg-facilmente-y-gratis-mediante-el-servicio-en-linea-de-convertidor-de-archivo-movavi/"><u>Transforma Sus Imágenes TIFF a JPG Fácilmente Y Gratis Mediante El Servicio en Línea De Convertidor De Archivo Movavi</u></a></li>
 </ul></div>
 

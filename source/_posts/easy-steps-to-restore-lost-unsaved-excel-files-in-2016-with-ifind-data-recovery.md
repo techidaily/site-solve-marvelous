@@ -1,7 +1,7 @@
 ---
 title: Easy Steps to Restore Lost Unsaved Excel Files in 2016 with IFind Data Recovery
-date: 2025-01-11T02:33:08.559Z
-updated: 2025-01-12T04:51:22.869Z
+date: 2025-02-09T02:28:26.944Z
+updated: 2025-02-12T16:18:47.184Z
 tags:
   - product
 categories:
@@ -16,21 +16,17 @@ thumbnail: https://thmb.techidaily.com/e68430bcb106e10e6ed671e16682f01d022f0799c
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How To Recover Unsaved Excel File
 
 * ![how to recover unsaved excel files](https://www.ifind-recovery.com/wp-content/uploads/2019/03/how-to-recover-unsaved-excel-file.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 We expand our office recovery series to Excel recovery this week, and with the most asked question: how to recover excel file?
 
 Unlike the office word, Excel is all about tables and calculations. You may face more problems when dealing with excel files. As always, we give you some tips for how to get them back and how to Not lose them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## how to recover unsaved excel file 2016/2013/2007?
 
@@ -44,9 +40,17 @@ Autosave is a new function for Office 365 which allows the Microsoft Excel to sa
 
 With this feature, Recover Autosave Excel is easy and self-acting, The Excel will save your working files every few seconds. You can even find some previous versions if you need a restore.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 2: Recover Unsaved excel Documents From Excel Autorecover
 
 ![excel autorecover](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-autorecover-e1553241342364.jpg?resize=680%2C238&ssl=1)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Excel Autorecover is a building-in function of Microsoft office(2003-2016) for saving your file copy at a custom setup period automatically. You can use these copies to recover your unsaved Excel documents when you forgot to save the excel document, your excel crashed, or your Computer suddenly shut down.
 
@@ -78,35 +82,31 @@ If not, you can still go to “Manage Workbook” to open the unsaved files.
 
 ![recover unsaved workbooks](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/recover-unsaved-workbooks.jpg?resize=800%2C299&ssl=1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 3: Recover Unsaved excel Documents From Excel backup files
 
 First, you need to select the “Always create backup” option in File – Save As – Tool – General Options.
 
 ![excel-saveas](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-saveas.jpg?resize=800%2C165&ssl=1)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![excel-backup-options](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-backup-options.jpg?resize=800%2C267&ssl=1)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-backup-options2.jpg?resize=800%2C194&ssl=1)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Then, the Excel will store a \*.xlk backup file for you. So you have a chance to recover the unsaved files by using these backup files.
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2019/03/excel-backup-xlk.jpg?resize=800%2C131&ssl=1)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 4: Recover Unsaved excel Documents From windows previous versions
 
@@ -117,10 +117,6 @@ Then, the Excel will store a \*.xlk backup file for you. So you have a chance to
 If you get no luck with the tips above, or all or part of your computer data was damaged, you can still try our free ifind data recovery software to search and recover all excel files like Xls/Xlsx/Xlk.
 
 ![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2024/03/R-C.png?resize=100%2C100&ssl=1)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [andy woo](https://tools.techidaily.com/ifind-recovery/products/)
 
@@ -137,6 +133,10 @@ Andy is an editor of the iFinD Team. She worked in this big family since her gra
 * [Click to share on Tumblr (Opens in new window)](https://www.ifind-recovery.com/how-to/recover-excel-file/?share=tumblr&nb=1 "Click to share on Tumblr")
 
 [![](https://i0.wp.com/www.ifind-recovery.com/wp-content/uploads/2018/10/How-To-Recover-Deleted-Photos-Pictures-From-SD-Card-1.jpg?fit=640%2C426&ssl=1&resize=350%2C200)](https://tools.techidaily.com/ifind-recovery/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### [How to Recover Deleted Photos from a Formatted/Corrupted SD Card for Free?](https://tools.techidaily.com/ifind-recovery/products/)
 
@@ -177,20 +177,18 @@ By [andy woo](https://tools.techidaily.com/ifind-recovery/products/)|2019-03-29T
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-boosted-imagery-in-canva-top-10-tricks-revealed-for-2024/"><u>[New] Boosted Imagery in Canva - Top 10 Tricks Revealed for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-top-youtube-name-makers-plus-creative-idea-sparking-techniques/"><u>[New] Top YouTube Name Makers + Creative Idea Sparking Techniques</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-crafting-captivating-campaigns-elevating-roi-in-fbs-animation-space/"><u>[Updated] Crafting Captivating Campaigns Elevating ROI in FB's Animation Space</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-mastering-zoom-discussion-essential-tactics-for-virtual-conversations/"><u>[Updated] Mastering Zoom Discussion Essential Tactics for Virtual Conversations</u></a></li>
-<li><a href="https://win-best.techidaily.com/behebung-des-startlaufens-im-loop-funf-schritte-fur-einen-aktualisierten-windows-server-2016/"><u>Behebung Des Startlaufens Im Loop: Fünf Schritte Für Einen Aktualisierten Windows Server 2016</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-sites-analytics-and-personalization/"><u>Cookiebot-Enabled: Enhancing Your Site's Analytics and Personalization</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-optimizing-your-site-with-advanced-tracking-technology/"><u>Cookiebot: Optimizing Your Site with Advanced Tracking Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-the-secret-ingredient-for-optimized-user-experience/"><u>Cookiebot: The Secret Ingredient for Optimized User Experience</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/creating-user-friendly-navigation-the-power-of-efficient-page-management/"><u>Creating User-Friendly Navigation: The Power of Efficient Page Management</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/drive-more-leads-using-the-efficient-cookiebot-analytics-system/"><u>Drive More Leads Using the Efficient Cookiebot Analytics System</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/driven-with-advanced-cookieless-tracking-technology/"><u>Driven with Advanced Cookieless Tracking Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/elevate-online-analytics-discover-the-benefits-of-cookiebot-technology-for-seo-success/"><u>Elevate Online Analytics: Discover the Benefits of Cookiebot Technology for SEO Success</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/gratis-png-naar-gif-converteren-onafhankelijk-and-eenvoudig-met-movavi/"><u>Gratis PNG Naar GIF Converteren - Onafhankelijk & Eenvoudig Met Movavi</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-from-shopping-spree-to-stardom-editing-your-haul-video/"><u>In 2024, From Shopping Spree to Stardom Editing Your Haul Video</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-xiaomi-redmi-k70-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Xiaomi Redmi K70 Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-ultimate-guide-to-free-youtube-intros-and-templates-for-2024/"><u>[New] The Ultimate Guide to Free YouTube Intros & Templates for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagrams-latest-trends-in-video-loop-production/"><u>[Updated] In 2024, Instagram's Latest Trends in Video Loop Production</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/1724312994221-abbyy/"><u>「ABBYYによる国際調査:ドキュメント内容情報取得技術の最新研究結果」</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/bitrecorder-analysis-with-other-solutions/"><u>BitRecorder Analysis with Other Solutions</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/exploringexcellentcameraspost-mycam-for-2024/"><u>ExploringExcellentCamerasPost-MyCam for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionize-your-data-collection-state-of-the-art-tools-powered-by-cookiebot/"><u>Revolutionize Your Data Collection: State-of-the-Art Tools Powered by Cookiebot</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/revolutionizing-mobile-tech-music-streaming-and-e-signatures-with-smartwatches-insights-from-the-abbyy-blog/"><u>Revolutionizing Mobile Tech: Music Streaming & E-Signatures with Smartwatches – Insights From the ABBYY Blog</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-nubia-red-magic-8s-proplus-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Nubia Red Magic 8S Pro+ Device</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-data-from-c67-5g-by-fonelab-android-recover-data/"><u>The way to get back lost data from C67 5G</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-5-benefits-of-embracing-process-intelligence-in-your-business/"><u>Top 5 Benefits of Embracing Process Intelligence in Your Business</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/warum-unternehmen-content-kenntnis-erwerben-mussen-um-die-entwicklung-der-intelligenten-prozessautomation-voranzutreiben-eine-abbyy-langzeitstudie-versteht-17/"><u>Warum Unternehmen Content-Kenntnis Erwerben Müssen, Um Die Entwicklung Der Intelligenten Prozessautomation Voranzutreiben – Eine ABBYY-Langzeitstudie Versteht Es</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/what-is-process-mining-and-why-use-it-a-comprehensive-guide/"><u>What Is Process Mining and Why Use It: A Comprehensive Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/zero-net-windows-update-a-self-service-manual/"><u>Zero-Net Windows Update: A Self-Service Manual</u></a></li>
 </ul></div>
 

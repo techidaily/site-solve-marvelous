@@ -1,7 +1,7 @@
 ---
 title: "Come Creare Un Backup Automatico Dei Tuoi File Con La Utilità Di Pianificazione: Guida Passo-Passo"
-date: 2025-02-08T10:30:55.912Z
-updated: 2025-02-12T16:54:49.616Z
+date: 2025-02-28T20:42:09.258Z
+updated: 2025-03-03T21:44:21.927Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/f33adb8a41f790bc858c47b5fb66f5998fe40f1007e9c52f968a63abc439ec92.jpg
@@ -34,10 +34,6 @@ Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-a
 2. [Avantages du logiciel de sauvegarde NAS Buffalo - AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/)
 3. [Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers](https://tools.techidaily.com/ubackup/products/)
 4. [Dernières réflexions sur l'utilitaire de sauvegarde Buffalo](https://tools.techidaily.com/ubackup/products/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Logiciel de sauvegarde NAS Buffalo pour système Windows
 
@@ -77,10 +73,6 @@ Avant de commencer à sauvegarder des fichiers avec le logiciel de sauvegarde NA
 
 [![sauvegarde de fichiers](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/sauvegarde-de-fichiers.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Vous pouvez également choisir _Sauvegarde de disque_ et _Sauvegarde de partition_. Si vous souhaitez sauvegarder le système sur le NAS Buffalo, essayez la fonctionnalité de [Sauvegarde système](https://tools.techidaily.com/ubackup/products/).
 
 **Étape 2.** Sélectionnez les fichiers ou les dossiers sur le lecteur NAS Buffalo.
@@ -93,17 +85,9 @@ Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
 [![ajouter périphérique share ou nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/emplacement-reseau.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Étape 3.** Cliquez là où la flèche pointe et sélectionnez le disque externe préparé comme destination.
 
@@ -120,10 +104,6 @@ Et la sauvegarde incrémentielle nécessite une récupération plus complexe tan
 De plus, vous pouvez activer la notification par e-mail une fois la tâche terminée. Commenter, fractionner, compresser l'image de sauvegarde ou sélectionner un mode de sauvegarde, etc.
 
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
 
@@ -144,10 +124,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
 
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Autres articles connexes
 
@@ -179,10 +155,6 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -198,19 +170,24 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-enhance-audio-quality-get-high-quality-fx-for-2024/"><u>[New] Enhance Audio Quality, Get High-Quality FX for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-secret-to-professional-video-calls-on-zoom-for-2024/"><u>[New] The Secret to Professional Video Calls on Zoom for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-mastering-the-darkened-skies-with-iphones/"><u>[Updated] 2024 Approved Mastering the Darkened Skies with iPhones</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-playful-pioneers-the-kids-game-bazaar/"><u>[Updated] Playful Pioneers The Kids' Game Bazaar</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-a-step-by-step-guide-to-engaging-video-blog-plots/"><u>2024 Approved A Step-by-Step Guide to Engaging Video Blog Plots</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-top-5-sites-to-download-text-effects/"><u>2024 Approved Top 5 Sites to Download Text Effects</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-the-full-potential-top-9-methods-in-vr-cinematography/"><u>2024 Approved Unlocking the Full Potential Top 9 Methods in VR Cinematography</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/cutting-edge-techniques-for-captivating-readership-on-subreddits-for-2024/"><u>Cutting-Edge Techniques for Captivating Readership on Subreddits for 2024</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/diagnosing-scanner-issues-top-factors-affecting-performance-and-solutions-by-yl-software-experts/"><u>Diagnosing Scanner Issues: Top Factors Affecting Performance & Solutions by YL Software Experts</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/easily-locate-and-fix-your-devices-missing-drivers-with-yl-software-solutions/"><u>Easily Locate and Fix Your Device's Missing Drivers with YL Software Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/handling-bad-ram-memory-essential-tips-by-yl-softwares-technical-team/"><u>Handling Bad RAM Memory: Essential Tips by YL Software's Technical Team</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/how-to-fix-a-printer-not-detecting-a-freshly-installed-ink-cartridge-tips-from-yl-computing/"><u>How to Fix a Printer Not Detecting a Freshly Installed Ink Cartridge - Tips From YL Computing</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/the-essential-considerations-for-aspiring-cryptocurrency-investors-advice-by-yl-software-professionals/"><u>The Essential Considerations for Aspiring Cryptocurrency Investors – Advice by YL Software Professionals</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/yl-computing-ceo-confirms-investigation-into-crypto-wallets-security-breach-by-trezor-against-rising-phishing-schemes/"><u>YL Computing CEO Confirms Investigation Into Crypto Wallet's Security Breach by Trezor Against Rising Phishing Schemes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/58030512-updated-high-quality-youtube-images-download-without-any-cost/"><u>[Updated] High-Quality YouTube Images Download Without Any Cost!</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-constructing-a-high-definition-pc-for-ultra-hd-video-production/"><u>[Updated] In 2024, Constructing a High-Definition PC for Ultra-HD Video Production</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-your-digital-journey-to-youtube-and-facebook-video-gems/"><u>[Updated] In 2024, Your Digital Journey to YouTube and Facebook Video Gems</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-complete-guide-to-affordable-online-passport-photo-services/"><u>2024 Approved The Complete Guide to Affordable Online Passport Photo Services</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-convertir-nsv-a-avi-online-de-forma-gratuita-con-herramientas-de-movavi/"><u>Cómo Convertir NSV a AVI Online De Forma Gratuita Con Herramientas De Movavi</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/comprehensive-analysis-of-the-id-cooling-fx360-pro-top-performance-for-under-70/"><u>Comprehensive Analysis of the ID-Cooling FX360 Pro - Top Performance for Under $70!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converter-de-imagens-gratuito-transformando-arquivos-tiff-em-bmp-com-o-movavi/"><u>Converter De Imagens Gratuito: Transformando Arquivos TIFF Em BMP Com O Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converti-file-ts-in-mp4-gratuitamente-online-con-movavi/"><u>Converti File TS in MP4 Gratuitamente Online Con Movavi</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/elevating-your-projects-with-chatgpt-strategies-for-superior-creativity-and-engagement/"><u>Elevating Your Projects with ChatGPT: Strategies for Superior Creativity and Engagement</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/empowering-a-new-wave-of-tech-talent-thousands-benefit-from-apples-innovative-ai-learning-program-for-alumni-and-students-featured-on-zdnet/"><u>Empowering a New Wave of Tech Talent: Thousands Benefit From Apple's Innovative AI Learning Program for Alumni and Students | Featured on ZDNet</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-online-conversion-change-ts-files-into-flv-format-with-movavi-tools/"><u>Free Online Conversion: Change .TS Files Into FLV Format with Movavi Tools</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/how-to-change-your-voice-in-a-song-lyric-video-tips-for-perfect-audio-effects-with-voice-modulation-software/"><u>How To Change Your Voice In A Song Lyric Video: Tips for Perfect Audio Effects with Voice Modulation Software</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/how-to-fix-and-stretch-videos-to-perfectly-fit-your-screen-the-ultimate-4-techniques/"><u>How to Fix and Stretch Videos to Perfectly Fit Your Screen: The Ultimate 4 Techniques</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/rapida-conversione-da-file-raw-a-jpeg-il-migliore-trasformatore-ottimizzato-per-seo/"><u>Rapida Conversione Da FILE RAW a JPEG: Il Migliore Trasformatore Ottimizzato per SEO</u></a></li>
+<li><a href="https://win-answers.techidaily.com/seamless-adventures-await-eliminating-maplestory-crashes-in-your-latest-windows-11-update/"><u>Seamless Adventures Await: Eliminating MapleStory Crashes in Your Latest Windows 11 Update</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-benefits-of-google-play-pass-a-fantastic-deal-with-room-for-enhancement/"><u>The Benefits of Google Play Pass: A Fantastic Deal with Room for Enhancement</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-economics-of-youtube-marketing-strategies-for-2024/"><u>The Economics of YouTube Marketing Strategies for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/trasforma-pbm-in-formato-bmp-online-gratuitamente-il-guida-completa-di-movavi/"><u>Trasforma PBM in Formato BMP Online Gratuitamente: Il Guida Completa Di Movavi!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/vod-in-ogg-vorbis-format-vob-to-high-quality-lossless-audio-flac-free-conversion-tool-by-movavi/"><u>VOD in Ogg Vorbis Format (VOB) to High-Quality Lossless Audio (FLAC): Free Conversion Tool by Movavi</u></a></li>
 </ul></div>
 

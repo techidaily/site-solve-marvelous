@@ -1,7 +1,7 @@
 ---
 title: "Windows 11 Data Recovery: Easy Ways to Retrieve Accidentally Removed Files"
-date: 2025-02-06T05:09:59.941Z
-updated: 2025-02-12T17:00:52.309Z
+date: 2025-02-25T00:08:03.019Z
+updated: 2025-03-03T21:38:31.049Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/57883fb87f9cced582d221233b7cbca11e45336f76a05c7d014075b6188d6cb1.jpg
@@ -38,10 +38,6 @@ Share this: [![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-art
    4. [Method 4\. Recover from ransomware through system restore](https://tools.techidaily.com/ubackup/products/)
 3. [Conclusion](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Is it possible to recover data from ransomware?
 
 I'm looking at a computer after it's been hit by some ransomware. The files have been encrypted. I am trying some guides in removal and recovery, but they don't seem to be of much help. If you have suggestions on how to recover files from ransomware, I would appreciate it.
@@ -55,10 +51,6 @@ If you are looking for methods on how to recover ransomware-infected files, you 
 ## How to recover files from ransomware attack in 4 ways
 
 Many solutions are available for you to solve how to recover data from ransomware attacks. We have selected some easy-to-implement methods for you. Read below for detailed information. 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 1\. Recover files from ransomware with data recovery software
 
@@ -80,19 +72,11 @@ Run MyRecover, hover the mouse over the drive and click **Scan** to scan.. If yo
 
 [![Select Partition To Scan](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows-recovery/select-partition-to-scan.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2\. Locate and preview your lost/deleted files**
 
 The recovery tool will automatically start looking for all the deleted and lost files.
 
 [![Scan Lost Data](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows-recovery/scan-lost-data.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3\. Recover selected files**
 
@@ -110,17 +94,9 @@ Step 1\. Open **Control Panel** and click on **System and Security**. Then, hit 
 
 [![Windows Backup And Restore](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/windows-backup-and-restore.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 2\. Tap on the **Restore my files** position in the Restore tab.
 
 ![Windows Backup Restore My Files](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 3\. Click **Browse for files** to locate your lost data and choose to save your recovered files in your original location or another destination as needed.
 
@@ -152,10 +128,6 @@ Step 1\. Press **Win + S** to open the Windows search box, type **Create a resto
 
 [![Create A Restore Point Open](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/create-a-restore-point-open.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 2\. Click on **System Restore** \> **Next**.
 
 [![System Drive On System Restore Next](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/system-drive-on-system-restore-next.png)
@@ -163,10 +135,6 @@ Step 2\. Click on **System Restore** \> **Next**.
 Step 3\. Choose a restore point from the list and tap on **Scan for affected programs** to check the items that will be deleted after the restore. Then, click **Close**.
 
 [![Scan For Affected Programs Close](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/scan-for-affected-programs-close.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 4\. Press **Next**. Confirm the selected restore point and click **Finish**. Then, hit **Yes** to begin the [recovery of deleted files](https://tools.techidaily.com/ubackup/products/).
 
@@ -186,10 +154,6 @@ To prevent ransomware from attacking your computer and files again, we list seve
 * Don't click on emails and connections sent by strangers.
 * Report ransomware attacks to let authorities identify the attacker.
 * Regularly back up important data in case of emergencies.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -235,10 +199,6 @@ Recover deleted & lost data from any disasters in Windows.
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Clean & Secure
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://www.ubackup.com/resource/images/ub-mr-theme/ub-article-mr-img-dibu.png)
 
 <ins class="adsbygoogle"
@@ -256,14 +216,24 @@ Recover deleted & lost data from any disasters in Windows.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-ultimate-guide-to-free-stunning-photographs/"><u>[New] 2024 Approved The Ultimate Guide to Free, Stunning Photographs</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-inshot-analysis-video-edition-showdown-for-2024/"><u>[Updated] InShot Analysis Video Edition Showdown for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-cardboard-contrast-google-to-samsung-gear-headset/"><u>2024 Approved Cardboard Contrast Google to Samsung Gear Headset</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/3-tipps-zum-ubertragen-und-einrichten-einer-bootfahigen-windows-11-system-auf-usb-effizienter-workaround/"><u>3 Tipps Zum Übertragen Und Einrichten Einer Bootfähigen Windows 11 System Auf USB – Effizienter Workaround</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/facing-graphics-card-issues-a-comprehensive-guide-by-yl-software-for-quick-fixes/"><u>Facing Graphics Card Issues? A Comprehensive Guide by YL Software for Quick Fixes</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-errors-essential-fixes-for-playing-overwatch-2-launch-issues/"><u>Overcoming Errors: Essential FIXES for Playing Overwatch 2 Launch Issues</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/rencana-praktis-untuk-kopi-file-ke-ssd-dari-hdd-proses-terperinci-dalam-3-langkah-yang-efektif/"><u>Rencana Praktis Untuk Kopi File Ke SSD Dari HDD: Proses Terperinci Dalam 3 Langkah Yang Efektif!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/sketchup-mastery-expert-techniques-for-retrieving-and-repairing-skp-files/"><u>SketchUp Mastery: Expert Techniques for Retrieving and Repairing SKP Files</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ultimate-list-of-the-7-most-effective-apps-for-iphone-to-windows-10-image-migration/"><u>Ultimate List of the 7 Most Effective Apps for iPhone-to-Windows 10 Image Migration</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-bringing-history-alive-old-images-in-new-video-formats/"><u>[Updated] 2024 Approved Bringing History Alive Old Images in New Video Formats</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-xsplit-vault-expert-gaming-split-analysis/"><u>[Updated] 2024 Approved XSplit Vault Expert Gaming Split Analysis</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-xsplit-digest-detailed-video-game-reviews/"><u>[Updated] In 2024, XSplit Digest Detailed Video Game Reviews</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-advice-on-how-to-remove-backgrounds/"><u>2024 Approved Expert Advice on How to Remove Backgrounds</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-comprehensive-tutorial-on-powerpoint-voice-to-text-conversion-for-2024/"><u>A Comprehensive Tutorial on PowerPoint Voice to Text Conversion for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Samsung Galaxy A25 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-conversions-with-cookiebot-integration-the-key-to-seo-success/"><u>Enhance Conversions with Cookiebot Integration - The Key to SEO Success!</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhance-user-engagement-powerfully-using-the-advanced-features-of-cookiebot-technology/"><u>Enhance User Engagement Powerfully Using the Advanced Features of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-conversion-tracking-with-our-cutting-edge-cookiebot-system/"><u>Enhanced Conversion Tracking with Our Cutting-Edge Cookiebot System</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-marketing-strategies-with-automated-audience-engagement-the-power-of-cookiebot/"><u>Enhanced Marketing Strategies with Automated Audience Engagement: The Power of Cookiebot</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhanced-user-experience-with-dynamic-content-via-ai-driven-analytics/"><u>Enhanced User Experience with Dynamic Content via AI-Driven Analytics</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/enhancing-digital-footprints-how-our-services-are-powered-by-cookiebot-technology/"><u>Enhancing Digital Footprints: How Our Services Are Powered by Cookiebot Technology</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/essential-non-windows-tools-that-outperform-snipping-tool/"><u>Essential Non-Windows Tools That Outperform Snipping Tool</u></a></li>
+<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-nokia-c22-frp-by-drfone-android/"><u>Full Guide to Bypass Nokia C22 FRP</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/harness-the-power-of-cookiebot-for-dynamic-web-analytics-and-conversion-optimization/"><u>Harness the Power of Cookiebot for Dynamic Web Analytics and Conversion Optimization</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/hochwertiger-treibstoff-fur-den-motor-des-unternehmenserfolgs/"><u>Hochwertiger Treibstoff Für Den Motor Des Unternehmenserfolgs</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-honor-90-pro-easily-by-drfone-android/"><u>In 2024, How To Unlock a Honor 90 Pro Easily?</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leverage-cookiebot-technology-for-advanced-website-personalization-and-analytics/"><u>Leverage Cookiebot Technology for Advanced Website Personalization & Analytics</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/winx-mediatrans-the-ultimate-photo-music-video-transfer-solution-for-iphone-and-ipad-devices/"><u>WinX MediaTrans™: The Ultimate Photo Music Video Transfer Solution for iPhone & iPad Devices</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Seamless iPhone-to-iPhone App Transfer Using AirDrop
-date: 2025-02-07T07:57:40.472Z
-updated: 2025-02-13T06:43:30.909Z
+date: 2025-02-28T20:19:58.499Z
+updated: 2025-03-04T06:19:32.416Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/a8037b9cb425e19a9ec57f5feba58cc91bfb4e98ab568e20793fc881abc0b40e.jpg
@@ -28,20 +28,12 @@ Par[Aurore](https://tools.techidaily.com/ubackup/products/)Publié le 26/06/2024
 
 Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Table des matières** 
 
 1. [Logiciel de sauvegarde NAS Buffalo pour système Windows](https://tools.techidaily.com/ubackup/products/)
 2. [Avantages du logiciel de sauvegarde NAS Buffalo - AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/)
 3. [Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers](https://tools.techidaily.com/ubackup/products/)
 4. [Dernières réflexions sur l'utilitaire de sauvegarde Buffalo](https://tools.techidaily.com/ubackup/products/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Logiciel de sauvegarde NAS Buffalo pour système Windows
 
@@ -89,10 +81,6 @@ Tout d'abord, cliquez sur **Ajouter un dossier** ou **Ajouter un fichier** sur l
 
 [![ajouter un fichier ou un dossier](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ajouter-dossier-fichier.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
@@ -100,10 +88,6 @@ Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
 [![ajouter périphérique share ou nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/emplacement-reseau.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Étape 3.** Cliquez là où la flèche pointe et sélectionnez le disque externe préparé comme destination.
 
@@ -120,14 +104,6 @@ Et la sauvegarde incrémentielle nécessite une récupération plus complexe tan
 De plus, vous pouvez activer la notification par e-mail une fois la tâche terminée. Commenter, fractionner, compresser l'image de sauvegarde ou sélectionner un mode de sauvegarde, etc.
 
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
 
@@ -148,10 +124,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
 
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Autres articles connexes
 
@@ -198,20 +170,21 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-next-gen-gaming-horizon-upcoming-bests-in-playstation-vr/"><u>[New] In 2024, Next-Gen Gaming Horizon Upcoming Bests in PlayStation VR</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-visiovista-android-and-ios-instagram-tile-artisan-for-2024/"><u>[New] VisioVista Android & iOS Instagram Tile Artisan for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/build-a-custom-vr-device-diy-google-cardboard-guide/"><u>Build a Custom VR Device DIY Google Cardboard Guide</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cost-effective-strategies-understanding-data-recovery-expenses-and-prevention-with-ifind-solutions/"><u>Cost-Effective Strategies: Understanding Data Recovery Expenses & Prevention with iFinD Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/error-404-the-pages-youre-searching-for-cant-be-found/"><u>Error 404: The Pages You're Searching For Can't Be Found</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ifinds-top-picks-ultimate-list-of-5-leading-programs-to-recover-unrecognized-allocated-and-deleted-sectors-in-windowsmacos-systems/"><u>IFind's Top Picks: Ultimate List of 5 Leading Programs to Recover Unrecognized, Allocated and Deleted Sectors in Windows/macOS Systems</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-integrating-multimedia-for-iphone-users/"><u>In 2024, Integrating Multimedia for iPhone Users</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-satiresnapshots-jokeframe-world/"><u>In 2024, SatireSnapshots JokeFrame World</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-samsung-galaxy-a54-5g-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Samsung Galaxy A54 5G Phone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/locating-and-accessing-your-iphone-backup-files-on-macos-and-windows-systems/"><u>Locating and Accessing Your iPhone Backup Files on macOS & Windows Systems</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/recover-lost-documents-on-your-pcs-c-and-d-drives-for-free-with-ifind-no-need-for-previous-back-ups/"><u>Recover Lost Documents on Your PC's C and D Drives for Free with iFinD - No Need for Previous Back-Ups!</u></a></li>
-<li><a href="https://win-unique.techidaily.com/setting-up-autoplay-features-a-step-by-step-guide-using-the-control-panel-yl-computing/"><u>Setting Up Autoplay Features: A Step-by-Step Guide Using the Control Panel - YL Computing</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/ultimate-troubleshooting-guide-resolving-auto-sync-issues-in-outlook-for-mac/"><u>Ultimate Troubleshooting Guide: Resolving Auto-Sync Issues in Outlook for Mac</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/understanding-and-overcoming-limitations-of-formatting-drives-as-fat32-on-windows-11-systems/"><u>Understanding and Overcoming Limitations of Formatting Drives as FAT32 on Windows 11 Systems</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/understanding-srt-files-a-comprehensive-guide-on-handling-subtitle-formats/"><u>Understanding SRT Files - A Comprehensive Guide on Handling Subtitle Formats</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-ultimate-playbook-for-procuring-partners-on-youtube/"><u>[New] 2024 Approved The Ultimate Playbook for Procuring Partners on YouTube</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-xiaomi-redmi-note-12-proplus-5g-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Xiaomi Redmi Note 12 Pro+ 5G</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/avoid-game-crash-in-cult-of-the-lamb-expert-tips-for-a-smooth-pc-gaming-experience/"><u>Avoid Game Crash in 'Cult of the Lamb': Expert Tips for a Smooth PC Gaming Experience</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/creating-a-strong-secure-password-a-comprehensive-guide-by-yl-computing/"><u>Creating a Strong, Secure Password: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/cutting-edge-array-of-inquisitive-prompts-for-podcast-appeal-for-2024/"><u>Cutting-Edge Array of Inquisitive Prompts for Podcast Appeal for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/deciphering-high-bitcoin-network-charges-insights-from-yl-softwares-in-depth-analysis/"><u>Deciphering High Bitcoin Network Charges: Insights From YL Software's In-Depth Analysis</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/decoding-computer-stalling-expert-analysis-by-yl-software-team/"><u>Decoding Computer Stalling: Expert Analysis by YL Software Team</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/fixing-corrupted-windows-registry-and-system-files-expert-tips-techguide-by-yl-software/"><u>Fixing Corrupted Windows Registry & System Files: Expert Tips - TechGuide by YL Software</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-vivo-y78plus-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Vivo Y78+</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lava-blaze-curve-5g-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Lava Blaze Curve 5G Phone with Broken Screen</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-hashtag-mastery-enhancing-freefire-gameplay-videos/"><u>In 2024, Hashtag Mastery Enhancing FreeFire Gameplay Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-inaugural-directors-shorts/"><u>In 2024, Inaugural Director's Shorts</u></a></li>
+<li><a href="https://techtrends.techidaily.com/revive-your-logitech-k780-effective-fixes-for-a-dysfunctional-keyboard/"><u>Revive Your Logitech K780: Effective Fixes for a Dysfunctional Keyboard</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/solving-memory-issues-expert-tips-from-yl-computings-latest-tech-solutions/"><u>Solving Memory Issues: Expert Tips From YL Computing's Latest Tech Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/steps-to-manually-control-software-update-settings-tips-from-yl-software-experts/"><u>Steps to Manually Control Software Update Settings - Tips From YL Software Experts</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/yl-software-presents-stunning-billie-eilish-themed-computer-wallpapers/"><u>YL Software Presents: Stunning Billie Eilish Themed Computer Wallpapers</u></a></li>
 </ul></div>
 

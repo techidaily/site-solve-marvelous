@@ -1,7 +1,7 @@
 ---
 title: "Guide Complet: Comment Protéger Vos Données Avec Le Disque Externe WD My Passport Sur Windows (10/8/7)"
-date: 2025-02-07T02:27:24.989Z
-updated: 2025-02-13T02:36:40.756Z
+date: 2025-02-28T03:57:02.082Z
+updated: 2025-03-04T04:56:03.900Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/1c29d979a20696d19bd8c5c3e9d947157133fd882c32bc816c08287c2bc4feb3.jpg
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/1c29d979a20696d19bd8c5c3e9d947157133fd882
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Use Norton Ghost in Windows 11, 10, 8, 7
 
@@ -101,10 +97,6 @@ On **Recover My Computer** screen, find and choose the right system restore poin
 
 [![Recover My Computer](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/others/norton-ghost/recover-now.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 👉 **Note:** If your computer cannot run Windows normally, you can use the Symantec Recovery Disk CD to help you boot your computer. Depending on which version of the product you have purchased, Symantec Recovery Disk is either included on your product CD or as a separate CD. If you don't have a floppy drive, you can create a [Norton Ghost Bootable USB](https://tools.techidaily.com/ubackup/products/) instead.
 
 ### Clone Disk with Norton Ghost
@@ -114,10 +106,6 @@ On **Recover My Computer** screen, find and choose the right system restore poin
 2\. On the **Tools** page, click **Copy My Hard Drive** and follow the steps in the wizard to copy the drive.
 
 👉 **Note:** The drivers that are used to run the hardware on one computer will likely not match the drivers on a second computer. So you’d better not use the Copy Drive feature to set up a hard drive that will be used in another computer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Best Free Alternative to Norton Ghost
 
@@ -154,17 +142,9 @@ Select the corresponding backup methods if you want to backup system, partition 
 
 [![Add Disk](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/std/backup/disk-backup/add-disk.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3\. Choose a destination path to save the disk image. You can save the backup image on a local hard drive, external hard drive, USB flash drive, or network drive, etc. Click **Start Backup** when you are ready.
 
 [![Select Backup Destination](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/std/backup/disk-backup/select-backup-destination.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 👉 **Notes:**
 
@@ -177,20 +157,12 @@ If you have created a backup with AOMEI Backupper, you can easily perform a rest
 
 [![Restore](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/std/restore/disk-restore/home-restore.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 👉 **Notes:** 
 
 * With AOMEI **[Universal Restore](https://tools.techidaily.com/ubackup/products/)** feature, you can restore a backup image, system image in particular, created on one computer to another one that has dissimilar hardware installed. It can also help you reinstall the system if you are planning to change the hardware such as motherboard, CPU, etc. Available in higher editions like [AOMEI Backupper Professional](https://tools.techidaily.com/ubackup/products/).
 * If you don't create a file backup but you want to perform [hard disk image file restore](https://tools.techidaily.com/ubackup/products/) or from other backup types, try the **Explore image** feature. It requires a professional version as well.
 
 [![Disk Image Explore Home](https://www.ubackup.com/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/adv/tools/explore-image/home-explore-image-disk.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Clone Hard Drive
 
@@ -237,17 +209,9 @@ Was the provided information useful? Your vote is important to us!
 
 ![Lena](https://www.ubackup.com/assets/images/author/Lena.png) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Lena](https://tools.techidaily.com/ubackup/products/) · Editor
 
 Lena is an editor of FoneTool, she covers backup & restore, and phone data management and so on. She enjoys helping people find solutions to their problems. She loves traveling, eating, reading and so on. She takes most of time with her family when she is not working.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Related Articles
 
@@ -279,10 +243,6 @@ Safeguard any data of your computer with backup, sync and clone.
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -298,22 +258,20 @@ Safeguard any data of your computer with backup, sync and clone.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-unleash-creativity-10-must-know-tips-for-cover-art/"><u>[New] In 2024, Unleash Creativity 10 Must-Know Tips for Cover Art</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-merging-and-editing-footage-on-iphone-for-2024/"><u>[New] Merging and Editing Footage on iPhone for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-timeless-triumphs-screen-captures-of-samsungs/"><u>[New] Timeless Triumphs Screen Captures of Samsungs</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-enhancing-meeting-clarity-with-ms-teams-focus/"><u>[Updated] 2024 Approved Enhancing Meeting Clarity with MS Teams Focus</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/gsmmp4movavi/"><u>在线无需付钱：自动转换GSM视频为MP4，使用Movavi解决方案</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/cookiebot-driven-solutions-boost-your-sites-performance/"><u>Cookiebot-Driven Solutions: Boost Your Site's Performance</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-hp-laserjet-p3015-driver-latest-version-for-windows-pcs/"><u>Download HP LaserJet P3015 Driver Latest Version for Windows PCs</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/downloadable-mkaaac-video-transcoder-tool-by-movavi-no-cost-use-anywhere/"><u>Downloadable MKA/AAC Video Transcoder Tool by Movavi - No Cost, Use Anywhere!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/free-online-swf-to-mkv-converter-movavi-video-editor/"><u>Free Online Swf to Mkv Converter - Movavi Video Editor</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/how-to-revoke-personal-identification-number-protection-on-your-windows-11-pc/"><u>How To Revoke Personal Identification Number Protection On Your Windows 11 PC</u></a></li>
-<li><a href="https://driver-download.techidaily.com/install-the-newest-hd-graphics-drivers-from-amd-on-windows-7-systems/"><u>Install the Newest HD Graphics Drivers From AMD on Windows #7 Systems</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1726225557529-mp3-movavi/"><u>Mp3ファイルビットレート変更手順 - Movaviで簡単に実行!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/step-by-step-guide-recording-your-screen-with-ease-using-movavi/"><u>Step-by-Step Guide: Recording Your Screen with Ease Using Movavi</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-finest-free-photo-editors-for-the-iphone-on-a-budget/"><u>The Finest FREE Photo Editors for the iPhone on a Budget</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/top-12-outils-danimation-open-source-en-2024-solutions-de-modelisation-et-animation-3d/"><u>Top 12 Outils D'Animation Open Source en 2024 - Solutions De Modélisation Et Animation 3D</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transform-your-3gp-videos-into-webm-with-ease-using-movavis-cost-free-tool/"><u>Transform Your 3GP Videos Into WebM with Ease Using Movavi’s Cost-Free Tool</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transformation-facile-et-gratuite-de-fichiers-mka-en-wav-en-ligne-decouvrez-la-solution-de-movavi/"><u>Transformation Facile Et Gratuite De Fichiers MKA en WAV en Ligne - Découvrez La Solution De Movavi</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-perfecting-iphone-photo-albums-seamless-integration-with-icloud-for-2024/"><u>[Updated] Perfecting iPhone Photo Albums Seamless Integration with iCloud for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-10-most-admirable-photo-frame-apps/"><u>[Updated] The 10 Most Admirable Photo Frame Apps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-clicker-article-titles-maker-for-2024/"><u>[Updated] Top Clicker Article Titles Maker for 2024</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/accelerate-your-computers-performance-top-tools-for-boosting-speed-find-out-now-at-yl-computing/"><u>Accelerate Your Computer's Performance: Top Tools for Boosting Speed - Find Out Now at YL Computing</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/boosting-your-online-experience-expert-tips-on-faster-internet-from-yl-computing/"><u>Boosting Your Online Experience: Expert Tips on Faster Internet From YL Computing</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/discover-who-penned-the-dream-of-the-red-chamber-with-expertise-by-yl-tech-leading-in-innovation-and-literature-analysis/"><u>Discover Who Penned 'The Dream of the Red Chamber' With Expertise by YL Tech – Leading in Innovation & Literature Analysis</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/download-the-official-2018-fifa-world-cup-theme-song-by-jason-derulo-available-in-multiple-formats/"><u>Download the Official 2018 Fifa World Cup Theme Song by Jason Derulo - Available in Multiple Formats</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effective-strategies-for-managing-auto-start-applications-tips-from-yl-computing/"><u>Effective Strategies for Managing Auto-Start Applications: Tips From YL Computing</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/fixing-scan-difficulties-achieving-crystal-clear-images-using-yl-software-tips/"><u>Fixing Scan Difficulties: Achieving Crystal Clear Images Using YL Software Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/future-proof-portable-music-systems-2024-edition/"><u>Future-Proof Portable Music Systems - 2024 Edition</u></a></li>
+<li><a href="https://win-help.techidaily.com/lost-video-daten-auf-microsd-wiederfinden-und-retten-tipps-and-tricks/"><u>Lost Video Daten Auf MicroSD Wiederfinden Und Retten - Tipps & Tricks</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/master-your-pc-upgrades-tips-and-tricks-from-the-experts-at-toms-hardware/"><u>Master Your PC Upgrades: Tips & Tricks From the Experts at Tom's Hardware</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/resolve-your-print-job-stuck-issues-with-ease-a-guide-to-fixing-printer-spoolers/"><u>Resolve Your Print Job Stuck Issues with Ease: A Guide to Fixing Printer Spoolers</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/resolving-unanticipated-reboots-identifying-possible-causes-your-tech-insight-by-yl-computing/"><u>Resolving Unanticipated Reboots: Identifying Possible Causes - Your Tech Insight by YL Computing</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-solution-eliminating-the-error-code-31-on-windows/"><u>Step-by-Step Solution: Eliminating the Error Code 31 on Windows</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Sincronização De Arquivos Offline Com O Windows 11 Explicado
-date: 2025-02-08T09:54:50.099Z
-updated: 2025-02-13T02:19:16.850Z
+date: 2025-02-26T08:25:00.338Z
+updated: 2025-03-04T04:13:14.263Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/8902585d66f327811523945d1407154d052552e159a549922c8c259267eab9e9.png
@@ -28,10 +28,6 @@ Par[Aurore](https://tools.techidaily.com/ubackup/products/)Publié le 26/06/2024
 
 Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Table des matières** 
 
 1. [Logiciel de sauvegarde NAS Buffalo pour système Windows](https://tools.techidaily.com/ubackup/products/)
@@ -47,15 +43,7 @@ NAS Buffalo est la solution idéale pour la protection des données et peut faci
 
 [![buffalo](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/others/image/nas-buffalo.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ne vous inquiétez pas trop. Vous pouvez envisager d'utiliser un logiciel de sauvegarde NAS tiers pour vous aider. [AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/) est un excellent choix en raison de sa grande compatibilité (prise en charge de Windows 7/8/10/11/XP/Vista), de sa gratuité, de sa facilité d'utilisation, de sa flexibilité et de ses fonctionnalités riches.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Avantages du logiciel de sauvegarde NAS Buffalo - AOMEI Backupper Standard
 
@@ -93,10 +81,6 @@ Tout d'abord, cliquez sur **Ajouter un dossier** ou **Ajouter un fichier** sur l
 
 [![ajouter un fichier ou un dossier](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ajouter-dossier-fichier.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
@@ -121,10 +105,6 @@ De plus, vous pouvez activer la notification par e-mail une fois la tâche termi
 
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
 
 Vous pouvez utiliser AOMEI Backupper Standard comme logiciel de sauvegarde NAS Buffalo pour sauvegarder des fichiers et exécuter cette tâche facilement et automatiquement. Par défaut, il ne sauvegarde que les fichiers modifiés pour économiser du temps de sauvegarde et de l'espace disque. Si vous souhaitez réduire davantage la taille de l'image de sauvegarde, vous pouvez utiliser des niveaux de compression, la sauvegarde sectorielle intelligente, le fractionnement automatique, etc.
@@ -140,10 +120,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 [Oui](https://tools.techidaily.com/ubackup/products/)[Non](https://tools.techidaily.com/ubackup/products/)
 
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
 
@@ -168,10 +144,6 @@ Aidez-nous à améliorer cet article
 Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour nous !
 
 [Oui](https://tools.techidaily.com/ubackup/products/)[Non](https://tools.techidaily.com/ubackup/products/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Obtenez gratuitement AOMEI Backupper
 
@@ -198,17 +170,24 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-what-is-virtual-reality-headset-in-2024/"><u>[New] What Is Virtual Reality Headset, In 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-apple-tv-and-facebook-integration-watching-videos-easily/"><u>[Updated] 2024 Approved Apple TV and Facebook Integration Watching Videos Easily</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1-facil-guia-de-sincronizacion-bidireccional-para-windows-dos-metodos-faciles/"><u>1. Fácil Guía De Sincronización Bidireccional Para Windows: Dos Métodos Fáciles</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/dissolving-details-techniques-to-anonymize-youtube-media/"><u>Dissolving Details Techniques to Anonymize YouTube Media</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/erkundung-der-superlative-die-besten-alternativen-zur-datenwiederherstellung-mit-icare-expertenrat/"><u>Erkundung Der Superlative: Die Besten Alternativen Zur Datenwiederherstellung Mit iCare | Expertenrat</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/exploring-the-skies-with-dji-mavic-3-a-comprehensive-image-quality-and-performance-review/"><u>Exploring the Skies with DJI Mavic 3: A Comprehensive Image Quality and Performance Review</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-jailbreak-icloud-locked-iphone-xs-max-by-drfone-ios/"><u>How to jailbreak iCloud locked iPhone XS Max</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-honor-x7b-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Honor X7b Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/is-it-possible-to-use-samsung-data-migration-tool-for-cloning-non-samsung-ssds/"><u>Is It Possible to Use Samsung Data Migration Tool for Cloning Non-Samsung SSDs?</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-elevate-your-videos-how-to-apply-ken-burns-effect-in-final-cut-pro/"><u>New Elevate Your Videos How to Apply Ken Burns Effect in Final Cut Pro</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-top-10-free-emoji-websites-to-download-emojis-online/"><u>New Top 10 Free Emoji Websites to Download Emojis Online</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/troubleshooting-tips-how-to-get-your-windows-eboot-task-manager-up-and-running-again/"><u>Troubleshooting Tips: How to Get Your Windows Eboot Task Manager Up and Running Again</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-current-vr-devices-explored-for-2024/"><u>[New] Current VR Devices Explored for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-unlocking-potential-switch-pro-controller-on-steam/"><u>[Updated] In 2024, Unlocking Potential Switch Pro Controller on Steam</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-rhythm-and-reels-posting-melodies-on-social-media-for-2024/"><u>[Updated] Rhythm & Reels Posting Melodies on Social Media for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-mastering-management-top-8-tools-for-effective-task-allocation/"><u>2024 Approved Mastering Management Top 8 Tools for Effective Task Allocation</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-nubia-red-magic-8s-proplus-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Nubia Red Magic 8S Pro+ PC | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-secrets-of-screen-grabs-exposed/"><u>In 2024, Secrets of Screen Grabs Exposed</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leverage-the-power-of-cookiebot-for-superior-web-analytics-and-conversion-tracking/"><u>Leverage the Power of Cookiebot for Superior Web Analytics and Conversion Tracking</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/leveraging-cookiebot-technology-for-advanced-web-analytics-solutions/"><u>Leveraging Cookiebot Technology for Advanced Web Analytics Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/live-datenerfassung-mit-abbyy-ocr-sdk-instantane-erkennung-von-text-im-feld/"><u>Live-Datenerfassung Mit ABBYY OCR SDK - Instantane Erkennung Von Text Im Feld</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/maximizing-online-presence-the-art-of-effective-web-pages-and-seo-techniques/"><u>Maximizing Online Presence: The Art of Effective Web Pages and SEO Techniques</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/nelsonhalls-2020-technology-radar-abbyy-recognized-as-front-runner-in-process-mining-and-data-analysis-techniques/"><u>NelsonHall's 2020 Technology Radar: ABBYY Recognized as Front-Runner in Process Mining & Data Analysis Techniques</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimize-with-cookiebot-next-level-analytics-and-personalization-power/"><u>Optimize With Cookiebot: Next-Level Analytics and Personalization Power</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimize-your-sites-analytics-the-advanced-features-of-cookiebot-solutions/"><u>Optimize Your Site's Analytics: The Advanced Features of Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimized-webpage-strategies-enhancing-your-online-presence/"><u>Optimized Webpage Strategies: Enhancing Your Online Presence</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/optimizing-with-cookiebot-boosting-your-websites-potential/"><u>Optimizing with Cookiebot: Boosting Your Website's Potential</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/professional-iphone-data-rescue-solution-secure-your-purchase/"><u>Professional iPhone Data Rescue Solution – Secure Your Purchase</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-the-netflix-error-code-ui-800-3-a-step-by-step-guide/"><u>Solving the Netflix Error Code UI-800-3: A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/updating-your-samsung-smart-tv-a-step-by-step-guide/"><u>Updating Your Samsung Smart TV: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

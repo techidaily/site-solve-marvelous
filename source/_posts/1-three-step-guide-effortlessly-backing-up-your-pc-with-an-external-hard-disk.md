@@ -1,7 +1,7 @@
 ---
 title: "1. Three-Step Guide: Effortlessly Backing Up Your PC with an External Hard Disk"
-date: 2025-02-10T08:22:00.895Z
-updated: 2025-02-13T07:34:05.714Z
+date: 2025-02-26T20:24:25.010Z
+updated: 2025-03-04T03:14:53.199Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/4114f7cfe0acd398f6e6dc6c01ce0be957bdf6a2654636b72d1c325e241fdeaf.png
@@ -38,10 +38,6 @@ Teilen Sie dies: [![facebook](https://www.ubackup.com/resource/images/ab-theme/u
 6. [Zusammenfassung](https://tools.techidaily.com/ubackup/products/)
 7. [Häufig gestellte Fragen](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Ist es sicher, den Papierkorb zu löschen?
 
 Kann ich den Ordner „Papierkorb“ von meiner D-Festplatte löschen, da er 9 GB Speicherplatz belegt? Wenn ich ihn öffne, ist nichts darin enthalten. Und es gibt einen anderen Ordner mit demselben Namen auf meiner C-Festplatte, der ebenfalls Platz beansprucht. Ist es also sicher, den Papierkorb zu löschen?
@@ -54,17 +50,9 @@ Nicht zu vergessen sind die kürzlich gelöschten Dateien im Papierkorb. Sie wer
 
 [![Papierkorb leeren](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows-recovery/empty-recycle-bin.png "Papierkorb leeren")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Um Speicherplatz freizugeben, leeren viele Benutzer ihren Papierkorb. Aber ist es sicher, den Papierkorb zu löschen? Um spätere Bedauern zu vermeiden, öffnen Sie diesen temporären Speicherplatz, um zu prüfen, ob sich darin Dateien befinden, die Sie wiederherstellen möchten.
 
 Aber wenn der [Papierkorb als leer angezeigt wird](https://tools.techidaily.com/ubackup/products/), es aber nicht ist, was können Sie tun, um dies zu beheben? Lesen Sie bitte weiter, um die entsprechenden Methoden zu erhalten.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Teil 1\. Wie kann man den Papierkorb vom Desktop entfernen unter Windows 10?
 
@@ -81,10 +69,6 @@ Vor der dauerhaften Löschung des Papierkorbs sollten Sie sicherstellen, dass ke
 **Schritt 3**. Wählen Sie „**Desktopsymbol-Einstellungen**“ und suchen Sie das Symbol „**Papierkorb**“.
 
 [![Desktopsymbol-Einstellungen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/other/windows/desktop-icon-settings.png "Desktopsymbol-Einstellungen")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Schritt 4**. Suchen Sie das „**Papierkorb**“-Symbol, entfernen Sie das Häkchen und bestätigen Sie mit „**Übernehmen**“ und „**OK**“.
 
@@ -126,17 +110,9 @@ Sicherer Download
 
 [![Laufwerk scannen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/data-recovery-disk/windows-recovery/scanning-drive.png "Laufwerk scannen")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Schritt 3**. Gehen Sie zum Papierkorb, um die gewünschten Dateien zu lokalisieren. Klicken Sie dann auf „**x Dateien wiederherstellen**“, um die ausgewählten Dateien wiederherzustellen. Speichern Sie diese wiederhergestellten Dateien bitte an einem neuen Ort.
 
 [![x Dateien wiederherstellen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/data-recovery/screenshot/de/data-recovery-disk/windows-recovery/select-deleted-excel-files-click-recover.png "x Dateien wiederherstellen")
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Bonus-Tipps: Wie verhindert man Datenverlust auf Computern?**
 
@@ -161,10 +137,6 @@ Sicherer Download
 
 [![dateisicherung](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/de/std/backup/file-backup/file-backup.png "dateisicherung")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Schritt** **2**. Sie können ihn im Feld „**Aufgabename**“ benennen, um ihn von anderen Backups zu unterscheiden.
 
 [![aufgabename eingeben](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/de/std/backup/file-backup/task-name.png)
@@ -173,15 +145,7 @@ Sicherer Download
 
 [![Ordner hinzufügen](https://www.ubackup.com/de/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/de/std/backup/file-backup/add-folder.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Schritt 4**. Nach Abschluss des Sicherungsvorgangs klicken Sie auf „Fertig“, um das Fenster zu schließen.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Zusammenfassung
 
@@ -268,24 +232,19 @@ Wiederherstellen von gelöschten und verlorenen Daten aus allen Katastrophen in 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/updated-essential-1-5-iphone-podcast-platforms-unveiled/"><u>[Updated] Essential #1-#5 iPhone Podcast Platforms Unveiled</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/boost-your-site-with-cookiebot-technology/"><u>Boost Your Site with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/boosting-web-performance-through-cookiebots-advanced-automation-solutions/"><u>Boosting Web Performance Through Cookiebot's Advanced Automation Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/charting-the-top-of-idc-landscape-how-abbyy-sets-industry-standards-in-data-capture-solutions/"><u>Charting the Top of IDC Landscape - How ABBYY Sets Industry Standards in Data Capture Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-analytics-elevating-data-management-and-personalization/"><u>Cookiebot-Driven Analytics: Elevating Data Management and Personalization</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-driven-personalization-for-superior-online-engagement/"><u>Cookiebot-Driven Personalization for Superior Online Engagement</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-digital-solutions/"><u>Cookiebot-Enabled Digital Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/cookiebot-enabled-enhancing-your-website-with-smart-analytics/"><u>Cookiebot-Enabled: Enhancing Your Website with Smart Analytics</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/crafting-compelling-video-storylines-with-chatgpt-script-help/"><u>Crafting Compelling Video Storylines with ChatGPT Script Help</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/effective-pc-maintenance-with-reset-this-pc-in-windows-nvme-timing-and-procedure-guide/"><u>Effective PC Maintenance with Reset This PC in Windows Nvme: Timing and Procedure Guide</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/efficient-data-capture-with-abbyy-integrating-flexicapture-and-laserfiche-technologies/"><u>Efficient Data Capture with ABBYY: Integrating FlexiCapture and Laserfiche Technologies</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/elevate-user-experience-with-our-advanced-cookiebot-technology-solutions/"><u>Elevate User Experience with Our Advanced Cookiebot Technology Solutions</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-samsung-galaxy-a34-5g-using-video-repair-utility-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Corrupt video files of Samsung Galaxy A34 5G using Video Repair Utility?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-oppo-a58-4g-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Oppo A58 4G Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Xiaomi 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-quick-tips-for-saving-and-storing-vimeo-videos/"><u>In 2024, Quick Tips for Saving and Storing Vimeo Videos</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-xiaomi-redmi-note-12t-pro-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Xiaomi Redmi Note 12T Pro</u></a></li>
-<li><a href="https://some-skills.techidaily.com/supreme-memetric-creation-tool-for-2024/"><u>Supreme Memetric Creation Tool for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/win11-soundscape-install-convex-hd-audio-support-drivers/"><u>Win11 Soundscape: Install Convex-HD Audio Support Drivers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-conveniently-remove-downloaded-youtube-media-for-lightweight-devices-for-2024/"><u>[Updated] Conveniently Remove Downloaded YouTube Media for Lightweight Devices for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-vivo-v27e-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Vivo V27e Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://win-popular.techidaily.com/best-top-4-substitutes-for-lynda-learning-platforms/"><u>Best Top 4 Substitutes for Lynda Learning Platforms</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/climate-change/"><u>Climate Change</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/raphic-relevance-for-higher-youtube-rankings/"><u>Demographic Relevance for Higher YouTube Rankings</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/elite-gear-high-performance-unmatched-style/"><u>Elite Gear High Performance, Unmatched Style</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/retrieve-deleted-youtube-footage-effortlessly-using-ifinds-ifind-data-recovery-guide-and-software-solutions/"><u>Retrieve Deleted YouTube Footage Effortlessly Using iFinD's IFind Data Recovery Guide and Software Solutions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/save-big-on-top-rated-traveler-essentials-iphone-accessories-and-charger-deals-at-20-off-exclusive/"><u>Save Big on Top-Rated Traveler Essentials: IPhone Accessories & Charger Deals at 20% OFF! Exclusive</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/seamless-song-shifting-for-iphone-users-how-to-transfer-music-files-from-computer-to-iphone-x-xr-or-xs-devices/"><u>Seamless Song Shifting for iPhone Users: How to Transfer Music Files From Computer to iPhone X, XR, or XS Devices</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/simplest-way-to-clone-your-msata-ssd-with-secure-boot-feature/"><u>Simplest Way to Clone Your mSATA SSD with Secure Boot Feature</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/top-rated-free-corsair-migration-tools-for-windows-users/"><u>Top Rated Free Corsair Migration Tools for Windows Users</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-overcoming-error-code-0x800f081f-on-your-net-framework-35-installation/"><u>Troubleshooting Guide: Overcoming Error Code 0X800F081F on Your .NET Framework 3.5 Installation</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/wie-man-musik-von-itunes-auf-ihr-iphone-ohne-synchronisierung-uberspielt/"><u>Wie Man Musik Von iTunes Auf Ihr iPhone Ohne Synchronisierung Überspielt</u></a></li>
 </ul></div>
 

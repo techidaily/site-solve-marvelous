@@ -1,7 +1,7 @@
 ---
 title: Solution Pour La Sauvegarde OneDrive Des Fichiers PST Résolus
-date: 2025-02-05T16:35:48.138Z
-updated: 2025-02-13T02:13:33.372Z
+date: 2025-03-03T06:13:55.910Z
+updated: 2025-03-04T00:32:24.313Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/f3acba4ab3a16a6eb071b7ad05fb5dc6bcda3ad9bf54bc2e5b6e949de6c9c500.jpg
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/f3acba4ab3a16a6eb071b7ad05fb5dc6bcda3ad9b
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Recover Files from Ransomware Attack \[Full Guide 2022\]
 
@@ -41,10 +37,6 @@ Share this: [![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-art
    3. [Method 3\. Get back files from ransomware using File History](https://tools.techidaily.com/ubackup/products/)  
    4. [Method 4\. Recover from ransomware through system restore](https://tools.techidaily.com/ubackup/products/)
 3. [Conclusion](https://tools.techidaily.com/ubackup/products/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is it possible to recover data from ransomware?
 
@@ -80,33 +72,17 @@ Run MyRecover, hover the mouse over the drive and click **Scan** to scan.. If yo
 
 [![Select Partition To Scan](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows-recovery/select-partition-to-scan.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2\. Locate and preview your lost/deleted files**
 
 The recovery tool will automatically start looking for all the deleted and lost files.
 
 [![Scan Lost Data](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows-recovery/scan-lost-data.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3\. Recover selected files**
 
 You can expand the Deleted files folder and Other missing files folder to select the desired items, then click **Recover x files** to begin ransomware attack recovery now.
 
 [![Select Deleted Excel Files Click Recover](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows-recovery/select-deleted-excel-files-click-recover.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 2\. Recover ransomware infected files via Backup and Restore
 
@@ -117,10 +93,6 @@ The how to recover ransomware encrypted files guide is instructed as follows. Yo
 Step 1\. Open **Control Panel** and click on **System and Security**. Then, hit **Backup and Restore (Windows 7)**.
 
 [![Windows Backup And Restore](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/windows-backup-and-restore.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 2\. Tap on the **Restore my files** position in the Restore tab.
 
@@ -137,10 +109,6 @@ If you have used File History to save a copy of your precious data, you can foll
 Step 1\. Go to **Control Panel** \> **System and Security**, and click on **File History**.
 
 [![File History](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/file-history.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 2\. Press the **Restore personal files** button on the left panel. Please make sure your File History is turned on.
 
@@ -167,10 +135,6 @@ Step 2\. Click on **System Restore** \> **Next**.
 Step 3\. Choose a restore point from the list and tap on **Scan for affected programs** to check the items that will be deleted after the restore. Then, click **Close**.
 
 [![Scan For Affected Programs Close](https://www.ubackup.com/data-recovery-disk/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/en/data-recovery-disk/windows/scan-for-affected-programs-close.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 4\. Press **Next**. Confirm the selected restore point and click **Finish**. Then, hit **Yes** to begin the [recovery of deleted files](https://tools.techidaily.com/ubackup/products/).
 
@@ -237,10 +201,6 @@ Recover deleted & lost data from any disasters in Windows.
 
 ![](https://www.ubackup.com/resource/images/ub-mr-theme/ub-article-mr-img-dibu.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -256,24 +216,17 @@ Recover deleted & lost data from any disasters in Windows.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-mastering-video-directorship-with-powerdirector-24/"><u>[New] In 2024, Mastering Video Directorship with PowerDirector '24</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-jocular-video-hacker-review/"><u>[Updated] In 2024, Jocular Video Hacker Review</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevate-your-youtube-presence-with-audio/"><u>2024 Approved Elevate Your Youtube Presence with Audio</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-exploring-the-colors-of-wings-in-bebops-parrot-edition/"><u>2024 Approved Exploring the Colors of Wings in Bebop's Parrot Edition</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/come-ritrovare-i-tuoi-segnalibri-persi-su-chrome-una-guida-passo-passo/"><u>Come Ritrovare I Tuoi Segnalibri Persi Su Chrome: Una Guida Passo-Passo</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/comment-installer-et-utiliser-un-point-de-recuperation-sur-le-serveur-dechange-microsoft/"><u>Comment Installer Et Utiliser Un Point De Récupération Sur Le Serveur D'Échange Microsoft</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/expert-raid-data-restoration-with-ifind-tech-comprehensive-solutions-for-raid-0-1-and-5/"><u>Expert RAID Data Restoration with iFind Tech - Comprehensive Solutions for Raid 0, 1 & 5</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/how-to-back-up-an-external-hdd-with-windows-10-a-step-by-step-guide/"><u>How to Back Up an External HDD with Windows 10 - A Step-by-Step Guide</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-tecno-phantom-v-fold-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-locked-motorola-g24-power-phone-by-drfone-android/"><u>How to Reset a Locked Motorola G24 Power Phone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ipadusb/"><u>IPadへUSBメモリインストール手順／効果的にデータ転送するためのガイド</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/mastering-data-revival-with-ifind-software-the-ultimate-manual-for-retrieving-lost-microsoft-word-documents/"><u>Mastering Data Revival with IFind Software: The Ultimate Manual for Retrieving Lost Microsoft Word Documents</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/passaggi-facili-per-il-ripristino-dei-promemoria-sui-dispositivi-iphone-una-guida-completa/"><u>Passaggi Facili per Il Ripristino Dei Promemoria Sui Dispositivi iPhone: Una Guida Completa</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/professionelles-guide-die-effektivsten-methoden-zur-wiederherstellung-von-hdd-partitionen/"><u>Professionelles Guide: Die Effektivsten Methoden Zur Wiederherstellung Von HDD Partitionen.</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/step-by-step-guide-creating-a-bootable-usb-or-hdd-on-windows-11/"><u>Step-by-Step Guide: Creating a Bootable USB or HDD on Windows 11</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-tutorial-capturing-the-ideal-profile-image-on-iphone-and-android-devices/"><u>Step-by-Step Tutorial: Capturing the Ideal Profile Image on iPhone and Android Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-game-changer-a-comprehensive-analysis-of-ibuypowers-powerhouse-gaming-systems/"><u>The Game Changer: A Comprehensive Analysis of iBuypower's Powerhouse Gaming Systems</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/transfer-files-from-windows-7-to-windows-11-a-comprehensive-guide-with-five-methods/"><u>Transfer Files From Windows 7 to Windows 11: A Comprehensive Guide with Five Methods</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-the-ultimate-guide-to-importing-and-exporting-videos-in-adobe-premiere-for-2024/"><u>Updated The Ultimate Guide to Importing and Exporting Videos in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pioneering-visual-effects-strategic-use-of-luts-in-adobe-projects/"><u>[New] Pioneering Visual Effects Strategic Use of LUTs in Adobe Projects</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-entering-a-friends-tiktok-live-a-step-by-step-guide/"><u>2024 Approved Entering a Friend's TikTok Live A Step-by-Step Guide</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/a-comprehensive-guide-yl-computing/"><u>A Comprehensive Guide - YL Computing</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/detecting-and-repairing-damaged-registry-keys-on-your-pc-a-guide-by-yl-computing/"><u>Detecting and Repairing Damaged Registry Keys on Your PC: A Guide by YL Computing</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/effective-ways-to-handle-applications-using-the-windows-control-panel-tech-insights-by-yl-computing/"><u>Effective Ways to Handle Applications Using the Windows Control Panel - Tech Insights by YL Computing</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-download-freshest-updates-for-your-amd-rx-480-graphics-card/"><u>Effortless Download: Freshest Updates for Your AMD RX 480 Graphics Card</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/effortless-free-driver-downloads-for-netgear-a6210-compatible-with-windows-87-users/"><u>Effortless Free Driver Downloads for Netgear A6210: Compatible with Windows 8/7 Users</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/exploring-various-cryptocurrency-options-insights-from-yl-computing-and-yl-software/"><u>Exploring Various Cryptocurrency Options: Insights From YL Computing and YL Software</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>How to Fake Snapchat Location without Jailbreak On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-7-plus-withwithout-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 7 Plus with/without SIM Card</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/procedures-de-transfert-de-connexion-utilisateur-sur-une-machine-differente-sous-windows-server/"><u>Procédures De Transfert De Connexion Utilisateur Sur Une Machine Différente Sous Windows Server</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/solving-connectivity-issues-restoring-your-network-adapters-functionality-with-yl-software/"><u>Solving Connectivity Issues: Restoring Your Network Adapter's Functionality with YL Software</u></a></li>
 </ul></div>
 

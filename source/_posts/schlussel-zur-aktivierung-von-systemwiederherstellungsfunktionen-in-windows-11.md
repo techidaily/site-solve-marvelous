@@ -1,7 +1,7 @@
 ---
 title: Schlüssel Zur Aktivierung Von Systemwiederherstellungsfunktionen in Windows 11
-date: 2025-02-11T21:17:22.158Z
-updated: 2025-02-12T21:09:41.850Z
+date: 2025-02-26T02:53:50.996Z
+updated: 2025-03-03T23:07:53.208Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/94e07137a13ad182683de85211bfdf3891ed8a3953138abcae7ed2effebf679e.jpg
@@ -28,10 +28,6 @@ Par[Aurore](https://tools.techidaily.com/ubackup/products/)Publié le 26/06/2024
 
 Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-fb-24.svg) ![twitter](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-tw-24.svg) ![instagram](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-in-24.svg) ![reddit](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-share-reddit-24.svg) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Table des matières** 
 
 1. [Logiciel de sauvegarde NAS Buffalo pour système Windows](https://tools.techidaily.com/ubackup/products/)
@@ -49,10 +45,6 @@ NAS Buffalo est la solution idéale pour la protection des données et peut faci
 
 Ne vous inquiétez pas trop. Vous pouvez envisager d'utiliser un logiciel de sauvegarde NAS tiers pour vous aider. [AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/) est un excellent choix en raison de sa grande compatibilité (prise en charge de Windows 7/8/10/11/XP/Vista), de sa gratuité, de sa facilité d'utilisation, de sa flexibilité et de ses fonctionnalités riches.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Avantages du logiciel de sauvegarde NAS Buffalo - AOMEI Backupper Standard
 
 AOMEI Backupper Standard est un logiciel de sauvegarde tout-en-un pour Windows 11/10/8/7/XP/Vista qui prend en charge la sauvegarde de fichiers, de systèmes, de disques et de partitions en seulement quelques étapes simples. Vous pouvez profiter des avantages suivants :
@@ -69,17 +61,9 @@ Toutes les opérations s'effectuent dans une interface intuitive, ce qui permet 
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-logo-ab-32.svg)AOMEI Backupper
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Meilleur logiciel de sauvegarde Windows gratuit pour usage personnel.
 
 [**Télécharger gratuiciel** Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers
 
@@ -88,10 +72,6 @@ Avant de commencer à sauvegarder des fichiers avec le logiciel de sauvegarde NA
 **Étape 1.** Lancez AOMEI Backuppper Standard, cliquez sur **Sauvegarder**, puis sur **Sauvegarde de fichiers**.
 
 [![sauvegarde de fichiers](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/sauvegarde-de-fichiers.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Vous pouvez également choisir _Sauvegarde de disque_ et _Sauvegarde de partition_. Si vous souhaitez sauvegarder le système sur le NAS Buffalo, essayez la fonctionnalité de [Sauvegarde système](https://tools.techidaily.com/ubackup/products/).
 
@@ -125,10 +105,6 @@ De plus, vous pouvez activer la notification par e-mail une fois la tâche termi
 
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
 
 Vous pouvez utiliser AOMEI Backupper Standard comme logiciel de sauvegarde NAS Buffalo pour sauvegarder des fichiers et exécuter cette tâche facilement et automatiquement. Par défaut, il ne sauvegarde que les fichiers modifiés pour économiser du temps de sauvegarde et de l'espace disque. Si vous souhaitez réduire davantage la taille de l'image de sauvegarde, vous pouvez utiliser des niveaux de compression, la sauvegarde sectorielle intelligente, le fractionnement automatique, etc.
@@ -148,10 +124,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
 
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Autres articles connexes
 
@@ -198,21 +170,22 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-help.techidaily.com/budget-conscious-audio-meet-sandisks-clip-jam-mp3/"><u>Budget-Conscious Audio: Meet SanDisk's Clip Jam MP3</u></a></li>
-<li><a href="https://solve-news.techidaily.com/conservare-le-tue-raccolte-di-film-su-dvd-con-sistemi-multimediali-come-plex-nas-o-server-dlna/"><u>Conservare Le Tue Raccolte Di Film Su DVD Con Sistemi Multimediali Come Plex, NAS O Server DLNA</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/diagnosing-and-fixing-subpar-scanner-performance-tips-from-yl-software-specialists/"><u>Diagnosing and Fixing Subpar Scanner Performance: Tips From YL Software Specialists</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dominating-2021-a-detailed-review-of-the-unbeatable-alienware-aurora-r11/"><u>Dominating 2021: A Detailed Review of the Unbeatable Alienware Aurora R11</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/exploring-the-safety-of-using-cryptocurrencies-insights-from-yl-computings-experts/"><u>Exploring the Safety of Using Cryptocurrencies: Insights From YL Computing's Experts</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/immersive-space-opera-chaos-imagery-and-backgrounds-from-the-40k-universe-premium-visual-content-by-yl-computing/"><u>Immersive Space Opera Chaos Imagery & Backgrounds From the 40K Universe | Premium Visual Content by YL Computing</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-honor-magic-6-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Honor Magic 6 Phone FRP Lock</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-navigating-the-path-to-an-official-instagram-business-page/"><u>In 2024, Navigating the Path to an Official Instagram Business Page</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-oneplus-nord-n30-se-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to OnePlus Nord N30 SE Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-ten-frame-enhancers-for-visual-artistry/"><u>In 2024, Top Ten Frame Enhancers for Visual Artistry</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/is-it-worth-upgrading-for-faster-pc-speeds-insights-and-advice-by-yl-technology-experts/"><u>Is It Worth Upgrading for Faster PC Speeds? Insights & Advice by YL Technology Experts</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/toggle-windows-defender-onoff-a-step-by-step-guide-tips-by-yl-tech/"><u>Toggle Windows Defender On/Off: A Step-by-Step Guide - Tips by YL Tech</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-tips-lipo-power-sources-for-aerial-vehicles-for-2024/"><u>Top Tips LiPo Power Sources for Aerial Vehicles for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshoot-and-repair-your-steelseries-arctis-cued-headphones-microphone-step-by-step-solutions/"><u>Troubleshoot & Repair Your SteelSeries Arctis Cued Headphones Microphone – Step by Step Solutions</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/troubleshooting-your-pcs-core-motherboard-diagnosis-strategies-by-yl-experts/"><u>Troubleshooting Your PC's Core: Motherboard Diagnosis Strategies by YL Experts</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/yl-software-expertise-how-to-install-new-typefaces-through-the-windows-user-interface/"><u>YL Software Expertise: How to Install New Typefaces Through the Windows User Interface</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-ultimate-uav-upgrade-path-key-parts-and-add-ons/"><u>[New] The Ultimate UAV Upgrade Path Key Parts and Add-Ons</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-step-by-step-guide-invert-playback-videos-android/"><u>[Updated] 2024 Approved Step-by-Step Guide Invert Playback Videos Android</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-path-to-passive-revenue-how-ajey-nagars-youtube-thrives-for-2024/"><u>[Updated] The Path to Passive Revenue How Ajey Nagar's YouTube Thrives for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-flashfacts-the-social-media-spark-of-video-tweet/"><u>2024 Approved FlashFacts The Social Media Spark of Video Tweet</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/avimpeg-movavi/"><u>網路上無償AVI至MPEG格式改變 - Movavi 自動化編解碼器</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/beat-the-blues-the-ultimate-selection-of-games-for-when-youre-feeling-dull/"><u>Beat the Blues: The Ultimate Selection of Games for When You’re Feeling Dull</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-cambiar-tu-video-de-formato-asf-a-mov-sin-coste-con-herramientas-en-linea-tutorial-con-movavi/"><u>Cómo Cambiar Tu Vídeo De Formato ASF a MOV Sin Coste Con Herramientas en Línea: Tutorial Con Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/como-transformar-archivos-ts-en-formato-line-sin-coste-usando-movavi-tutorial-completo/"><u>Cómo Transformar Archivos TS en Formato LINE Sin Coste Usando Movavi - Tutorial Completo</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/conversione-gratuita-online-converti-i-tuoi-file-mp3-in-formato-ogg-con-lutilita-di-movavi/"><u>Conversione Gratuita Online: Converti I Tuoi File MP3 in Formato OGG Con L'utilità Di Movavi</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/converti-video-flv-in-formato-aiff-liberamente-conversiononline/"><u>Converti Video FLV in Formato AIFF Liberamente - ConversionOnline</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/does-pokegoplusplus-still-work-on-apple-iphone-11-pro-maxipad-drfone-by-drfone-virtual-ios/"><u>Does PokeGo++ still work on Apple iPhone 11 Pro Max/iPad? | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/easy-fix-guide-overcoming-game-crashing-in-armored-core-6-the-fires-of-rubicon-edition/"><u>Easy Fix Guide: Overcoming Game Crashing in Armored Core 6 - The Fires of Rubicon Edition</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/flvavi/"><u>FLVとAVIファイルの免責コースで簡単な変換 - ムーバヴィ</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/free-imovie-windows-version-download-edit-your-videos-on-pc-without-cost/"><u>Free iMovie Windows Version Download: Edit Your Videos on PC without Cost</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-oneplus-12-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/mac-movavi-mac/"><u>Mac向け動画編集ソフトウェア Movavi - Macユーザーに最適！</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/stop-openais-data-harvesters-on-your-site/"><u>Stop OpenAI's Data Harvesters on Your Site</u></a></li>
 </ul></div>
 

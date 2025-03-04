@@ -1,7 +1,7 @@
 ---
 title: 信頼できるWindows Home Server向けバックアップソフトウェアの選び方【紹介記事】
-date: 2025-02-08T21:10:39.888Z
-updated: 2025-02-13T11:01:52.186Z
+date: 2025-03-02T01:02:23.334Z
+updated: 2025-03-04T01:26:48.689Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/aef257ce3a4717ff2a174fecf2a8bdf62b913152db90ae5a3b63c07a0dcd2fd7.jpg
@@ -35,10 +35,6 @@ Partager sur : ![facebook](https://www.ubackup.com/resource/images/ab-theme/ub-a
 3. [Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers](https://tools.techidaily.com/ubackup/products/)
 4. [Dernières réflexions sur l'utilitaire de sauvegarde Buffalo](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Logiciel de sauvegarde NAS Buffalo pour système Windows
 
 NAS Buffalo est la solution idéale pour la protection des données et peut facilement éviter les défaillances informatiques causées par une attaque de virus, un plantage système, une corruption de disque, etc. Cependant, il peut également se bloquer et entraîner une perte de données dans ces situations. Vous ne souhaitez probablement pas perdre vos données, il est donc judicieux de sauvegarder votre NAS Buffalo sur un disque dur externe, une clé USB ou d'autres périphériques.
@@ -65,10 +61,6 @@ Toutes les opérations s'effectuent dans une interface intuitive, ce qui permet 
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-logo-ab-32.svg)AOMEI Backupper
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Meilleur logiciel de sauvegarde Windows gratuit pour usage personnel.
 
 [**Télécharger gratuiciel** Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/)
@@ -93,17 +85,9 @@ Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
 [![ajouter périphérique share ou nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/emplacement-reseau.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Étape 3.** Cliquez là où la flèche pointe et sélectionnez le disque externe préparé comme destination.
 
@@ -141,10 +125,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Autres articles connexes
 
 ##### [Meilleur logiciel pour sauvegarder NAS Buffalo sur disque dur externe](https://tools.techidaily.com/ubackup/products/)
@@ -165,10 +145,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 
 [Oui](https://tools.techidaily.com/ubackup/products/)[Non](https://tools.techidaily.com/ubackup/products/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Obtenez gratuitement AOMEI Backupper
 
 Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchronisation et le clonage.
@@ -176,10 +152,6 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 [**Télécharger gratuiciel**  Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/) 
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Propre & Sûr
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
 
@@ -198,18 +170,16 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-spectacular-selects-ideal-laptops-mastering-4k-editing/"><u>[Updated] In 2024, Spectacular Selects Ideal Laptops Mastering 4K Editing</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/1-customizing-your-experience-changing-personalization-preferences-via-windows-control-panel-a-guide-by-yl-computing/"><u>1. Customizing Your Experience: Changing Personalization Preferences via Windows Control Panel - A Guide by YL Computing</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-turn-youtube-clips-into-animated-gifs-step-by-step-guide/"><u>2024 Approved Turn Youtube Clips Into Animated GIFs Step-by-Step Guide</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/dealing-with-hot-graphic-cards-essential-tips-by-yl-technology-experts/"><u>Dealing with Hot Graphic Cards: Essential Tips by YL Technology Experts</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/discover-top-tier-repository-github-leads-in-free-community-driven-code-sharing/"><u>Discover Top-Tier Repository: GitHub Leads in Free, Community-Driven Code Sharing</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/enhance-performance-with-more-ram-comprehensive-upgrade-instructions-by-yl-software-experts/"><u>Enhance Performance with More RAM: Comprehensive Upgrade Instructions by YL Software Experts</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/exclusive-gpodc-must-haves/"><u>Exclusive GPodC Must-Haves</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/exploring-the-efficacy-of-windows-defender-as-your-primary-virus-protection-expert-advice-by-yl-software/"><u>Exploring the Efficacy of Windows Defender as Your Primary Virus Protection – Expert Advice by YL Software</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-a-oppo-reno-11-pro-5g-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Oppo Reno 11 Pro 5G Phone That Is Locked | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/master-file-management-adjusting-file-permissions-on-your-pc-with-help-from-yl-software-experts/"><u>Master File Management: Adjusting File Permissions on Your PC with Help From YL Software Experts</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/resolving-issues-with-your-cddvd-player-expert-tips-and-tricks-yl-software-solutions/"><u>Resolving Issues with Your CD/DVD Player: Expert Tips and Tricks - YL Software Solutions</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-steps-to-prevent-forza-horizon-5-from-crashing-on-windows/"><u>Troubleshooting Steps to Prevent Forza Horizon 5 From Crashing on Windows</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-effortlessly-record-audio-on-your-mac-using-audacity/"><u>[New] Effortlessly Record Audio on Your Mac Using Audacity</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-top-8-facebook-movie-downloaders/"><u>[Updated] In 2024, Top 8 Facebook Movie Downloaders</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-top-20-youtube-bards-for-unforgettable-tales/"><u>2024 Approved Top 20 YouTube Bards for Unforgettable Tales</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/6-methods-to-mirror-apple-iphone-12-mini-to-your-windows-pc-drfone-by-drfone-ios/"><u>6 Methods to Mirror Apple iPhone 12 mini to your Windows PC | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-at-the-joint-conference-on-shared-services-and-outsourcing/"><u>ABBYY at the Joint Conference on Shared Services & Outsourcing</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-clinches-top-position-in-gartners-2023-magic-quadrant-for-advanced-process-mining-solutions/"><u>ABBYY Clinches Top Position in Gartner's 2023 Magic Quadrant for Advanced Process Mining Solutions</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-cloud-services-agreement-comprehensive-terms-and-conditions-including-eu-data-protection-regulation-compliance/"><u>ABBYY Cloud Services Agreement: Comprehensive Terms & Conditions Including EU Data Protection Regulation Compliance</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/abbyy-flexicapture-ai/"><u>ABBYY FlexiCapture - AI駆使した最先端の帳票自動認識プラットフォームについて学ぶ</u></a></li>
+<li><a href="https://fox-that.techidaily.com/accelerate-your-instagram-experience-swift-solutions-for-lagging-issues-in-android-and-ios/"><u>Accelerate Your Instagram Experience: Swift Solutions for Lagging Issues in Android & iOS</u></a></li>
+<li><a href="https://extra-information.techidaily.com/assemble-your-unique-google-cardboard-virtual-reality-for-2024/"><u>Assemble Your Unique Google Cardboard Virtual Reality for 2024</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-call-logs-from-htc-by-fonelab-android-recover-call-logs/"><u>Undelete lost call logs from HTC</u></a></li>
 </ul></div>
 
